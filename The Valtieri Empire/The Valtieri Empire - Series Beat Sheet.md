@@ -2,7 +2,7 @@
 
 **Universe:** The Valtieri Empire — an ancient empire ruled by the Valtieri dynasty until they were overthrown and exiled. The inner planets seized power and erased Valtieri from official history. The border planets are where the exiled rulers were cast out.
 
-**Series:** Series 1 — "Vanguard" (5 books)
+**Series:** Series 1 — "The Helios Academy Series" (5 books)
 **Protagonist:** Silas Thorne — border planet, high Tactics, low Physical Endurance, UNRANKABLE Neural Link. His real family name is Valtieri — the exiled dynasty.
 **Love Interest:** Tessa Voss — inner planet, old military family, pilots by instinct
 **Series Arc:** Silas goes from treating everyone as variables → seeing them as friends, lovers, enemies → discovering he is the last Valtieri heir → claiming his lineage → becoming someone others trust and sacrifice for
@@ -276,7 +276,7 @@
 
 **Universe:** The Valtieri Empire — an ancient empire built to protect humanity from an alien threat. Founded by the Valtieri dynasty, who ruled with wisdom and sacrifice. Overthrown by an advisor who framed them for a disaster caused by the aliens. The Valtieri were exiled to the border planets, and the inner planets erased them from history. The "civil war" between inner and outer planets is a cover for the truth: the aliens are real, and the empire's founding purpose was to fight them.
 
-**Series 1 (Vanguard):** Silas's story — the lost heir to the Valtieri throne who enters the academy, discovers his lineage, and learns to lead. Focus on character growth, relationships, academy competition, lineage discovery. Silas goes from "people as variables" → discovering he's Valtieri → claiming his name → uniting the planets against the alien threat.
+**Series 1 (The Helios Academy Series):** Silas's story — the lost heir to the Valtieri throne who enters the academy, discovers his lineage, and learns to lead. Focus on character growth, relationships, academy competition, lineage discovery. Silas goes from "people as variables" → discovering he's Valtieri → claiming his name → uniting the planets against the alien threat.
 
 **Series 2 (The War Arc):** Different POV characters — surviving academy grads, ground commanders. Explores the war that Silas helped start. Introduces alien civilizations, political backstory of the Valtieri overthrow, the true nature of the alien threat. Silas returns as a commander fighting to reclaim the empire and unite the planets.
 
