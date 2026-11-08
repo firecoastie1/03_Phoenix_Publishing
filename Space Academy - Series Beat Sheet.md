@@ -1,11 +1,13 @@
-# Academy Arc — Multi-Book Series Beat Sheet
+# The Valtieri Empire — Series Beat Sheet
 
-**Series:** Series 1 — "The Academy Arc" (5 books)
-**Protagonist:** Silas Thorne — border planet, high Tactics, low Physical Endurance, UNRANKABLE Neural Link
+**Universe:** The Valtieri Empire — an ancient empire ruled by the Valtieri dynasty until they were overthrown and exiled. The inner planets seized power and erased Valtieri from official history. The border planets are where the exiled rulers were cast out.
+
+**Series:** Series 1 — "Vanguard" (5 books)
+**Protagonist:** Silas Thorne — border planet, high Tactics, low Physical Endurance, UNRANKABLE Neural Link. His real family name is Valtieri — the exiled dynasty.
 **Love Interest:** Tessa Voss — inner planet, old military family, pilots by instinct
-**Series Arc:** Silas goes from treating everyone as variables → seeing them as friends, lovers, enemies → becoming someone others trust and sacrifice for
-**Primary Narrative:** Academy competition, training, political intrigue, combat
-**Backdrop Escalation:** Civil war (Book 1 backdrop) → Alien threat becomes real (Book 2) → War reaches academy (Book 3) → Betrayal from within (Book 4) → Deployment (Book 5)
+**Series Arc:** Silas goes from treating everyone as variables → seeing them as friends, lovers, enemies → discovering he is the last Valtieri heir → claiming his lineage → becoming someone others trust and sacrifice for
+**Primary Narrative:** Academy competition, training, political intrigue, combat, lineage discovery
+**Backdrop Escalation:** Civil war (Book 1 backdrop) → Alien threat becomes real (Book 2) → Valtieri identity revealed (Book 3) → Betrayal from within (Book 4) → Deployment, lineage claimed (Book 5)
 
 ---
 
@@ -23,7 +25,7 @@
 - Border cadet program revealed — outer planets fighting a war the inner planets deny
 - First tournament — Silas advances through Tactics, Tessa covers his Physical weakness
 - Helios Cup tournament — Silas and Tessa reach the finals together
-- **Cliffhanger:** Academy upgrades Neural Link testing equipment — Silas's real rank is revealed: off the scale, unprecedented, dangerous. Lead instructor calls emergency meeting. Alien threat files are unsealed. Cadets are being prepared for deployment.
+- **Cliffhanger:** Academy upgrades Neural Link testing equipment — Silas's real rank is revealed: off the scale, unprecedented, dangerous. Lead instructor calls emergency meeting. Alien threat files are unsealed. Cadets are being prepared for deployment. As Silas leaves the testing room, a border cadet recognizes an old Valtieri symbol on a family heirloom Silas wears — a ring his grandmother gave him. The cadet whispers: "Valtieri?" It is the first time anyone has spoken that name to him.
 
 ### Character Arcs (Book 1)
 - **Silas:** People as variables → beginning to see individuals → Tessa makes this unavoidable
@@ -62,7 +64,8 @@
 - Tessa's instinct saves them in combat; Silas's Tactics plan the escape. They survive together.
 - Back at the academy, the report of the alien contact is classified — but the border cadets know. The inner planet cadets deny it.
 - An instructor sets up a "training exercise" that Silas recognizes as a trap — an attempt to eliminate him in combat. Silas survives by using both his Tactics and his Neural Link in ways he hasn't before.
-- Tessa discovers that her father (inner planet military) knew about the aliens and has been involved in the cover-up.
+- Tessa discovers that her father (inner planet military) knew about the aliens and has been involved in the cover-up. Tessa also discovers that her father's records mention the "Thorne bloodline" — a branch of the Valtieri dynasty that was exiled centuries ago. She tells Silas: "Your name isn't Thorne. It's Valtieri."
+- Silas begins researching his family history in secret. The border cadets have kept old Valtieri symbols and stories — he finds a hidden archive of the old empire's history. The inner planets didn't just overthrow the Valtieri — they erased them.
 - Silas and Tessa's relationship deepens — shared danger, shared secrets, shared purpose. Physical proximity grows but the relationship stays emotionally grounded.
 - Mid-year competition — Silas and Tessa win, but during the victory, Silas's Neural Link spikes during the final round. He nearly causes a disaster. The academy debates restricting him.
 - **Mid-book crisis:** Silas's Physical Endurance hasn't caught up fast enough. During a high-stakes simulation, he passes out mid-flight — Tessa has to take over his craft and bring them both home safely.
@@ -108,12 +111,12 @@
 - Tessa is also selected — they compete as teammates in the team rounds, but rivals in the individual rounds.
 - **Romance develops:** During a long training period, Silas and Tessa grow closer. A moment of shared vulnerability — Silas admits he's afraid his Neural Link will kill someone. Tessa says: "I trust you. Not your power. You." It's the first time someone has said that.
 - The tournament begins — multi-stage competition across different academies. Silas uses his Tactics to outmaneuver opponents with higher raw ratings. Tessa's instinct complements his calculations in team rounds.
-- **Political tension erupts:** During the tournament, outer planet cadets stage a protest — they demand the academy acknowledge the alien threat and stop treating the civil war as a political game. Inner planet cadets respond with hostility. The tournament is interrupted by violence.
+- **Political tension erupts:** During the tournament, outer planet cadets stage a protest — they demand the academy acknowledge the alien threat and stop treating the civil war as a political game. Inner planet cadets respond with hostility. An inner planet cadet mocks Silas: "The last Valtieri heir — hiding in a border planet uniform." The name "Valtieri" is spoken publicly for the first time. The tournament is interrupted by violence.
 - Silas and Tessa try to de-escalate, but an instructor from an inner planet academy uses the chaos as a "training exercise" — pitting cadets against each other in a brutal fight simulation.
 - **Silas's trap:** The inner planet instructor targets Silas specifically — using the chaos to eliminate a "threat to academy reputation." The simulation becomes a death trap.
 - Silas's Neural Link spikes — not from danger, but from rage. His craft reacts with unprecedented speed. He wins the simulation, but the victory comes with a cost — he nearly kills the instructor's best cadet.
-- After the simulation, the academy's leadership is in crisis. The outer planet cadets refuse to continue. The inner planet cadets demand Silas be removed.
-- **Silas's breakthrough:** Silas gives a speech to the assembled cadets — not about aliens, not about politics, but about the academy's philosophy. "You said war doesn't care about feelings. But war doesn't care about your egos either. We're not here to prove who's better. We're here to survive what's coming."
+- After the simulation, the academy's leadership is in crisis. The outer planet cadets refuse to continue. The inner planet cadets demand Silas be removed — calling him "the last Valtieri" and demanding he be stripped of his rank. The inner planet command is terrified of what a Valtieri return would mean.
+- **Silas's breakthrough:** Silas gives a speech to the assembled cadets — not about aliens, not about politics, but about his lineage. "My family ruled this empire. And my family was cast out. Not because we were weak — because we were right. You took everything from us. But you can't take what I am." He claims his name publicly for the first time. "I am Valtieri. And I am not afraid of who I am."
 - The speech resonates. Border and outer planet cadets stand with him. Even some inner planet cadets are moved.
 - The tournament resumes under new conditions — all cadets must work together against a simulated alien threat. Silas and Tessa lead the effort.
 - **Climax:** The simulated alien threat becomes so complex that even Silas's Tactics and Tessa's instinct aren't enough. They have to TRUST each other completely — Silas calculates the impossible; Tessa executes it. They win the tournament together.
@@ -158,9 +161,9 @@
 - **Silas's crisis:** Silas's unverified Neural Link rank causes a crisis when a front-line command officer refuses to believe a cadet can have that kind of power. They order him to prove it — or be relieved of duty.
 - Silas is forced to demonstrate his Neural Link at maximum output — and nearly kills his own squad in the process. He passes out from the G-forces.
 - **Tessa saves him again** — this time in real combat, not simulation. She pulls him out of a burning craft and keeps him conscious.
-- **The academy's politics:** Inner planet command sends a delegation to the front line — they want to take control of the alien threat response. They see border cadets as expendable. Silas is at the center of this.
-- **Silas's breakthrough:** Silas realizes his Tactical genius isn't just about combat — it's about understanding how people work. He uses this to unite the front-line cadets — inner planet, outer planet, border planet — against the common enemy.
-- **The betrayal deepens:** The inner planet delegation's commander is the traitor's ally. They plan to sacrifice the outer planet cadets to save the inner planet forces. Silas discovers the plan.
+- **The academy's politics:** Inner planet command sends a delegation to the front line — they want to take control of the alien threat response. They see border cadets as expendable. They also learn Silas is Valtieri — and they want to use his name as propaganda. They offer him a deal: "Swear loyalty to the current regime, and we'll give you everything. Refuse, and you're a traitor to the empire you claim to represent."
+- **Silas's breakthrough:** Silas realizes his Tactical genius isn't just about combat — it's about understanding how people work. He uses this to unite the front-line cadets — inner planet, outer planet, border planet — against the common enemy. He declares: "The Valtieri didn't rule because we wore crowns. We ruled because we protected you. I don't want your loyalty. I want your survival."
+- **The betrayal deepens:** The inner planet delegation's commander is the traitor's ally. They plan to sacrifice the outer planet cadets to save the inner planet forces. Silas discovers the plan. And the commander reveals the truth about the Valtieri overthrow: Silas's own family was betrayed by someone close — an advisor who wanted the throne. The same betrayal is happening now, just with different faces.
 - **Cliffhanger:** Silas confronts the inner planet commander — and the commander reveals something shocking: the aliens aren't just attacking. They're being MANIPULATED by someone inside the academy. The alien threat isn't just external — it's connected to the betrayal. And the person manipulating the aliens is someone Silas knows from the academy.
 
 ### Character Arcs (Book 4)
@@ -188,31 +191,32 @@
 
 ---
 
-## BOOK 5: "Graduation"
+## BOOK 5: "The Heir"
 
-**Focus:** Year 3 graduation — Silas deploys. The alien threat becomes undeniable. Setup for Series 2.
+**Focus:** Year 3 graduation — Silas deploys, claims his lineage publicly, and begins the path to reclaiming the Valtieri throne. The alien threat becomes undeniable. Setup for Series 2.
 
 ### Major Plot Beats
 - Silas and Tessa return to the academy for their final year — but everything has changed
 - The alien threat is now public — outer planet colonies have fallen. The inner planets can no longer deny it.
 - Silas is offered a choice: stay at the academy and train, or deploy with the Vanguard Squadron and fight the war.
-- **The manipulator is revealed:** The person manipulating the aliens is a senior academy instructor — someone who believed the aliens were a threat to all humanity and wanted to accelerate the conflict. They're trying to force humanity to unite against the aliens, even if it means sacrificing billions.
-- Silas and Tessa investigate the instructor — with help from Instructor Kael and border cadets who have seen the war firsthand.
-- **The crisis:** The instructor activates a device that opens a portal to alien space — not to fight, but to invite the invasion. The academy is under attack.
+- **The manipulator is revealed:** The person manipulating the aliens is a senior academy instructor — someone who believed the aliens were a threat to all humanity and wanted to accelerate the conflict. They're trying to force humanity to unite against the aliens, even if it means sacrificing billions. The instructor was an advisor to the current inner planet leadership — the same role the betrayer played when the Valtieri were overthrown. History is repeating.
+- Silas and Tessa investigate the instructor — with help from Instructor Kael and border cadets who have seen the war firsthand. The border cadets reveal the truth: the Valtieri weren't just exiled — they were framed. The inner planets blamed the Valtieri for a disaster that was actually caused by the aliens. The "civil war" was a cover for the inner planets to seize power and hide the alien threat.
+- **The crisis:** The instructor activates a device that opens a portal to alien space — not to fight, but to invite the invasion. The academy is under attack. Silas must make a choice: close the portal and protect the academy, or let it open and force humanity to face the truth.
 - Silas's Neural Link is the only thing that can close the portal — but using it at maximum output will burn out his nervous system. He might survive. He might not.
 - **Tessa's choice:** Tessa refuses to let Silas do it alone. She links her Neural Link with his — two pilots, one craft, one mind. Their combined power closes the portal.
 - **The cost:** Silas survives, but his Neural Link is permanently damaged. He'll never fly at full output again. Tessa is hurt but recovers.
-- **Graduation:** Silas and Tessa graduate from Vanguard Academy. Silas is no longer the unrankable cadet — he's a hero, but one who paid a price.
+- **The reckoning:** The inner planet command is forced to acknowledge the truth. Silas stands before the academy leadership — and before the assembled cadets from all planets — and declares: "My family was betrayed. Our empire was stolen. We were cast out to the border so the truth would be forgotten. But the truth is not forgotten. It was kept alive by the people you called expendable. I am Valtieri. And I am not asking for a throne. I am taking back the empire my family built to protect you."
+- **Graduation:** Silas and Tessa graduate from Vanguard Academy. Silas is no longer the unrankable cadet — he's the heir to the Valtieri throne, and the most powerful cadet the academy has ever produced. But he's not claiming the throne yet. He has a war to fight first.
 - **Deployment:** Silas is assigned to the Vanguard Squadron — the front line. Tessa is assigned as his wingman. They deploy together.
-- **Final scene:** Silas sits in his starfighter cockpit, Neural Link spiking — but controlled, not dangerous. He's not just a variable anymore. He's part of something bigger. Tessa's voice comes over the comms: "Ready?" Silas smiles. "Let's go home."
-- **Epilogue:** Years later. Silas is a commander in the Vanguard Squadron. The war is still going — but humanity is united. The alien threat is contained, not defeated. And Silas has a new cadet who reminds him of himself — border planet, high Tactics, unrankable Neural Link. Silas smiles. The cycle continues.
+- **Final scene:** Silas sits in his starfighter cockpit, Neural Link spiking — but controlled, not dangerous. He's not just a variable anymore. He's Valtieri. He's a commander. He's part of something bigger. Tessa's voice comes over the comms: "Ready?" Silas smiles. "Let's go home."
+- **Epilogue:** Years later. Silas is a commander in the Vanguard Squadron. The war is still going — but humanity is united under the Valtieri banner. The alien threat is contained, not defeated. And Silas has a new cadet who reminds him of himself — border planet, high Tactics, unrankable Neural Link. Silas places a hand on the cadet's shoulder. "What's your name?" The cadet hesitates. "Thorne." Silas smiles. "Come with me. There's something you need to see." The cycle continues.
 
 ### Character Arcs (Book 5)
-- **Silas:** From "I need to control my power" → "My power has consequences" → "I can sacrifice for people I love" → "I can lead and unite people" → "I am not just a weapon — I am a person"
+- **Silas:** From "I need to control my power" → "My power has consequences" → "I can sacrifice for people I love" → "I can lead and unite people" → "I am Valtieri — the heir, the commander, the protector" → "I am not just a weapon — I am a person"
 - **Tessa:** From rival → teammate → partner → lover → equal in combat → Silas's anchor and his strength
 - **Physical Endurance:** Now sufficient for real combat — but the Neural Link burnout means he can't rely on his body to handle his power anymore
 - **Neural Link:** Permanently damaged — he'll never fly at full output, but he's more controlled than ever
-- **Tactics:** Now includes strategic command — Silas is a leader, not just a fighter
+- **Tactics:** Now includes strategic command and political leadership — Silas is a leader, not just a fighter, not just an heir
 
 ### Relationship Milestones (Book 5)
 - Ch 1-4: Return to academy, alien threat is public, manipulator revealed
@@ -270,10 +274,12 @@
 
 ## MULTI-SERIES UNIVERSE POSITIONING
 
-**Series 1 (Academy Arc):** Silas's story — the person who changes the academy, the war, and humanity's approach to the alien threat. Focus on character growth, relationships, academy competition.
+**Universe:** The Valtieri Empire — an ancient empire built to protect humanity from an alien threat. Founded by the Valtieri dynasty, who ruled with wisdom and sacrifice. Overthrown by an advisor who framed them for a disaster caused by the aliens. The Valtieri were exiled to the border planets, and the inner planets erased them from history. The "civil war" between inner and outer planets is a cover for the truth: the aliens are real, and the empire's founding purpose was to fight them.
 
-**Series 2 (War Arc):** Different POV characters — surviving academy grads, ground commanders. Explores the war that Silas helped start. Introduces alien civilizations, political backstory.
+**Series 1 (Vanguard):** Silas's story — the lost heir to the Valtieri throne who enters the academy, discovers his lineage, and learns to lead. Focus on character growth, relationships, academy competition, lineage discovery. Silas goes from "people as variables" → discovering he's Valtieri → claiming his name → uniting the planets against the alien threat.
 
-**Series 3 (Origins Arc):** Prequel — how the academy was founded, first contact with the alien civilization, the ancient war that the academy was built to prevent.
+**Series 2 (The War Arc):** Different POV characters — surviving academy grads, ground commanders. Explores the war that Silas helped start. Introduces alien civilizations, political backstory of the Valtieri overthrow, the true nature of the alien threat. Silas returns as a commander fighting to reclaim the empire and unite the planets.
 
-**The connecting thread:** Silas's decision in Book 5 to sacrifice his Neural Link power — an act of leadership that inspires the next generation. Series 2 characters who were influenced by Silas's example. Series 3 characters who created the academy to prevent the war Silas fought.
+**Series 3 (The Origins Arc):** Prequel — how the Valtieri Empire was founded, first contact with the alien civilization, the ancient war that the empire was built to prevent, the betrayal that led to the Valtieri exile. The advisor who overthrew the Valtieri is the same bloodline as the manipulator in Book 4. History repeats.
+
+**The connecting thread:** The Valtieri legacy — a family that ruled to protect, was betrayed, was exiled, and is now fighting to reclaim what was stolen. Silas's decision in Book 5 to sacrifice his Neural Link power is an act of Valtieri leadership: protecting others even at personal cost. Series 2 characters who were influenced by Silas's example. Series 3 characters who founded the empire that Series 1 and 2 are fighting to reclaim.
