@@ -14,9 +14,10 @@
 - `Book 1 - The Willing Sacrifice - Chapter 09.md` — WRITTEN + REVISED (~7,000 words)
 - `Book 1 - The Willing Sacrifice - Chapter 10.md` — WRITTEN + REVISED (~12,500 words)
 - `Book 1 - The Willing Sacrifice - Chapter 11.md` — WRITTEN + REVISED (~14,900 words)
-|- `Book 1 - The Willing Sacrifice - Chapter 12.md` — WRITTEN (~11,700 words)
-|- `Book 1 - The Willing Sacrifice - Chapter 13.md` — WRITTEN (~4,200 words)
-|- `Book 1 - The Willing Sacrifice - Chapter 14.md` — WRITTEN (~6,800 words)
+- `Book 1 - The Willing Sacrifice - Chapter 12.md` — WRITTEN (~11,700 words)
+- `Book 1 - The Willing Sacrifice - Chapter 13.md` — WRITTEN (~4,200 words)
+- `Book 1 - The Willing Sacrifice - Chapter 14.md` — WRITTEN (~6,800 words)
+- `Book 1 - The Willing Sacrifice - Chapter 15.md` — DRAFT WRITTEN (~1,780 words)
 
 ## Chapter Status
 | Chapter | Status | Notes |
@@ -35,7 +36,7 @@
 | 12 | ✅ Written | The Bond Declaration — Full moon, first since Victor and Amelia met. Both drawn to old clearing near northern boundary separately. Arrive at same time, bond explodes to new intensity. Hands vibrating, chest aching, physical pain of pull. Stand 20 feet apart, breathing hard, eyes locked. Aurela's voice echoes in both their minds simultaneously: "You look at you and see the only thing that will keep the dark at bay. Forgive me for using the heart as a weapon. I had no other tool left." Vision: centuries of war, separation, Hollow King feeding on isolation, Aurela's strategy — bonds as coalition not conquest. Amelia understands the vision, its meaning and history. Victor does not — sees only Amelia's reaction. Both unsure what this means for the future. End of Act I. |
 | 13 | ✅ Written | After the Moon — Victor returns to compound in a daze, Perseus sees through his "nothing happened" lie. David notices he hasn't slept. Emila finds Victor in the healing tent, sits with him — first pack member to tell him "you're carrying it alone." Meanwhile, Amelia goes home, stares at her tingling hands, thinks about Aurela's voice and Victor's gray eyes. Can't sleep — feels his presence through the bond like he's in the room with her. Walks to window, feeling recedes, knows she won't sleep until she sees him tomorrow. Close third-person intimate style. |
 | 14 | ✅ Written + Ceremony Framework | The Investigation — Victor goes to Josiah for a full history lesson on the Mate Bond (rarity, unbreakable, grows with intimacy, two-stage: Formation → Moonlit Rite ceremony). Victor is uncomfortable — this is uncontrollable, starts pulling away. Amelia talks to Emila who explains the Veil, the Hollow King, why a human was chosen. Victor and Amelia meet in the clinic for their first real conversation as bonded partners — Victor admits he doesn't know how to be close to someone, Amelia tells him he just has to try. First touch — two-stage mechanic: warmth and pulse through the thread, explicitly not until the ceremony. No deeper connection yet. David walks in on them. Ends with Perseus calling Victor to war room. |
-| 15 | Pending | |
+| 15 | ✅ Draft written | The First Attack: Marcus returns hollowed; Victor stops him; Amelia's tingling and bond pull intensify, drawing her to the compound; their touch warms the thread without opening it. |
 | 16 | Pending | |
 | 17 | Pending | |
 | 18 | Pending | |
@@ -63,12 +64,12 @@
 | 40 | Pending | |
 
 ## Current Status
-- **Date:** 2026-11-06
-- **Chapters Written:** 14 of 40
+- **Date:** 2026-11-08
+- **Chapters Written:** 15 of 40 (Chapter 15 draft)
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 - **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-- **Next:** Chapter 15 — "The First Attack" (Hollow King's first move, first hollowed warrior, Amelia holds Victor's hand, bond widens but does not open)
+- **Next:** Chapter 16 — "The Pack Reacts" (fear and disagreement spread through Blackwood; Amelia observes the pack and the weakening Veil)
