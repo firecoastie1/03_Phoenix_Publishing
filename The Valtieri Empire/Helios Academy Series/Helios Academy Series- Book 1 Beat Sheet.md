@@ -256,6 +256,7 @@ Only cadets who pass at least 2 of the 3 tests are invited. But acceptance isn't
 |---------|-------------------|---------|
 | 1 | Triad Assessment | Tactics, Physical, Neural Link tests; 2% acceptance rate |
 | 1 | Neural Link cap | System maxes at A; Silas's link exceeds maximum |
+| 1 | Academy tracks | Greens (standard), Vanguard (elite combat), Ghost (rumored off-the-books) |
 | 2 | Station Helios | Space station, border planet location, political divide visible |
 | 3 | Rating system | Neural Link %, Tactics, Physical Endurance; F→SSS scale |
 | 4 | Neural Link mechanics | 50–80% normal range; craft reacts faster than body |
