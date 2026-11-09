@@ -158,7 +158,7 @@ She looked at the blood. "Is it yours?"
 
 "No."
 
-He gave no more explanation. The stillness around him and the ache beneath her ribs filled the silence.
+He gave no more explanation. The blood on his hand and the stillness in his face told her not to press.
 
 The bound man was taken toward the healing tent. A healer guided the injured patrolman after him, one hand firm at his elbow. David followed, favoring one arm. Samuel stayed by the gate, giving orders to the guards. Everyone moved as if the compound had become a place where sudden sounds could mean danger.
 
