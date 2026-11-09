@@ -9,8 +9,8 @@ import time
 import sys
 from datetime import datetime
 
-WATCH_DIR = os.path.expanduser("F:/01_Ventures/NovelSeries")
-LOG_FILE = os.path.expanduser("F:/01_Ventures/NovelSeries/watcher.log")
+WATCH_DIR = os.path.expanduser("F:/01_Ventures/03_Phoenix Publishing/NovelSeries")
+LOG_FILE = os.path.expanduser("F:/01_Ventures/03_Phoenix Publishing/NovelSeries/watcher.log")
 PUSH_INTERVAL = 60  # seconds of no changes before pushing
 POLL_INTERVAL = 5   # seconds between checks
 GITHUB_TOKEN = os.environ.get("GITHUB_TOKEN", "")

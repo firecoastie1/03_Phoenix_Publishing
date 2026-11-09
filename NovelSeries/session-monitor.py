@@ -12,8 +12,8 @@ import time
 import sys
 import signal
 
-WATCH_DIR = os.path.expanduser("F:/01_Ventures/NovelSeries")
-LOG_FILE = os.path.expanduser("F:/01_Ventures/NovelSeries/watcher.log")
+WATCH_DIR = os.path.expanduser("F:/01_Ventures/03_Phoenix Publishing/NovelSeries")
+LOG_FILE = os.path.expanduser("F:/01_Ventures/03_Phoenix Publishing/NovelSeries/watcher.log")
 POLL_INTERVAL = 5
 PUSH_INTERVAL = 60
 HERMES_CHECK_INTERVAL = 15  # how often to check if Hermes is still running

@@ -8,8 +8,8 @@ import os
 import subprocess
 import sys
 
-WATCH_DIR = os.path.expanduser("F:/01_Ventures/NovelSeries")
-LOG_FILE = os.path.expanduser("F:/01_Ventures/NovelSeries/watcher.log")
+WATCH_DIR = os.path.expanduser("F:/01_Ventures/03_Phoenix Publishing/NovelSeries")
+LOG_FILE = os.path.expanduser("F:/01_Ventures/03_Phoenix Publishing/NovelSeries/watcher.log")
 GITHUB_TOKEN = os.environ.get("GITHUB_TOKEN", "")
 
 def log(msg):
