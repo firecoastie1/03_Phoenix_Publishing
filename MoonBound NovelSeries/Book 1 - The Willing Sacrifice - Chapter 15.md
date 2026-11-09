@@ -136,17 +136,13 @@ No one argued. They all knew Victor was speaking to the trees because there was 
 
 Amelia
 
-Emila was gathering the cups when the pain reached Amelia.
+Emila was gathering the cups when Amelia's hands began to tingle again.
 
-It was a hard pull beneath Amelia's ribs, sharp enough to make her catch the edge of the table. The cups rattled. One tipped, spilling tea across the wood.
+The sensation sharpened, spreading into her palms. She caught the edge of the table. The cups rattled. One tipped, spilling tea across the wood.
 
 Emila turned at once. "Amelia?"
 
-She pressed a hand to her chest. The ache held for one breath, then eased into a tight, unsteady thrum. It wasn't a wound. It wasn't her body. She knew that much.
-
-North.
-
-Toward the compound.
+She flexed her fingers. The bond carried no pain from Victor, no thoughts, no image. Only the familiar pull north, toward the compound.
 
 "Victor," she said.
 
