@@ -13,15 +13,17 @@
 
 ## BOOK 1: "The Arrival"
 
-**Focus:** Silas enters the academy, discovers his ability, meets Tessa, survives his first year.
+**Focus:** Silas passes the brutal Triad Assessment to enter Vanguard Academy, discovers his ability, meets Tessa, survives his first year.
 
 ### Major Plot Beats
-- Silas arrives at Vanguard Academy on Station Helios — border planet outsider in an inner-planet-dominated institution
+- **Prologue:** Silas faces the Triad Assessment on the border world of Oakhaven — three tests (Tactics, Physical Endurance, Neural Link) that determine if he's worthy of Vanguard Academy. He passes all three, but his Neural Link maxes out at A and cannot be processed. Selection board votes unanimously: Silas Thorne is invited. One of 500 cadets accepted per year.
+- Silas arrives at Vanguard Academy on Station Helios — border planet outsider in an inner-planet-dominated institution. He's assigned to his first simulation exercise. Meets Tessa Voss as his squadron partner — their immediate clash: he calculates, she trusts instinct.
 - Rating ceremony reveals his unrankable Neural Link — system caps at A; Silas's is dangerous, raw, beyond measurement
 - Neural Link incident in simulation — Silas's craft reacts INSTANTLY but his body can't handle the G-forces; near-friendly-fire with Tessa
 - Instructor Kael mentors Silas — teaches him to build Physical Endurance to survive his own power
 - Silas and Tessa develop a tactical rhythm: he calculates, she improvises; together they're effective
 - Silas begins seeing people as individuals, not variables — Tessa is the catalyst
+- Academy introduces three tracks: the Greens (standard Line Cadets — 70% of class), the Vanguard Track (hyper-competitive combat curriculum for elite pilots), and the Ghost Program (rumored off-the-books training for cadets with unusual ruthlessness or cognitive abilities)
 - Border cadet program revealed — outer planets fighting a war the inner planets deny
 - First tournament — Silas advances through Tactics, Tessa covers his Physical weakness
 - Helios Cup tournament — Silas and Tessa reach the finals together
