@@ -1,5 +1,35 @@
 # Chapter 1 — The Triad Assessment
 
+Silas Thorne had always been good at seeing things before other people did.
+
+It started when he was small — before he understood what was happening. A dropped plate. A swinging door. A ball rolling toward the street. His body moved before his brain processed the threat. His hands were already reaching before his eyes registered danger. He didn't think about it. He just reacted.
+
+His mother noticed first. She'd been hanging laundry in the courtyard of their apartment block when the line snapped — a simple metal clip failing under the wind's pressure. The laundry went flying. Her children were playing in the street below. Silas had been sitting on the steps, reading. He didn't look up. He just stood, grabbed his younger sister by the shoulder, and pulled her backward just as the laundry landed exactly where she'd been standing.
+
+*How did you see that coming?* his mother had asked, heart hammering.
+
+Silas had shrugged. *I just knew.*
+
+He didn't just know. He *felt* it. Like a pressure in his chest, like the air changing before a storm breaks. He could feel things before they happened. It was never clear — just a sense, a whisper. And it was always right.
+
+By the time he was twelve, he'd learned not to talk about it. People on Oakhaven didn't like things they couldn't explain. Oakhaven was a border world — distant, cold, agricultural. The soil was poor, the weather was harsh, and the Empire barely acknowledged its existence. The people who lived here worked hard and died young. They didn't have time for mysteries.
+
+Silas had a sister — Mira, twelve years younger, with her mother's laugh and his stubborn streak. And a father — Tomas, who worked the fields from sunrise to sunset and came home with dirt under his fingernails and a back that ached by evening. His mother — Elena — ran a small greenhouse operation that supplied half the vegetables on Oakhaven. They were simple people. Good people. Not rich. Never rich. But proud.
+
+The Triad Assessment changed everything.
+
+Every five years, Vanguard Academy sent a selection team to each of the Empire's major worlds. They brought the Triad Assessment — three tests. Tactics, Physical Endurance, and Neural Link. The winner earned a place at Vanguard Academy on Station Helios. One of five hundred spots. Two percent acceptance rate. A ticket out of whatever world you were born on.
+
+For Silas, it was more than a test. It was a way.
+
+His parents had been saving for three years to send him to Oakhaven's assessment center. The travel costs alone had nearly broken them. But Elena had sold half her greenhouse stock. Tomas had taken extra shifts repairing the irrigation systems. They'd done it. They'd sent Silas to the assessment center on a Tuesday morning, packed him a lunch he wouldn't eat, and told him to do his best.
+
+*You're going to do better than your best,* his mother had said, kissing him on the forehead. *You always have.*
+
+He believed her.
+
+---
+
 The first test was strategy.
 
 Silas Thorne sat in a windowless room on the border world of Oakhaven, his palms flat on a cold metal table, staring at a holographic display that showed an entire battlefield spreading out like a cracked mirror. Three hundred enemy vessels. Twelve of his own. Supply lines cut. Enemy fleet advancing from the eastern quadrant. Reinforcements impossible.
