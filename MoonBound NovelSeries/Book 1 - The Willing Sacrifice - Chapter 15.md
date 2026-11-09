@@ -32,6 +32,8 @@ Perseus folded the map. "I'll send a second team to watch the road."
 
 Victor was already moving.
 
+He detoured through his quarters, unlocked the bottom drawer, and buckled the field knife to his belt before heading to the gate.
+
 They rode north with Samuel in front, David at Victor's shoulder and two warriors behind them. The morning had turned cold. Rain clung to the fir branches and shook loose whenever a horse brushed past. None of them spoke. Victor listened for the forest to give them something: a call, a snapped twig, the sound of another rider trying to get their attention.
 
 The forest gave them nothing.
