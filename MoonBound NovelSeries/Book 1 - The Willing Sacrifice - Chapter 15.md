@@ -14,7 +14,7 @@ Samuel was there too. He had come in from the northern patrol, still wearing his
 
 Victor's eyes went to the radio. "Any word?"
 
-Samuel's jaw tightened. "They found Marcus."
+Samuel's jaw tightened. "They found Marcus at the old marker line."
 
 For a moment the room narrowed to that name.
 
@@ -22,11 +22,11 @@ Marcus had been gone for weeks. No body, no blood, no tracks. Victor had forced 
 
 "When?"
 
-"An hour ago. They were checking the old marker line when they found him. One of them heard movement in the trees. Then the radio cut out." Samuel glanced at the set. "We got one transmission after that. No words. Just breathing."
+"An hour ago. We got one transmission after they found him. No words. Just breathing. Then the radio cut out." Samuel glanced at the set.
 
 David stopped pacing. "We should have gone sooner."
 
-"We are going now," Victor said. "Samuel, take us to the last marker. Perseus, keep the compound on alert. No one leaves alone."
+"Then we find them," Victor said. "Samuel, take us to the last marker. Perseus, keep the compound on alert. No one leaves alone."
 
 Perseus folded the map. "I'll send a second team to watch the road."
 
@@ -58,7 +58,7 @@ A voice came from beyond the trees.
 
 "Alpha?"
 
-One of the missing patrolmen stepped into view. His face was pale beneath the mud. He held his left arm against his ribs, though there was no blood on his sleeve.
+One of the search patrolmen stepped into view. His face was pale beneath the mud. He held his left arm against his ribs, though there was no blood on his sleeve.
 
 Victor crossed to him. "Where's the rest of your patrol?"
 
