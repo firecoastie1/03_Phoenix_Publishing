@@ -10,19 +10,19 @@ Samuel was there too. He had come in from the northern patrol, still wearing his
 
 "What happened?" Victor asked.
 
-"The north watch missed two check-ins," Perseus said. "The patrol sent to look for them came back with one man missing."
+"The north watch missed two check-ins," Perseus said. "The search patrol hasn't returned."
 
-Victor's eyes went to the radio. "Who?"
+Victor's eyes went to the radio. "Any word?"
 
-Samuel's jaw tightened. "Marcus."
+Samuel's jaw tightened. "They found Marcus."
 
 For a moment the room narrowed to that name.
 
 Marcus had been gone for weeks. No body, no blood, no tracks. Victor had forced himself to treat the silence as a fact, not an answer. Now the name sat between them again, heavier than it had before.
 
-"When did they lose him?"
+"When?"
 
-"An hour ago. They were checking the old marker line. One of them heard movement in the trees. Then the radio cut out." Samuel glanced at the set. "We got one transmission after that. No words. Just breathing."
+"An hour ago. They were checking the old marker line when they found him. One of them heard movement in the trees. Then the radio cut out." Samuel glanced at the set. "We got one transmission after that. No words. Just breathing."
 
 David stopped pacing. "We should have gone sooner."
 
