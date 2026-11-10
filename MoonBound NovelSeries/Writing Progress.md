@@ -18,6 +18,7 @@
 - `Book 1 - The Willing Sacrifice - Chapter 13.md` — WRITTEN (~4,200 words)
 - `Book 1 - The Willing Sacrifice - Chapter 14.md` — WRITTEN (~6,800 words)
 - `Book 1 - The Willing Sacrifice - Chapter 15.md` — DRAFT WRITTEN (~1,780 words)
+- `Book 1 - The Willing Sacrifice - Chapter 18.md` — WRITTEN (~1,850 words)
 
 ## Chapter Status
 | Chapter | Status | Notes |
@@ -65,7 +66,7 @@
 
 ## Current Status
 - **Date:** 2026-11-09
-- **Chapters Written:** 17 of 40 (Ch 1–17)
+- **Chapters Written:** 18 of 40 (Ch 1–18)
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
