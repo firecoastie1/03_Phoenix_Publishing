@@ -45,7 +45,7 @@ She didn't knock. She didn't call out. She just pushed the door open and walked 
 
 David was there. Josiah was there. Emila was there. And when Amelia walked in, all of them went quiet.
 
-He noticed that. He noticed the way their eyes shifted toward her, the way the room seemed to rearrange itself around her presence. It was the same reaction he'd seen a hundred times, the pack always noticed when she was near. Not because she was loud or dramatic. Because the bond hummed in his chest whenever she was close, and the pack could feel it.
+He noticed that. He noticed the way their eyes shifted toward her, the way the room seemed to rearrange itself around her presence. It was the same reaction he'd seen a hundred times — his own mood shifting the moment she walked in, the way his guard came down. And the pack noticed it too.
 
 "You're late," he said.
 
