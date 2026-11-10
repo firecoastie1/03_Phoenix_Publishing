@@ -19,7 +19,8 @@
 - `Book 1 - The Willing Sacrifice - Chapter 14.md` — WRITTEN (~6,800 words)
 - `Book 1 - The Willing Sacrifice - Chapter 15.md` — DRAFT WRITTEN (~1,780 words)
 - `Book 1 - The Willing Sacrifice - Chapter 18.md` — WRITTEN + REVISED (~1,850 words)
-|- `Book 1 - The Willing Sacrifice - Chapter 19.md` — WRITTEN (~1,640 words)
+- `Book 1 - The Willing Sacrifice - Chapter 19.md` — WRITTEN (~1,640 words)
+|- `Book 1 - The Willing Sacrifice - Chapter 20.md` — WRITTEN (~1,150 words)
 
 ## Chapter Status
 | Chapter | Status | Notes |
@@ -67,11 +68,11 @@
 
 ## Current Status
 - **Date:** 2026-11-09
-- **Chapters Written:** 19 of 40 (Ch 1–19)
+- **Chapters Written:** 20 of 40 (Ch 1–20)
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 - **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-- **Next:** Chapter 20 — Amelia's research reveals the pattern: every mate bond formed correlates with a Hollow King strike
+- **Next:** Chapter 21 — The Second Attack (Hollow King strikes inside the compound)
