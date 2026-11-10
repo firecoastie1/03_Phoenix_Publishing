@@ -19,7 +19,7 @@ She picked up the last record — not from the archives, but from her own life. 
 
 The pattern was clear. Too clear.
 
-Every time a Mate Bond was formed, the Hollow King struck harder. Not the same day. Not the next week. But within months, always within months, the Hollow King came for them.
+Every time a Mate Bond was formed, the Hollow King struck harder. Not the same day. Not the next week. But within months — always within months — he came for them.
 
 It wasn't coincidence. It couldn't be.
 
