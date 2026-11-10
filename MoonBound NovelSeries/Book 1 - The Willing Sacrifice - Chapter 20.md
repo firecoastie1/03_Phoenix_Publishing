@@ -9,7 +9,7 @@ She had been reading for three hours. Her coffee had gone cold. Luna was asleep 
 
 The pattern was there. She could feel it in the lines she'd highlighted, in the marginalia she'd written in her own cramped handwriting, in the way her pulse was picking up even though her brain kept telling her to stay calm, to be methodical, to not jump to conclusions.
 
-She picked up one of the historical records, a scanned page from an archive she'd contacted through a mentor in Edinburgh. The text was in Latin, but she'd translated it weeks ago. It described a Mate Bond forming in the Scottish Highlands, 1642. And three months later, the same village reported a massacre, bodies found hollowed, eyes empty, bodies breathing.
+She picked up one of the historical records, a scanned page from an archive she'd reached through a mentor in Edinburgh. The text was in Latin, but she'd translated it weeks ago. It described a Mate Bond forming in the Scottish Highlands, 1642. And three months later, the same village reported a massacre, bodies found hollowed, eyes empty, bodies breathing.
 
 She picked up another record. Italian Alps, 1789. Mate Bond formed in a small mountain village. Five months later, the same village burned. All inhabitants gone. No bodies. No trace.
 
