@@ -79,9 +79,7 @@ When the war room emptied, Victor stood alone at the table, staring at the map a
 
 AMELIA
 
-Amelia's cottage was quiet in the morning.
-
-Not the heavy, oppressive quiet that had settled over her for weeks. The quiet of an empty house, an empty bed, an empty life. This was different. This was the quiet of a woman who had slept through the night for the first time in months and woken up without that familiar ache in her chest.
+Amelia's cottage was quiet in the morning. This was not the heavy, oppressive quiet that had settled over her for weeks — the quiet of an empty house, an empty bed, an empty life. This was different. This was the quiet of a woman who had slept through the night for the first time in months and woken up without that familiar ache in her chest.
 
 She made coffee. She sat at her kitchen table with her research notes. She looked at the shelf where she'd placed her grandmother's packet, the one he'd given her, the one that smelled like fresh pancakes and bacon and her grandmother's kitchen. She had put it there yesterday, after the kitchen scene, after he'd offered her a room and looked at her mouth and not looked away.
 
