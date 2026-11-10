@@ -97,4 +97,4 @@ She nodded. Her hands were still. Her face was steady. But he could feel the bon
 
 He wanted to tell her to stop worrying. He wanted to tell her she was safe. But he couldn't. Because she wasn't safe. None of them were. And saying it would be a lie.
 
-Instead, he said nothing. He just nodded once, and turned back to the map, and tried to figure out what to do next.
+He said nothing. He just nodded once, turned back to the map, and tried to figure out what to do next.
