@@ -2,11 +2,9 @@
 
 Amelia
 
-She had come to the compound after midnight, when sleep wouldn't come and her cottage felt too far away from him. But the bond had pulled her, and she had followed it without thinking, wrapped in a coat, walking the dark path between her door and his gate. She'd told herself she needed his advice, needed to ask him something about a recipe, anything to justify the walk. By the time she reached his quarters, she couldn't remember what she'd wanted to say. He hadn't been there. His door was shut, and she could hear the quiet sound of him breathing on the other side, and she had turned around and gone back to her cottage without knocking, without saying a word.
-
-Now it was dawn, and she was back in the compound, and the bond was humming in her chest, and she couldn't pretend she hadn't been thinking about it all night.
-
 The kitchen at dawn smelled like burnt toast and bad decisions.
+
+She couldn't sleep. The bond hummed in her chest, pulling her toward the compound, so she walked over, wrapped in a coat, and found herself in the kitchen at five. She had no excuse. No reason. Just a pull she couldn't ignore. Now it was morning, and the tea was cold and she was standing here, and the bond was humming louder than ever.
 
 She stood at the counter with a kettle she didn't need to boil, a mug she didn't need to fill, and a cup of tea that had gone cold three minutes ago. The compound's kitchen was too clean, too organized, too much like a place someone who didn't cook came to make other people feel welcome. There were knives on a magnetic strip, perfectly aligned. Spices in labeled jars. A stand mixer she would probably never use.
 
