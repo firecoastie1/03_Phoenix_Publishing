@@ -1,6 +1,8 @@
 Chapter 19
 The Border Dispute
 
+VICTOR
+
 The bond pulled him before he even opened his eyes.
 
 It wasn't a sound, or a word, or an image. It was warmth, a steady, low hum, like a second heartbeat in his chest. Amelia was awake. He didn't know how he knew, but he knew, and it made something loosen in his ribs that had been knotted tight for weeks.
@@ -74,6 +76,8 @@ The nod wasn't angry. It wasn't accusatory. But it was doubt. And it was the kin
 When the war room emptied, Victor stood alone at the table, staring at the map, and tried to figure out what Perseus meant.
 
 ---
+
+AMELIA
 
 Amelia's cottage was quiet in the morning.
 
