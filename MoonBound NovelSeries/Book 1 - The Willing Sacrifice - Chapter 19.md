@@ -39,7 +39,7 @@ Perseus spread the map on the table and pointed at the southern border. "They're
 
 "David's men are there?" Victor said.
 
-"Yes," David said. "But they're light on numbers. If Hanley pushes harder, we'll need a senior Alpha to take command."
+"Yes," David said. "But they're light on numbers. If Hanley pushes harder, we'll need a senior warrior to take command."
 
 "I'll go," Victor said.
 
