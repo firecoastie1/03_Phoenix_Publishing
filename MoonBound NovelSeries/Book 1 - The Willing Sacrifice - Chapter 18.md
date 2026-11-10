@@ -126,7 +126,7 @@ He didn't knock. He didn't call out. He just climbed the stairs and walked onto 
 
 They sat in silence for a long time. The bond was steady between them, warm and present, like a wire pulled taut but not broken.
 
-Amelia closed her eyes. She let her hands rest on her knees. She let her breathing slow. She thought about trust. She thought about how much she trusted him, not with the bond, not with anything magical or cosmic or fated, but with the small, human things. The way he had said her cat's name without hesitation. The way he had looked at the wall when he talked about his father. The way he had looked at her mouth and not looked away until the world interrupted.
+Amelia closed her eyes. She let her hands rest on her knees. She let her breathing slow. She thought about why she trusted him. The way he'd said her cat's name without hesitation — like Luna was part of her and part of him, and he'd accept both without question. The way he'd looked at the wall when he talked about his father — because he was letting her see the things he couldn't say out loud. The way he'd looked at her mouth and not looked away until the world interrupted — because he wanted her, fully, and hadn't even tried to hide it.
 
 She pushed something through the bond.
 
