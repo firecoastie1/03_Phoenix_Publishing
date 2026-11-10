@@ -59,7 +59,7 @@ Perseus rolled up the map and stood. "I leave by noon."
 
 David nodded. Emila packed supplies. Josiah disappeared without a word.
 
-But Perseus didn't move yet. He walked over to Victor and leaned in close, his voice low enough that no one else could hear.
+But Perseus didn't head for the door. He walked over to Victor and leaned in close, his voice low enough that no one else could hear.
 
 "You're distracted," he said.
 
