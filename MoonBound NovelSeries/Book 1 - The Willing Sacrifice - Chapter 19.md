@@ -137,4 +137,4 @@ The horizon was flat and empty. He couldn't see Perseus. He couldn't see the sou
 
 The bond hummed. He closed his eyes. He tried to steady himself.
 
-But the hum didn't stop. It didn't even fade. It stayed steady and warm, like a second heartbeat in his chest, and he wondered if this was what it felt like to be alive.
+But the hum didn't stop. It didn't even fade. It stayed steady and warm, like a second heartbeat in his chest and he wondered if this was what it felt like to be alive.
