@@ -37,7 +37,7 @@ And now he was testing the northern boundary. Pushing. Looking for weakness.
 
 Perseus spread the map on the table and pointed at the southern border. "They're not attacking. Not yet. They're probing. Testing our response time. How fast we mobilize. Whether we fight back or hold the line."
 
-"David's men are there," Victor said.
+"David's men are there?" Victor said.
 
 "Yes," David said. "But they're light on numbers. If Hanley pushes harder, we'll need a senior Alpha to take command."
 
