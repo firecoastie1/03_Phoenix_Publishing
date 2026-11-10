@@ -93,7 +93,7 @@ He was furious. Not at Amelia. Never at her. He was furious at the situation, at
 
 "You did the right thing," he said again, firmer this time. "Amelia."
 
-She nodded. Her hands were still. Her face was steady. But he could feel the bond hum in his chest, not warmth, not pulse, just the steady presence of her, and the tension in her chest, and the quiet fear she wasn't saying out loud.
+She nodded. Her hands were still. Her face was steady. But he could read the tension in her eyes, the quiet fear she wasn't saying out loud.
 
 He wanted to tell her to stop worrying. He wanted to tell her she was safe. But he couldn't. Because she wasn't safe. None of them were. And saying it would be a lie.
 
