@@ -54,13 +54,13 @@ The dream broke.
 
 Victor woke on the floor of his quarters.
 
-His head was on the map, his neck ached, his hands were cold. The first thing he thought was: *Aurela lies.*
+His head was on the map spread across his desk, his neck ached, his hands were cold. The first thing he thought was: *Aurela lies.*
 
 The second thing he thought was: *I do not believe her. Not all of it.*
 
 The third thing he thought was: *I have to see her. I need to see her face.*
 
-He stood up so fast his elbow knocked the map off the table. Papers scattered. He did not pick them up. He grabbed his jacket, threw it on, and walked out of the war room without checking who was still there. David was in the hallway, eyes half-closed, probably just sitting on a bench trying to stay awake. Perseus was asleep in the far corner, one arm draped over a stack of supply reports. Victor did not stop. He walked the compound at night, boots heavy on the packed earth, and the bond hummed between him and Amelia like a wire pulled taut.
+He stood up so fast his chair scraped against the floor. He didn't pick up the scattered papers. He grabbed his jacket, threw it on, and walked out of his quarters without checking who was still there. He walked the compound at night, boots heavy on the packed earth, and the bond hummed between him and Amelia like a wire pulled taut.
 
 She was in the guest quarters at the end of the east wing. He stopped outside her door. He did not knock. He stood there, listening to the silence, feeling the hum in his chest grow stronger, and he thought: *She is right there. I could go in. I could talk to her. I could tell her what I saw. I could tell her what she means.*
 
