@@ -13,7 +13,7 @@ It wasn't a horn or a shout. It was the way the air changed, a pressure drop, li
 
 "I feel it too," she said quietly.
 
-Amelia didn't know what it was at first. But then she felt it, a sharp, cold pain in her chest, like something vital had been torn out. Not hers. Someone else's. She knew that because it hit her through the bond, like a wave crashing into her from the other side of the world.
+She didn't know what it was at first. But then she felt it — a sharp, cold pain in Victor's distress hitting her through the bond, like a wave crashing into her from the other side of the compound. Someone was hurt. Someone close. She knew that because she could feel his reaction to it, and she just knew.
 
 She didn't know who. She didn't need to. She just knew.
 
