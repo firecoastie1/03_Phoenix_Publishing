@@ -46,7 +46,7 @@ Victor's eyes went to hers immediately. Not the tea. Not the room. Luna.
 
 "Your cat."
 
-"She has a name. And she's not a pet. She's a cat." She set the mug down on the counter and turned to face him fully. "She stays where she's safe. If I move to the compound, she comes with me. If she doesn't come, I don't go."
+"She has a name. And she's not a pet. She's a cat." She set the mug down on the counter and turned to face him fully. "She stays where she's safe. If I move to the compound, she comes with me. If she doesn't come, I don't come."
 
 Victor was quiet. He studied her face like he was trying to read something he couldn't quite see. Then he nodded.
 
