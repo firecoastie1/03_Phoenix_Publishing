@@ -134,4 +134,6 @@ He didn't say anything. He didn't need to. He just held her hand, and the silenc
 
 They sat on the roof until the stars came out. Neither of them said anything. They just sat there, two people who were suddenly, terrifyingly close.
 
-And when she went back inside, she didn't close her eyes for the first time in weeks and think about being alone.
+He stood first. Didn't say goodbye. Just nodded, and walked down the stairs, and she stood there alone until his footsteps faded into the night.
+
+When she went back inside, she didn't close her eyes for the first time in weeks and think about being alone.
