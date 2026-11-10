@@ -73,7 +73,7 @@ Perseus watched him for a long moment. Then he nodded once and turned away.
 
 The nod wasn't angry. It wasn't accusatory. But it was doubt. And it was the kind of doubt that grew in the quiet, in the moments between words, in the spaces where a man was supposed to be certain and instead was just uncertain.
 
-When the war room emptied, Victor stood alone at the table, staring at the map, and tried to figure out what Perseus meant.
+When the war room emptied, Victor stood alone at the table, staring at the map and trying to figure out what Perseus meant.
 
 ---
 
