@@ -38,7 +38,7 @@ The images shifted again. Bonds connecting the packs like threads of light, form
 
 She pointed at him. At his chest.
 
-"Your bond to Amelia is the first bridge. A human and a shifter. They should not be connected. They cannot be. And yet they are. The Hollow King will come for her. He will come for you. He will test the bond. He will try to make you doubt it. And you must not doubt. Not because the bond is magic. Because the bond is choice. You chose her. Not the Moon Goddess. You. That is what makes it strong. That is what makes it a weapon."
+"The Hollow King will come for her. He will come for you. He will test the bond. He will try to make you doubt it. And you must not doubt. Not because the bond is magic, but because the bond is a choice, and you chose her. Not the Moon Goddess. You. That is what makes it strong. That is what makes it a weapon."
 
 The light pulsed. Victor felt his heartbeat rise.
 
@@ -52,9 +52,9 @@ The dream broke.
 
 ---
 
-Victor woke on his floor.
+Victor woke on the floor of his quarters.
 
-He had fallen asleep in the war room again. The map was spread across the table. His head was on his arms. His neck ached. His hands were cold. The first thing he thought was: *Aurela lies.*
+He had fallen asleep in the war room again. His head was on the map, his neck ached, his hands were cold. The first thing he thought was: *Aurela lies.*
 
 The second thing he thought was: *I do not believe her. Not all of it.*
 
