@@ -13,9 +13,7 @@ It wasn't a horn or a shout. It was the way the air changed, a pressure drop, li
 
 "I feel it too," she said quietly.
 
-She didn't know what it was at first. But then she felt it — an off feeling in the air, heavy and wrong, like the moment before a storm breaks. She knew something had happened. She just knew.
-
-She didn't know who. She didn't need to. She just got up and ran toward the healing tent.
+She didn't know what had happened, but she didn't need to. She just got up and ran toward the healing tent.
 
 ---
 
