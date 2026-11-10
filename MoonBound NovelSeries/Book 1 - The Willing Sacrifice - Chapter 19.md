@@ -53,7 +53,7 @@ No one answered immediately. Perseus looked at him.
 
 Victor sat back in his chair and nodded. It was the right call. It was the responsible call. But it didn't stop something cold from opening in his chest, because the edges felt important now. The bond had made him hyper-aware of everything outside his immediate circle. He felt the pack's tension like pressure in his skull. He felt David's need to act, Emila's worry, Josiah's quiet calculation. He felt Perseus's certainty.
 
-And he felt Amelia. Somewhere, miles away, she was waking up, and the bond hummed like a second heartbeat in his chest, and he wondered if she could feel all of it: the war room, the map, the pressure, the way he kept looking at the southern border like it was a threat he couldn't name.
+And he felt Amelia. Somewhere down the road, she was waking up, and the bond hummed like a second heartbeat in his chest, and he wondered if she could feel all of it: the war room, the map, the pressure, the way he kept looking at the southern border like it was a threat he couldn't name.
 
 Perseus rolled up the map and stood. "I leave by noon."
 
