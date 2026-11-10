@@ -51,6 +51,28 @@ Read the series bible. Cross-reference every fact in the chapter against the bib
 
 5. **Character knowledge** — Does the POV character use terms they wouldn't know? (Amelia: human-limited until Ch 9 Josiah introduces Mate Bond/pack/Veil. After Ch 9, she can use those terms naturally.)
 
+### Phase 1b: Internal Logic & Arithmetic Consistency
+
+These are not continuity errors against the bible — they are contradictions *within* the chapter itself or across chapters. The reader will not find the source of the problem; they will just feel something is wrong and lose trust.
+
+25. **Arithmetic contradictions** — Check all numerical relationships for self-consistency. Examples: if a character is 12 and another is 5, the age gap is 7, not 12. If a child wears boots that are one size too big, they are a hand-me-down or from someone else — they did not outgrow them last spring. If the chapter says "three days later," the timeline must support that span. Flag any math that does not add up.
+
+26. **Trait inheritance logic** — When a passage attributes a character's trait to a source, verify it is plausible. A child does not get traits *from* their sibling — traits come from parents or environment. If you say "she got her stubborn streak from her brother," flag it. The trait must come from a parent, grandparent, or life experience. If both siblings share a trait, state they share it — do not imply one inherited it from the other.
+
+27. **Redundant information** — Flag any fact stated twice in close proximity. If a character's age is stated in one paragraph and then repeated in the next ("He was twelve" followed by "By the time he was twelve"), the second instance adds nothing and slows the read. If a physical description appears twice in the same scene (e.g., describing a character kneeling on the floor in one paragraph and then again in the next paragraph with nearly identical details), keep one and cut the other.
+
+28. **Name-to-world fit** — Flag place names that contradict the world description. A cold, harsh, industrial border world named "Oakhaven" (which sounds warm and peaceful) may be intentional irony — flag it for the author to decide rather than auto-correcting. However, if a name is used inconsistently (called "Oakhaven" in one place and described as if it were a completely different type of settlement), flag the mismatch.
+
+29. **Fragment grammar** — Flag sentence fragments that masquerade as complete sentences. "Silas's father — Tomas, who worked the fields" is a fragment: the subject "Silas's father" has no verb before the em-dash clause takes over. Fix to: "Silas's father, Tomas, worked the fields" or "Silas had a father — Tomas, who worked the fields."
+
+### Phase 1c: Scene-Space Continuity
+
+### Phase 1c: Scene-Space Continuity
+
+30. **Cross-chapter transition bridge** — If Chapter N-1 ends with Character A and Character B together in a location, Chapter N must establish where they are before splitting them or moving them. There must be a bridge line — even a short one like "She came with him" — that explains how Character B arrives at a new location. Without it, the reader sees Character B appear in a new place with no explanation, which breaks immersion.
+
+31. **Spatial impossibility** — A character cannot look *through* a barrier (a flap, a window, a crack) and then *enter* past the same barrier while still looking through it. If Victor sees Amelia "through the flap," the flap is still between him and her. He cannot simultaneously look through the flap and duck under it. The action must happen in one direction: observe from outside → act. If the scene describes the same observation from two vantage points (seeing through the flap, then entering and seeing again with identical details), collapse into one description.
+
 ### Phase 2: POV and Perspective Integrity
 
 6. **Close third-person discipline** — Is the chapter inside the POV character's head, or does it drift into omniscient narration? Flag any paragraph that describes a character from the outside when it should be from the inside.
@@ -110,9 +132,39 @@ Read the series bible. Cross-reference every fact in the chapter against the bib
 
 21. **Name repetition within a paragraph** — Once a character is named, subsequent references should use pronouns or descriptors. Flag paragraphs where the same name appears more than twice.
 
-### Phase 6: Output the Report
+### Phase 5b: Sensory Density & Reader Immersion
 
-22. **Produce a structured report** with these sections:
+22. **Opening scene sensory grounding** — The first 3–5 lines must establish WHO is WHERE and WHAT is happening through concrete sensory detail, not declarative summary. Check that the opening includes: environmental textures (what surfaces, materials, lighting look like), specific character appearances (not just "she was tall" but what she was wearing, her posture, distinguishing features), and at least one active physical action. If the opening reads as a catalogue or tells rather than shows, flag it.
+
+23. **Scene-level detail density** — Every scene, not just the opening, must paint a concrete picture in the reader's head. Check each scene for:
+   - **Environmental specifics** — What kind of room/street/building is this? Materials, sounds, smells, lighting. Not "it was cold" but "rusted metal clip," "cold concrete steps," "damp earth."
+   - **Character specifics** — Ages (explicitly stated, not implied), clothing details, physical proportions, distinguishing features. Not "the kids were playing" but "three kids no more than ten years old, in patched-and-faded-but-clean clothes."
+   - **Somatic/internal mapping** — When a character has a physical or emotional reaction, describe what it *feels like in the body*: pressure in the chest, skin prickling, breath catching, muscles tensing. Not just "he reacted" but the sequence of sensation before cognition.
+   - **Action specifics** — Physical details of movement and impact: boots scraping, splash of water, weight of cotton hitting pavement, a hand closing. Not "she grabbed her" but the mechanics of it.
+   If a scene reads as summary (telling what happened) rather than experience (showing what it was like to be there), flag it as MEDIUM. Scenes that are 70%+ summary without sensory anchors accumulate reader disengagement.
+
+24. **"Wanting more" check** — Read the chapter as an outsider. After each major section, ask: does this leave me wanting to keep reading because I want to know what happens next, or does it leave me wishing it had given more detail? Flag sections where the hook is purely conceptual ("this character is special" without showing what that feels like) rather than experiential ("I want to see her do this").
+
+### Phase 6: Reader Experience Pass
+
+*This is a free-form narrative read-through, not a checklist. Read the chapter once from beginning to end as an outside reader with zero context. Report section-by-section what you experienced.*
+
+25. **Read the entire chapter in one pass.** Do not stop to fix or analyze line-by-line. After completing the read, write a section-by-section commentary:
+
+   For each major section (opening, each test/scene, the ending):
+   - What worked emotionally or narratively
+   - What felt summarized instead of experienced
+   - What left you with questions vs. what left you with details
+   - Whether the pacing felt right or rushed/stretched
+   - Whether scenes that should be vivid feel thin, and whether sections that should be tight feel padded
+
+   Report format: **"[Section name]: [What worked] / [What was thin or rushed] / [What the reader needs more of]."**
+
+26. **The blank-filling rule:** When the writer is vague, the reader's mind fills in blanks — and those blanks are assumptions, not the writer's vision. Specific details are the reader's guardrails: "A metal clip gave way with a sharp crack" tells the reader exactly what happened. "The line snapped" leaves the reader guessing, and their guess may contradict the intended scene. Flag any section where the reader is told *what* happened but not shown *how* — the mechanics, textures, and physical specifics that turn a plot point into a scene. *User preference: the reader should never have to imagine details that the writer already knows. Always specify.*
+
+### Phase 7: Output the Report
+
+27. **Produce a structured report** with these sections:
 
 ```
 ## Chapter Stress-Test Report: [Chapter X]
@@ -186,6 +238,10 @@ Mechanical issues (knowledge bleed, duplicate content, unattributed dialogue) sh
 ### Confusing this with concept-stress-test
 
 `concept-stress-test` evaluates a creative concept against genre complaint patterns BEFORE drafting. This skill evaluates a finished chapter against the series bible, continuity, and reader traps AFTER drafting. They serve different phases.
+
+### Spatial impossibility in scene direction
+
+When a character observes another through a barrier (a flap, a window, a crack), the barrier must still be between them. If the scene then has the observer enter past the same barrier, the observation must happen before the entry — not after. A character cannot look through a flap and then duck under it while still looking through it. The action must flow in one direction: observe from outside → act. If the scene describes the same observation from two vantage points (seeing through a barrier, then entering and seeing again with identical details), collapse into one description.
 
 ## Verification
 
