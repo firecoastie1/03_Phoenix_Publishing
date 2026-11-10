@@ -52,7 +52,7 @@ The dream broke.
 
 ---
 
-Victor woke on the floor of his quarters.
+Victor woke in his chair.
 
 His head was on the map spread across his desk, his neck ached, his hands were cold. The first thing he thought was: *Aurela lies.*
 
@@ -60,13 +60,13 @@ The second thing he thought was: *I do not believe her. Not all of it.*
 
 The third thing he thought was: *I have to see her. I need to see her face.*
 
-He stood up so fast his chair scraped against the floor. He didn't pick up the scattered papers. He grabbed his jacket, threw it on, and walked out of his quarters without checking who was still there. He walked the compound at night, boots heavy on the packed earth, and the bond hummed between him and Amelia like a wire pulled taut.
+He stood up so fast his chair scraped against the floor. He didn't pick up the scattered papers. He grabbed his jacket, threw it on, and walked out of his quarters. He walked the edge of the territory, past the boundary stones, and the bond hummed between him and Amelia like a wire pulled taut.
 
-She was in the guest quarters at the end of the east wing. He stopped outside her door. He did not knock. He stood there, listening to the silence, feeling the hum in his chest grow stronger, and he thought: *She is right there. I could go in. I could talk to her. I could tell her what I saw. I could tell her what she means.*
+She was at her cottage. He stopped outside her door. He did not knock. He stood there, listening to the silence, feeling the hum in his chest grow stronger, and he thought: *She is right there. I could go in. I could talk to her. I could tell her what I saw. I could tell her what she means.*
 
 But he did not knock. He did not go in. He turned and walked away.
 
-His quarters were cold. The fire in the hearth was dead. He sat on the edge of his bed, pressed his palms flat against his knees, and closed his eyes.
+He walked back through the trees to the compound. His quarters were cold. The fire in the hearth was dead. He sat on the edge of his bed, pressed his palms flat against his knees, and closed his eyes.
 
 *The first bridge is always the hardest.*
 
