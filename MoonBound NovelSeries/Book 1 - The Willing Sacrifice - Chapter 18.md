@@ -2,7 +2,7 @@
 
 Amelia
 
-She had come to the compound after midnight, when sleep wouldn't come and her cottage felt too far away from him. Not his body, he was in the compound, wherever he was. But the bond had pulled her, and she had followed it without thinking, wrapped in a coat, walking the dark path between her door and his gate. She'd told herself she needed his advice, needed to ask him something about a recipe, anything to justify the walk. By the time she reached his quarters, she couldn't remember what she'd wanted to say. He hadn't been there. His door was shut, and she could hear the quiet sound of him breathing on the other side, and she had turned around and gone back to her cottage without knocking, without saying a word.
+She had come to the compound after midnight, when sleep wouldn't come and her cottage felt too far away from him. But the bond had pulled her, and she had followed it without thinking, wrapped in a coat, walking the dark path between her door and his gate. She'd told herself she needed his advice, needed to ask him something about a recipe, anything to justify the walk. By the time she reached his quarters, she couldn't remember what she'd wanted to say. He hadn't been there. His door was shut, and she could hear the quiet sound of him breathing on the other side, and she had turned around and gone back to her cottage without knocking, without saying a word.
 
 Now it was dawn, and she was back in the compound, and the bond was humming in her chest, and she couldn't pretend she hadn't been thinking about it all night.
 
