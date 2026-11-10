@@ -7,7 +7,7 @@ She was in the compound when it happened.
 
 Not by invitation. Not by plan. She'd come to return something, one of her herbal notes that Victor had picked up in the war room weeks ago. She didn't even remember why she'd thought to bring it back. Maybe because she'd noticed he'd been using it as a bookmark for his patrol reports. Maybe because it felt like a small, stupid thing that made her feel useful.
 
-She was sitting in the healing tent, talking to Emila about wound care, when the alarm sounded.
+She was sitting in the healing tent talking to Emila about wound care when the alarm sounded.
 
 It wasn't a horn or a shout. It was the way the air changed, a pressure drop, like the moment before a storm. Emila stopped mid-sentence. Her head tilted. Her eyes went wide.
 
