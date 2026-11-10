@@ -43,7 +43,7 @@ The war room was quiet when Amelia walked in.
 
 She didn't knock. She didn't call out. She just pushed the door open and walked in like she had every right to be there, because she did. She had earned the right to be in this room months ago, when she'd looked at him across the clearing and told him she didn't know what was happening to her, but she wasn't going anywhere.
 
-David was there. Perseus was there. Josiah was there. Emila was there. And when Amelia walked in, all of them went quiet.
+David was there. Josiah was there. Emila was there. And when Amelia walked in, all of them went quiet.
 
 He noticed that. He noticed the way their eyes shifted toward her, the way the room seemed to rearrange itself around her presence. It was the same reaction he'd seen a hundred times, the pack always noticed when she was near. Not because she was loud or dramatic. Because the bond hummed in his chest whenever she was close, and the pack could feel it.
 
@@ -61,7 +61,7 @@ She laid out the historical records one by one. The Scottish Highlands, 1642. Th
 
 The pattern was clear.
 
-The war room was silent. David's jaw was tight. Perseus's eyes were narrow. Josiah's expression was unreadable.
+The war room was silent. David's jaw was tight. Josiah's expression was unreadable. Emila's eyes were soft.
 
 And Victor, Victor felt the cold open in his chest, the same cold that had opened when Perseus had questioned him about the bond affecting his judgment. But this was worse. This wasn't doubt. This was confirmation.
 
@@ -69,7 +69,7 @@ The Hollow King wasn't just coming for the pack. He was coming for the bond. He 
 
 And the bond had found Amelia.
 
-"You're telling me," Victor said, and his voice was low, controlled, but there was something in it, something sharp, something dangerous, "that every time a Mate Bond was formed, the Hollow King struck? That's not coincidence?"
+"You're telling me," Victor said, and his voice was low, controlled, but there was something in it — something sharp, something dangerous — "that every time a Mate Bond was formed, the Hollow King struck? That's not coincidence?"
 
 "No," Amelia said. "It's not coincidence."
 
@@ -81,7 +81,7 @@ And the bond had found Amelia.
 
 "Yes."
 
-Victor looked at the papers. He looked at Amelia. He looked at the war room, at David, at Perseus, at Josiah, at Emila, and he felt the weight of it all settle on his shoulders like a stone.
+Victor looked at the papers. He looked at Amelia. He looked at the war room, at David, at Josiah, at Emila, and he felt the weight of it all settle on his shoulders like a stone.
 
 He was being used. By the Hollow King, who saw the bond as a weakness to exploit. By Aurela, who saw the bond as a weapon to deploy. There was no neutral ground. There never had been.
 
