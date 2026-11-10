@@ -69,7 +69,7 @@ Victor looked up at him.
 
 Victor didn't answer. He couldn't. Not because he didn't have an answer, but because he didn't have one at all. He felt distracted. He felt — he felt everything. The bond had opened something in him, made him aware of things he'd spent years burying under duty and control and the weight of being Alpha. And now he couldn't close them back up.
 
-Perseus watched him for a long moment. Then he nodded, once, and turned away.
+Perseus watched him for a long moment. Then he nodded once and turned away.
 
 The nod wasn't angry. It wasn't accusatory. But it was doubt. And it was the kind of doubt that grew in the quiet, in the moments between words, in the spaces where a man was supposed to be certain and instead was just uncertain.
 
