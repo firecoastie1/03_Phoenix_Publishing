@@ -29,7 +29,7 @@ The Hollow King didn't just fear bonds. He hunted them. He used them as a target
 
 Amelia closed her eyes and pressed her palms against her eyes. She had brought this on him. She had recognized the bond, and the bond had recognized her, and now the Hollow King was coming for them because of it.
 
-She thought about Victor, standing at the window, looking south, feeling the tension of the pack movement. She thought about how he'd carried the weight of the pack for three years since his father died, alone, never telling anyone what he was carrying. And now he was carrying this too, the bond, the Hollow King, the responsibility, the fear.
+She thought about Victor standing at the window looking south, feeling the tension of the pack movement. She thought about how he'd carried the weight of the pack for three years since his father died, alone, never burdening anyone with what he was carrying. And now he was carrying this too — the bond, the Hollow King, the responsibility, the fear.
 
 She didn't want him to carry it alone. Not anymore.
 
