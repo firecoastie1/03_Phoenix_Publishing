@@ -18,7 +18,8 @@
 - `Book 1 - The Willing Sacrifice - Chapter 13.md` — WRITTEN (~4,200 words)
 - `Book 1 - The Willing Sacrifice - Chapter 14.md` — WRITTEN (~6,800 words)
 - `Book 1 - The Willing Sacrifice - Chapter 15.md` — DRAFT WRITTEN (~1,780 words)
-- `Book 1 - The Willing Sacrifice - Chapter 18.md` — WRITTEN (~1,850 words)
+- `Book 1 - The Willing Sacrifice - Chapter 18.md` — WRITTEN + REVISED (~1,850 words)
+|- `Book 1 - The Willing Sacrifice - Chapter 19.md` — WRITTEN (~1,640 words)
 
 ## Chapter Status
 | Chapter | Status | Notes |
@@ -40,8 +41,8 @@
 | 15 | ✅ Draft written | The First Attack: Marcus returns hollowed; Victor stops him; Amelia's tingling and bond pull intensify, drawing her to the compound; their touch warms the thread without opening it. |
 | 16 | ✅ Written | The Pack Reacts: Marcus' hollowing spreads fear through the pack; Victor holds pack meeting (David wants to fight, Perseus wants intel, Josiah warns of Hollow King); Victor orders investigation of other territories; Amelia observes pack dynamics; Josiah nods at her; Veil feels like cold water; stars shift in the sky; her hands tingle from Victor. |
 | 17 | ✅ Written | The Invitation: Aurela appears to Victor in a dream — explains the coalition (all 6 shifter types), the bond as bridge/weapon, Hollow King targets bonds. Victor wakes angry at being manipulated by a goddess; resists control but can't deny what Amelia means to him. Flaw on display — arc toward letting go of control. |
-| 18 | Pending | |
-| 19 | Pending | |
+| 18 | ✅ Written + Revised | Kitchen scene (room offer, Luna accepted, almost-kiss interrupted by Marco). Afternoon bridge. Rooftop scene (human trust, not magical transmission). Em-dashes standardized. Trust logic fixed. Bridge continuity Ch17→Ch18. Pronoun fix. Line 49 consistency. |
+| 19 | ✅ Written | Border Dispute — Victor wakes to bond hum. David notices he looks different. War room: Hanley pushing south 3 miles. Perseus volunteers, Victor insists on going, Perseus stops him. Perseus pulls Victor aside: "The bond — is it affecting your judgment?" Seeds doubt. Amelia researching mate bonds + Hollow King correlation. David presses Victor about distraction. Victor feels Amelia's hum and distant pack tension. |
 | 20 | Pending | |
 | 21 | Pending | |
 | 22 | Pending | |
@@ -66,11 +67,11 @@
 
 ## Current Status
 - **Date:** 2026-11-09
-- **Chapters Written:** 18 of 40 (Ch 1–18)
+- **Chapters Written:** 19 of 40 (Ch 1–19)
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 - **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-- **Next:** Chapter 18 — "The First Date (Sort Of)" (Amelia and Victor in the kitchen, bond humming, almost kiss, David interrupts)
+- **Next:** Chapter 20 — Amelia's research reveals the pattern: every mate bond formed correlates with a Hollow King strike
