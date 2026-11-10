@@ -103,7 +103,7 @@ Perseus left at noon. Victor walked him to the gate and watched him ride south, 
 
 He turned away and walked back to the war room.
 
-David was there, pacing, jaw tight, hands clenched.
+David was still there, pacing, jaw tight, hands clenched.
 
 "He's going to walk right into it," David said.
 
