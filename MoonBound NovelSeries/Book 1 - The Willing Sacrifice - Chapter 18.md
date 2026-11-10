@@ -128,21 +128,9 @@ They sat in silence for a long time. The bond was steady between them, warm and 
 
 Amelia closed her eyes. She let her hands rest on her knees. She let her breathing slow. She thought about why she trusted him. The way he'd said her cat's name without hesitation — like Luna was part of her and part of him, and he'd accept both without question. The way he'd looked at the wall when he talked about his father — because he was letting her see the things he couldn't say out loud. The way he'd looked at her mouth and not looked away until the world interrupted — because he wanted her, fully, and hadn't even tried to hide it.
 
-She pushed something through the bond.
+She reached for his hand. Their fingers met, and the bond flared, warm and steady, like a second heartbeat in her chest. She didn't know if it was the bond or just him — the warmth in his palm, the way his fingers tightened around hers instinctively — but it was enough. She was close to him. Close enough to feel his breath, close enough to feel the rumble of his chest against her arm. Close enough to trust that he wasn't going anywhere.
 
-Not a word. Not an image. A feeling. Trust. The warm, steady kind. The kind that doesn't ask for anything in return.
-
-The bond carried it. She could feel it travel, like a thread pulling taut, like a note finding its frequency, and then Victor stiffened. His breath caught. She felt it through the bond, felt him catch, felt the exact moment his guard slipped.
-
-Then he let out a breath he didn't know he was holding.
-
-He pushed back.
-
-It hit her like a wave. Protectiveness, fierce and raw, the kind of protectiveness that wasn't about control or ownership but about the deep, animal need to keep someone safe. It was so intense it made her chest ache. It was the feeling of a man who had spent his whole life carrying weight for other people and finally found something he wanted to carry for himself.
-
-She didn't say anything. She couldn't. She just let it wash over her and let herself feel it and let herself understand, for the first time, what the bond was really for.
-
-It wasn't magic. It wasn't a tool. It was a bridge. Two people, standing on opposite sides of something too big for either of them alone, reaching across and finding the other person's hand.
+He didn't say anything. He didn't need to. He just held her hand, and the silence between them was filled with everything they couldn't put into words.
 
 They sat on the roof until the stars came out. Neither of them said anything. They just sat there, two people who were suddenly, terrifyingly close.
 
