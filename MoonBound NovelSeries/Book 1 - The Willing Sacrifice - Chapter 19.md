@@ -129,7 +129,7 @@ Victor didn't answer. He couldn't. Because David was right. The bond had changed
 
 He looked at the map on the table. The southern border. The Hanley pack. Gage Hanley. The man who thought the Blackwood Pack was weak.
 
-Perseus was the right choice for the negotiation. Victor knew it. But knowing it didn't stop the cold, tight feeling in his chest, and he wondered if it ever would.
+*Perseus was the right choice for the negotiation.* Victor knew it. But knowing it didn't stop the cold, tight feeling in his chest, and he wondered if it ever would.
 
 He walked to the window and looked south.
 
