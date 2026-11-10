@@ -127,7 +127,7 @@ Victor looked at him. "What do you hear?"
 
 Victor didn't answer. He couldn't. Because David was right. The bond had changed the way he experienced the world. He felt things more deeply. He was aware of things he'd been blind to before. And he wasn't sure if that was strength or weakness.
 
-He looked at the map on the table. The southern border. The Hanley pack. Gage Hanley. The man who thought the Blackwood Pack was weak.
+He looked at the map on the table and thought of the southern border. The Hanley pack. Gage Hanley, the man who thought the Blackwood Pack was weak.
 
 *Perseus was the right choice for the negotiation.* Victor knew it. But knowing it didn't stop the cold, tight feeling in his chest, and he wondered if it ever would.
 
