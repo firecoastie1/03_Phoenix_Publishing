@@ -15,7 +15,7 @@ She picked up another record. Italian Alps, 1789. Mate Bond formed in a small mo
 
 Another. The Black Sea coast, 1812. Mate Bond. One year later, a Hollow King strike that wiped out an entire pack, seventeen shifters, all hollowed, all found lined up in a row like dolls in a display case.
 
-She picked up the last one, the most recent. The Blackwood Pack. Victor. Herself. Formed. Three months ago. And in the last month, Marcus hollowed. The second hunter. The pack scared to death.
+She picked up the last record — not from the archives, but from her own life. The Blackwood Pack. Victor. Herself. Formed. Three months ago. And in the last month, Marcus hollowed. The second hunter. The pack scared to death.
 
 The pattern was clear. Too clear.
 
