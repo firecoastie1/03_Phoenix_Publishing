@@ -99,6 +99,8 @@ But she did. That was the problem. She did want it.
 
 ---
 
+VICTOR
+
 Perseus left at noon. Victor walked him to the gate and watched him ride south, his cloak flapping in the wind, his horse moving fast across the flat ground. The bond hummed — Amelia's presence, steady and distant. He couldn't tell what she was doing. He could only feel the shape of her attention, like a pressure in his chest, warm and quiet.
 
 He turned away and walked back to the war room.
