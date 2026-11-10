@@ -87,7 +87,7 @@ He was being used. By the Hollow King, who saw the bond as a weakness to exploit
 
 He was furious. Not at Amelia. Never at her. He was furious at the situation, at the Hollow King, at the Moon Goddess, at the bond, at the fact that there was no way to protect the pack without putting Amelia in the crosshairs.
 
-"You did the right thing," he said finally. "You found this. You brought it to me."
+"You did the right thing," he said finally. "You found this, and you brought it to me."
 
 "I didn't know who else to—"
 
