@@ -8,8 +8,6 @@ She couldn't sleep. The bond hummed in her chest, pulling her toward the compoun
 
 She stood at the counter with a kettle she didn't need to boil, a mug she didn't need to fill, and a cup of tea that had gone cold three minutes ago. The compound's kitchen was too clean, too organized, too much like a place someone who didn't cook came to make other people feel welcome. There were knives on a magnetic strip, perfectly aligned. Spices in labeled jars. A stand mixer she would probably never use.
 
-She had been here since five. She had not been able to sleep. The bond hummed in her chest, low and steady, like a wire pulled tight. She could feel him — not his thoughts, not yet, not until the ceremony, but his presence. He was somewhere in the compound, moving, thinking, doing whatever Alpha things VICTOR did before the sun came up.
-
 The back door opened.
 
 She didn't turn around right away. She listened to his footsteps, heavy and deliberate, but quieter than they would be during the day. He stopped three paces behind her. She could feel the bond pull, felt it like heat on the back of her neck.
