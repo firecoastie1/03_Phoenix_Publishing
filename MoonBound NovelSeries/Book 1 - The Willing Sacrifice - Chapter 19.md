@@ -53,7 +53,7 @@ No one answered immediately. Perseus looked at him.
 
 Victor sat back in his chair and nodded. It was the right call. It was the responsible call. But it didn't stop something cold from opening in his chest, because the edges felt important now. The bond had made him hyper-aware of everything outside his immediate circle. He felt the pack's tension like pressure in his skull. He felt David's need to act, Emila's worry, Josiah's quiet calculation. He felt Perseus's certainty.
 
-And he felt Amelia. Somewhere down the road, she was waking up, and the bond hummed like a second heartbeat in his chest, and he wondered if she could feel all of it: the war room, the map, the pressure, the way he kept looking at the southern border like it was a threat he couldn't name.
+And he felt Amelia. Somewhere down the road, she was waking up, and the bond hummed like a second heartbeat in his chest, and he wondered if she could feel his attention, the way his gaze kept returning to the southern border like it was a threat he couldn't name.
 
 Perseus rolled up the map and stood. "I leave by noon."
 
@@ -81,7 +81,7 @@ AMELIA
 
 Amelia's cottage was quiet in the morning. This was not the heavy, oppressive quiet that had settled over her for weeks — the quiet of an empty house, an empty bed, an empty life. This was different. This was the quiet of a woman who had slept through the night for the first time in months and woken up without that familiar ache in her chest.
 
-She made coffee. She sat at her kitchen table with her research notes. She looked at the shelf where she'd placed her grandmother's packet, the one he'd given her, the one that smelled like fresh pancakes and bacon and her grandmother's kitchen. She had put it there yesterday, after the kitchen scene, after he'd offered her a room and looked at her mouth and not looked away.
+She made coffee. She sat at her kitchen table with her research notes. She looked at the shelf where she'd placed her grandmother's packet, the one that smelled like fresh pancakes and bacon and her grandmother's kitchen. She had put it there the night before, after the kitchen scene, after he'd offered her a room and looked at her mouth and not looked away.
 
 Luna sat on her lap, purring, tail flicking in slow, contented circles.
 
@@ -99,7 +99,7 @@ But she did. That was the problem. She did want it.
 
 ---
 
-Perseus left at noon. Victor walked him to the gate and watched him ride south, his cloak flapping in the wind, his horse moving fast across the flat ground. The bond hummed. Amelia was reading at her table. Victor could feel her, not the words, not the thoughts, just the shape of her attention, the quiet focus of a woman who was trying to solve a puzzle and didn't want to be disturbed.
+Perseus left at noon. Victor walked him to the gate and watched him ride south, his cloak flapping in the wind, his horse moving fast across the flat ground. The bond hummed — Amelia's presence, steady and distant. He couldn't tell what she was doing. He could only feel the shape of her attention, like a pressure in his chest, warm and quiet.
 
 He turned away and walked back to the war room.
 
