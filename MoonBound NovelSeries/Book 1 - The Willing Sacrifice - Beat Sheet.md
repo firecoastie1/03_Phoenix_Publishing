@@ -245,16 +245,18 @@ It is not just tingling in the hands anymore — it is a full-body sensation, a 
 
 Then he kisses her.
 
-The first kiss comes after the ceremony, and it is different. Before, it would have been a kiss under the weight of magic and pull and inevitability. Now it is a kiss between two people who can feel everything about each other — and choose it anyway. The bond hums between them, warm and steady and open. They stumble back toward Amelia's cottage, not touching but so close that every step sends sparks through the bond.
+The first kiss comes after the ceremony, and it is different. Before, it would have been a kiss under the weight of magic and pull and inevitability. Now it is a kiss between two people who can feel everything about each other — and choose it anyway. The bond hums between them, warm and steady and open.
 
 **Relationship beat:** The ceremony completes the bond. The first kiss happens within the completed bond.
+
+That night, Victor brings Amelia to the second floor — to his father's quarters. He's spent three years telling himself he hasn't earned them. The empty bed. The empty desk. The empty Alpha. Now he opens the door, takes her hand, and says: "It's yours too." The bond between them hums, warm and steady, as they step into the space that was a shrine to a ghost and is becoming a home.
 
 ### Chapter 27 — The Morning After
 **Beat:** Morning. Awkward but charged. They both feel different — closer, more connected, more afraid. Victor has to face the pack. Amelia has to face her own feelings. The bond is stronger now, and they both feel it.
 
 Victor returns to the compound and immediately faces the consequences. David notices something different about Victor — more present, more focused. Perseus notices the bond has solidified. Josiah nods knowingly. Emila smiles.
 
-But there's a problem: the bond makes Victor more emotionally transparent. Pack members can feel his stress, his fear, his determination. This is a double-edged sword — it makes him more relatable to the pack, but it also makes him vulnerable.
+They are in the second-floor quarters now. Victor's father's old room. The empty bed is no longer empty. The empty desk has Amelia's notebooks, her herbs, her grandmother's packet tucked in the drawer. The window overlooks the valley, and the morning light falls across both of their faces. But there's a problem: the bond makes Victor more emotionally transparent. Pack members can feel his stress, his fear, his determination. This is a double-edged sword — it makes him more relatable to the pack, but it also makes him vulnerable.
 
 **Mate bond beat:** The bond has grown deeper — they can feel each other across distance now, not just tingling in the hands but a full-body awareness. When Victor is stressed, Amelia feels it in her chest. When Amelia is worried, Victor can't focus on his work. They don't realize they're becoming emotionally dependent on each other — the pack notices. David sees Victor's mood shift the moment Amelia leaves the compound. Perseus notices Victor smiling without knowing it. Emila notices Amelia coming back to the compound every afternoon without a reason to be there.
 
