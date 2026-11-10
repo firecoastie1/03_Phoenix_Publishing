@@ -1,30 +1,38 @@
 # Chapter 1 — The Triad Assessment
 
-Silas Thorne had always been good at seeing things before other people did.
+The laundry line snapped without warning.
 
-It started when he was small — before he understood what was happening. A dropped plate. A swinging door. A ball rolling toward the street. His body moved before his brain processed the threat. His hands were already reaching before his eyes registered danger. He didn't think about it. He just reacted.
+The metal clip—rusted, already worn thin from the wind—gave way with a sharp crack. The whole wire sagged, then whipped sideways as a gust caught it. The wet sheets and blankets tumbled off the line in a heavy mass, spinning in the air like a cloud before collapsing toward the ground below.
 
-His mother noticed first. She'd been hanging laundry in the courtyard of their apartment block when the line snapped — a simple metal clip failing under the wind's pressure. The laundry went flying. Her children were playing in the street below. Silas had been sitting on the steps, reading. He didn't look up. He just stood, grabbed his younger sister by the shoulder, and pulled her backward just as the laundry landed exactly where she'd been standing.
+Mira and two of her friends were playing hopscotch in the street. A boy from the next block was kicking a ball against the alley wall, counting his own score out loud. Three kids. No more than ten years old between them. The clothes were patched and faded but clean—the kind of clean that came from scrubbing hard and making do. Mira was five, all knees and elbows and hair that wouldn't stay pinned back, wearing boots that were a size too big — hand-me-downs from someone else's kid. She was the spitting image of her mother — Elena's sharp nose, the same unruly dark hair that fell in her eyes no matter how many times she brushed it back, the same narrow face and big eyes that took everything in before she spoke. She was laughing at something her friend had said, one foot in the air for the next square, all energy and opinions. And she got her stubborn streak straight from her mother. Elena didn't back down from anything — not the poor soil, not the Empire's neglect, not the long hours in the greenhouse. Mira had learned that before she could talk.
 
-*How did you see that coming?* his mother had asked, heart hammering.
+Silas had been sitting on the steps of their building. Twelve years old. He wasn't looking at them. He was on step three, his back against the cold concrete wall, a dog-eared textbook on his lap that he'd checked out from the building's shared shelf. His jeans were patched at both knees. His shoes were scuffed but laced tight. He was thin—not underweight, just lean, the way kids got on a diet of root vegetables and thin bread. His hair was dark and unruly, growing past his collar, and his hands were already stained from the ink of the library books he took home.
 
-Silas had shrugged. *I just knew.*
+He didn't look up.
 
-He didn't just know. He *felt* it. Like a pressure in his chest, like the air changing before a storm breaks. He could feel things before they happened. It was never clear — just a sense, a whisper. And it was always right.
+His body moved before his brain caught up. A pressure built in his chest like a hand closing—tight, urgent, *wrong*—and he was already on his feet, already moving. His hand closed around Mira's wrist. He pulled her backward with enough force to knock her off balance, her boots scraping against the concrete as she went down hard against his side. The laundry hit the ground exactly where she'd been standing, a splash of soapy water and wet cotton slamming into the pavement.
 
-By the time he was twelve, he'd learned not to talk about it. People on Oakhaven didn't like things they couldn't explain. Oakhaven was a border world — distant, cold, agricultural. The soil was poor, the weather was harsh, and the Empire barely acknowledged its existence. The people who lived here worked hard and died young. They didn't have time for mysteries.
+Mira shrieked. Her friends scattered. The boy with the ball dropped it and ran.
 
-Silas had a sister — Mira, twelve years younger, with her mother's laugh and his stubborn streak. And a father — Tomas, who worked the fields from sunrise to sunset and came home with dirt under his fingernails and a back that ached by evening. His mother — Elena — ran a small greenhouse operation that supplied half the vegetables on Oakhaven. They were simple people. Good people. Not rich. Never rich. But proud.
+*How did you see that coming?* his mother had asked, heart hammering. She stood in the doorway above them, a dish towel clutched in her soapy hands, her face pale.
+
+Silas had shrugged. He brushed Mira's hair out of her eyes—she was crying, not from pain but from the shock of it all—and said, *I just knew.*
+
+He didn't just know. He *felt* it — like a pressure in his chest, like the air changing before a storm breaks. His skin prickled, his breath caught, and his muscles tensed before his mind could name what was happening. It was never clear, just a sense, a whisper in his bones. And it was always right.
+
+Silas's father, Tomas, worked the fields from sunrise to sunset and came home with dirt under his fingernails and a back that ached by evening. Tomas was a big man when he moved well — broad-shouldered, with calloused hands that could fix anything from a tractor to a fence post. He was quiet about it, but the land ate him alive slowly. His mother — Elena — ran a small greenhouse operation that supplied half the vegetables in Oakhaven. She was slighter than Tomas, with sharp features and a way of moving that made small spaces feel manageable. Simple people. Good people. Not rich. Never rich. But proud.
+
+They lived on the edge of the settlement — the official name was Oakhaven, though everyone who'd been born here knew it as a joke. The planet was called Veldt-7 by the Empire, a cold, agricultural border world in a system nobody cared about. The settlement had gotten the name Oakhaven from some settler administrator who'd never been here, probably imagining something green and peaceful. What they got was gray concrete blocks with cracked streets and patches of gravel, the smell of woodsmoke and damp earth, and the diesel of irrigation pumps that kept the poor soil barely alive. The Empire barely acknowledged its existence. The people who lived here worked hard and died young. They didn't have time for mysteries.
 
 The Triad Assessment changed everything.
 
-Every five years, Vanguard Academy sent a selection team to each of the Empire's major worlds. They brought the Triad Assessment — three tests. Tactics, Physical Endurance, and Neural Link. The winner earned a place at Vanguard Academy on Station Helios. One of five hundred spots. Two percent acceptance rate. A ticket out of whatever world you were born on.
+Every five years, Vanguard Academy sent a selection team to each of the Empire's major worlds. They brought the Triad Assessment — three tests. Tactics. Physical Endurance. Neural Link. The winner earned a place at Vanguard Academy on Station Helios. One of five hundred spots. Two percent acceptance rate. A ticket out of whatever world you were born on.
 
 For Silas, it was more than a test. It was a way.
 
-His parents had been saving for three years to send him to Oakhaven's assessment center. The travel costs alone had nearly broken them. But Elena had sold half her greenhouse stock. Tomas had taken extra shifts repairing the irrigation systems. They'd done it. They'd sent Silas to the assessment center on a Tuesday morning, packed him a lunch he wouldn't eat, and told him to do his best.
+His parents had been saving for three years. Elena had sold half her greenhouse stock. Tomas had taken extra shifts repairing the irrigation systems. They'd done it. They'd sent Silas to the assessment center on a Tuesday morning, packed him a lunch he wouldn't eat, and told him to do his best.
 
-*You're going to do better than your best,* his mother had said, kissing him on the forehead. *You always have.*
+*You're going to do better than your best,* his mother had said, kissing him on his forehead. Her hands were rough from the greenhouse, but the touch was gentle. *You always have.*
 
 He believed her.
 
@@ -32,7 +40,7 @@ He believed her.
 
 The first test was strategy.
 
-Silas Thorne sat in a windowless room on the border world of Oakhaven, his palms flat on a cold metal table, staring at a holographic display that showed an entire battlefield spreading out like a cracked mirror. Three hundred enemy vessels. Twelve of his own. Supply lines cut. Enemy fleet advancing from the eastern quadrant. Reinforcements impossible.
+He sat in a windowless room on the border world of Oakhaven, his palms flat on a cold metal table, staring at a holographic display that showed an entire battlefield spreading out like a cracked mirror. Three hundred enemy vessels. Twelve of his own. Supply lines cut. Enemy fleet advancing from the eastern quadrant. Reinforcements impossible.
 
 The AI instructor's voice came through the speakers: *You have four minutes to determine whether you live or die. Begin.*
 
@@ -88,7 +96,7 @@ The third test was silence.
 
 Silas sat in a dim room, the Neural Link interface headset resting on the table beside him. It looked like a pilot's helmet — streamlined, black, with a visor that reflected the light back at him in fractured pieces. The instructor sitting across from him was young, maybe mid-thirties, with a scar running down the left side of his jaw. He introduced himself as Instructor Voss. Tessa's father, Silas would learn later. Not that it mattered now.
 
-*Sit in the simulator,* Instructor Voss said, nodding toward the corner. *Connect to the Neural Link. The test measures how well your brain synchronizes with the craft's systems. Normal range is fifty to eighty percent. Anything above eighty is considered exceptional. Anything above A-rank is theoretical.*
+*Sit in the simulator,* Instructor Voss said, nodding toward the corner. *Connect to the Neural Link. The test measures how your brain syncs with the craft. Fifty to eighty percent is normal. Above eighty is exceptional.*
 
 Silas sat in the simulator. It was a cockpit — a starfighter cockpit, from the looks of it. He could feel the contours of the seat, the texture of the controls, the hum of the simulator running. He picked up the Neural Link headset. It was heavier than he expected. He placed it over his head.
 
@@ -98,9 +106,7 @@ Then light.
 
 Then everything.
 
-Silas felt the Neural Link connect to his brain like a hook sliding into his spine. The simulator responded instantly — every muscle in his body tensed, every nerve fired, every thought became an action. He didn't have to think about moving the craft. The craft moved when he thought about it. Not half a second later. Not a fraction of a second later. *Now.*
-
-He saw the simulated battlefield in his mind — a star system with three planets, twelve enemy vessels, and a command center he needed to destroy. He didn't plan his approach. He didn't calculate vectors or trajectories. He just moved. And the craft moved with him — faster than any craft should be able to move, faster than any pilot should be able to react. The enemy vessels were destroyed before he even knew they were there. The command center blew apart. The simulation ended.
+Silas felt the Neural Link connect to his brain like a hook sliding into his spine. The simulator responded instantly — every muscle in his body tensed, every nerve fired. He didn't plan his approach. He didn't calculate vectors or trajectories. He just moved, and the craft moved with him, faster than any craft should be able to move. The pain hit a fraction later — a white-hot spike behind his eyes, his chest going tight as his body lagged behind the link. But he pushed through it. The enemy vessels were destroyed before he even knew they were there. The command center blew apart. The simulation ended.
 
 The headset came off.
 
@@ -132,13 +138,13 @@ Silas looked at the display. *Above A-rank?*
 
 *Beyond it.*
 
-Silas felt something tight in his chest loosen, then tighten again. He'd been told his whole life that his reflexes were faster than everyone else's. That he could react before other people even saw what was happening. He'd thought it was just him. Just some quirk of his brain.
+Silas felt something tight in his chest loosen, then tighten again. Reflexes faster than everyone else's — that's what he'd been told his whole life. React before people even saw what was coming. He'd chalked it up to a quirk of his brain.
 
 But it wasn't a quirk. It was something else. Something bigger. Something he couldn't explain.
 
 ---
 
-The selection board meeting lasted an hour. Silas sat in a waiting room with the other three candidates from Oakhaven, none of whom had passed more than one test. He didn't know what they were saying. He didn't ask. He was thinking about the Neural Link reading. *Beyond A-rank.* What did that mean? He didn't know. He couldn't know. Not yet.
+The selection board meeting lasted an hour. Silas sat in a waiting room with the other three candidates from Oakhaven, none of whom had passed more than one test. He didn't know what they were saying, and he wasn't going to ask. He was thinking about the Neural Link reading. *Beyond A-rank.* What did that mean? He didn't know. He couldn't know. Not yet.
 
 When the board called his name, he stood up and walked into the room. Five people sat around a long table, looking at him with expressions ranging from curiosity to concern. Instructor Voss sat at the head of the table.
 
@@ -162,7 +168,7 @@ One by one, the board members spoke.
 
 *Then we train him to control it,* Instructor Voss said. *That's what we do.*
 
-*You're biased,* the board member replied. *You saw what he did in the simulator. You think it's special.*
+*You're biased,* the woman at the far end replied. *You saw what he did in the simulator. You think it's special.*
 
 *It is special.*
 
