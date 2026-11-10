@@ -38,7 +38,7 @@
 | 14 | ✅ Written + Ceremony Framework | The Investigation — Victor goes to Josiah for a full history lesson on the Mate Bond (rarity, unbreakable, grows with intimacy, two-stage: Formation → Moonlit Rite ceremony). Victor is uncomfortable — this is uncontrollable, starts pulling away. Amelia talks to Emila who explains the Veil, the Hollow King, why a human was chosen. Victor and Amelia meet in the clinic for their first real conversation as bonded partners — Victor admits he doesn't know how to be close to someone, Amelia tells him he just has to try. First touch — two-stage mechanic: warmth and pulse through the thread, explicitly not until the ceremony. No deeper connection yet. David walks in on them. Ends with Perseus calling Victor to war room. |
 | 15 | ✅ Draft written | The First Attack: Marcus returns hollowed; Victor stops him; Amelia's tingling and bond pull intensify, drawing her to the compound; their touch warms the thread without opening it. |
 | 16 | ✅ Written | The Pack Reacts: Marcus' hollowing spreads fear through the pack; Victor holds pack meeting (David wants to fight, Perseus wants intel, Josiah warns of Hollow King); Victor orders investigation of other territories; Amelia observes pack dynamics; Josiah nods at her; Veil feels like cold water; stars shift in the sky; her hands tingle from Victor. |
-| 17 | Pending | |
+| 17 | ✅ Written | The Invitation: Aurela appears to Victor in a dream — explains the coalition (all 6 shifter types), the bond as bridge/weapon, Hollow King targets bonds. Victor wakes angry at being manipulated by a goddess; resists control but can't deny what Amelia means to him. Flaw on display — arc toward letting go of control. |
 | 18 | Pending | |
 | 19 | Pending | |
 | 20 | Pending | |
@@ -65,11 +65,11 @@
 
 ## Current Status
 - **Date:** 2026-11-09
-- **Chapters Written:** 16 of 40 (Ch 1–16)
+- **Chapters Written:** 17 of 40 (Ch 1–17)
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 - **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-- **Next:** Chapter 17 — "The Invitation" (Aurela speaks to Victor in a dream; tells him about the coalition and the need for cross-species bonds; Victor wakes angry at being manipulated by a goddess)
+- **Next:** Chapter 18 — "The First Date (Sort Of)" (Amelia and Victor in the kitchen, bond humming, almost kiss, David interrupts)
