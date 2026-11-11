@@ -7,7 +7,7 @@ The bond pulled him before he even opened his eyes.
 
 It wasn't a sound, or a word, or an image. It was warmth, a steady, low hum, like a second heartbeat in his chest. Amelia was awake. He didn't know how he knew, but he knew, and it made something loosen in his ribs that had been knotted tight for weeks.
 
-He got up. Washed his face. Put on his coat. Didn't think about going to her cottage. Didn't need to. The bond hummed, steady and open, and that was enough.
+He got up. Washed his face. Put on his coat. Didn't think about going to the compound. Didn't need to. The bond hummed, steady and open, and that was enough.
 
 He walked into the compound's common room at eight AM and David was already there, coffee in hand, eyes narrow.
 
@@ -79,7 +79,7 @@ When the war room emptied, Victor stood alone at the table, staring at the map a
 
 AMELIA
 
-Amelia's cottage was quiet in the morning. This was not the heavy, oppressive quiet that had settled over her for weeks — the quiet of an empty house, an empty bed, an empty life. This was different. This was the quiet of a woman who had slept through the night for the first time in months and woken up without that familiar ache in her chest.
+Amelia's guest room was quiet in the morning. This was not the heavy, oppressive quiet that had settled over her for weeks — the quiet of an empty house, an empty bed, an empty life. This was different. This was the quiet of a woman who had slept through the night for the first time in months and woken up without that familiar ache in her chest.
 
 She made coffee. She sat at her kitchen table with her research notes. She looked at the shelf where she'd placed her grandmother's packet, the one that smelled like fresh pancakes and bacon and her grandmother's kitchen. She had put it there the night before, after the kitchen scene, after he'd offered her a room and looked at her mouth and not looked away.
 

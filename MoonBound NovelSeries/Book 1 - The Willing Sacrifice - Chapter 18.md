@@ -112,13 +112,13 @@ He backed out of the kitchen. The door closed. The silence that followed was wor
 
 Amelia looked at Victor. Victor looked at the wall. The bond hummed between them, low and steady, like a promise neither of them was ready to keep.
 
-The rest of the day passed in fragments. She went back to her cottage. He went to war room duties. She told herself she was fine. She wasn't. She thought about his face when the door opened. She thought about the way he looked at the wall like it was the only thing keeping him from saying something he couldn't take back. She told herself it was nothing. It was everything.
+The rest of the day passed in fragments. She went back to the compound. He went to war room duties. She told herself she was fine. She wasn't. She thought about his face when the door opened. She thought about the way he looked at the wall like it was the only thing keeping him from saying something he couldn't take back. She told herself it was nothing. It was everything.
 
 ---
 
-Evening came. The sky turned the color of bruised plums, and Amelia stood on the roof of her cottage, watching the sun sink behind the ridge, and the bond between her and Victor hummed like a second heartbeat in her chest.
+Evening came. The sky turned the color of bruised plums, and Amelia stood on the roof of the compound, watching the sun sink behind the ridge, and the bond between her and Victor hummed like a second heartbeat in her chest.
 
-She had not meant to come here. She had meant to sit at her kitchen table and read her notes and pretend she was fine and think about a room in the compound and a cat who slept on her feet and a man who offered her a room like he was apologizing for it. But the bond pulled, and she followed it, and now she was sitting on her roof, waiting.
+She had not meant to come here. She had meant to sit at her kitchen table and read her notes and pretend she was fine and think about a room in the compound and a cat who slept on her feet and a man who offered her a room like he was apologizing for it. But the bond pulled, and she followed it, and now she was sitting on the compound roof, waiting.
 
 He arrived five minutes later.
 
