@@ -7,7 +7,7 @@ She felt it at dawn, the same pull she'd felt before, but stronger. The thread b
 
 She didn't fight it. She'd learned that lesson already. Instead, she made tea, fed Luna, and sat by the window of her guest room until the sun climbed high enough to make the walk feel manageable. Her pulse kept spiking without reason, her body humming with anticipation she couldn't name.
 
-She didn't rush. She walked at her own pace, through the familiar path she'd taken a dozen times before, toward the old clearing near the northern boundary. The forest grew darker as she got closer, the air thick with that low vibration she'd learned to recognize. Her hands tingled before she even saw the trees.
+She didn't rush. She left the compound by the eastern gate, followed the ridge road toward the old clearing near the northern boundary. The forest grew darker as she got closer, the air thick with that low vibration she'd learned to recognize. Her hands tingled before she even saw the trees.
 
 When she arrived, he was already there.
 
