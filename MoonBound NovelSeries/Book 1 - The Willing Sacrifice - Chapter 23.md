@@ -59,7 +59,7 @@ He looked down at their hands. His thumb moved, just once, brushing against her 
 
 "Then don't do it alone."
 
-He stepped closer. One step. Until she could feel the heat radiating off his body, until the space between them was nothing at all. He didn't touch her again. Not with his hands. But she could feel him, the shape of his attention, the weight of his presence, the way the bond between them tightened like a wire drawn taut.
+He stepped closer, still holding her hands. One step. Until she could feel the heat radiating off his body, until the space between them was nothing at all. His hands tightened on hers, just slightly, like he was fighting the urge to move them higher, to pull her against him. But he didn't. He just held on, the bond between them tightening like a wire drawn taut.
 
 She tilted her face up. He didn't hesitate. He didn't think about it. He just leaned down and captured her mouth with his, and the kiss was everything she'd been waiting for and more, warm and sure and desperate, his hands finding her waist, pulling her closer, her fingers curling into his shirt. The bond flared between them, not opening, not fully, but widening, the thread stretching tight, and she could feel his heartbeat through his chest against hers, steady and fast and entirely his.
 
@@ -101,7 +101,7 @@ She didn't let go. She held on, and he watched her watching him, and he saw some
 
 He looked down at their hands. He didn't want to lose this, not the contact, not the warmth, not the certainty that for this one moment, he wasn't alone. He squeezed her hands. Not tightly. Not desperately. Just firmly. Steadily.
 
-Then she stepped closer. One step. Until the space between them was nothing at all. He could feel the heat of her body, smell the scent of her skin, see the pulse jumping at her throat. He didn't touch her again. Not with his hands. But she could feel him, the shape of his attention, the weight of his presence, the way the bond between them tightened like a wire drawn taut.
+Then she stepped closer, still holding her hands. One step. Until the space between them was nothing at all. He could feel the heat of her body, smell the scent of her skin, see the pulse jumping at her throat. His hands tightened on hers, just slightly, like he was fighting the urge to move them higher, to pull her against him. But he didn't. He just held on, the bond between them tightening like a wire drawn taut.
 
 And then he kissed her.
 
