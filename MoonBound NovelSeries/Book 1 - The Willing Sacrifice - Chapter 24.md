@@ -83,7 +83,7 @@ Josiah opened his eyes. "There's always a limit. Everything has a limit."
 
 "Then find it," Perseus said. "Before he does."
 
-Victor nodded. He turned back to the window. He looked out over the compound, over the pack, over the lives that depended on him. The weight of it was crushing, but it was real now. Not a monster in the woods. Not a shadow on the horizon. A predator of the mind.
+Victor nodded. He turned back to the window. He looked over the compound, over the pack, and the lives that depended on him. The weight of it was crushing, but it was real now. Not a monster in the woods. Not a shadow on the horizon. A predator of the mind.
 
 And for the first time, he understood what he was fighting.
 
