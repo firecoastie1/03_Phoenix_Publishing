@@ -72,7 +72,8 @@
 ## Current Status
 |- **Date:** 2026-11-10
 |- **Chapters Written:** 24 of 40 (Ch 1–24)
-- **Ch23 Fixes Applied:** Temple kiss replacing stone gesture. Victor breaks kiss (not Amelia). "see you tomorrow" removed (both at compound). Reid consistent with Ch21 (put down, burial coming). "into his chest" (Victor POV). Hand-holding contradiction fixed. Cottage references removed from Ch18/Ch19. Timeline gap added (mid-morning departure). Victor POV deepened with internal guilt about Reid.
+|- **Ch23 Fixes Applied:** Temple kiss replacing stone gesture. Victor breaks kiss (not Amelia). "see you tomorrow" removed (both at compound). Reid consistent with Ch21 (put down, burial coming). "into his chest" (Victor POV). Hand-holding contradiction fixed. Cottage references removed from Ch18/Ch19. Timeline gap added (mid-morning departure). Victor POV deepened with internal guilt about Reid.
+|- **Ch24 Fixes Applied:** "He'd" repetition reduced. "over" repetition on line 86. Three short sentences combined on lines 64, 78, 100, 170, 184. "Hollow King" repetition removed (lines 32/34). POV confusion fixed (Perseus/Perseus → Victor at head of table). Intimate beat moved to after Hollow King reveal. "You're close" logic fixed (he moved toward her, not her stepping in first). Transition beat added after intimate scene.
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
