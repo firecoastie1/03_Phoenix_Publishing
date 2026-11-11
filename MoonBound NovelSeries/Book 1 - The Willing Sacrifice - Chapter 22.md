@@ -23,9 +23,9 @@ VICTOR
 
 Perseus rode back into the compound at dusk. He was tired, his clothes dusty from the road, his expression unreadable. The Hanley negotiation had gone as well as could be expected, with Gage Hanley stubborn, traditional, and not impressed by Blackwood diplomacy. But Perseus had kept it from breaking down. Barely.
 
-He didn't go to his quarters. He went straight to the healing tent. And that was where he found Marco standing at the edge of the tent, looking at something he couldn't look at, couldn't look away from.
+He didn't go to his quarters. He went straight to the healing tent. And that was where he found Marco standing at the edge of the tent, staring at something he couldn't bring himself to look at. He couldn't look away.
 
-Marco's head snapped up when Perseus approached. He opened his mouth to speak, but no words came out. He just shook his head.
+Marco's head snapped up when Perseus approached. He opened his mouth to speak, but no words came out. He just shook his head. He stepped aside, gesturing past him toward the cot.
 
 Perseus looked past him.
 
@@ -37,7 +37,7 @@ Perseus stared at his younger brother, at the face he'd grown up with, the face 
 
 He didn't make a sound. He didn't move. He just stood there, his hands clenched into fists at his sides, his throat tight, his vision blurring.
 
-Victor was beside him. Victor had put Reid down. Victor had done it with his own hands.
+Victor was there too, standing a few feet away, his face pale, his hands still. Victor had put Reid down. Victor had done it with his own hands.
 
 Perseus looked at his Alpha, looked at his friend, and saw the weight of it. The crushing, immovable weight of a man who had put down someone he loved.
 
