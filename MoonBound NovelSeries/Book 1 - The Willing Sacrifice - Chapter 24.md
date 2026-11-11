@@ -133,7 +133,7 @@ He looked down. Looked back up. His gray eyes were dark. "I didn't realize."
 
 His breath caught. Just slightly. But she noticed.
 
-A long moment passed. The bond hummed between them, thick and warm. She let herself feel it — the heat, the pulse, the way he was holding himself back. Then she stepped back. Just a little. Breathed.
+A long moment passed. The bond hummed between them, thick and warm. She let herself feel it — the heat, the pulse, the way he was holding himself back. Then she stepped back. Just a little. Breathed. Tried to get back to business.
 
 "We can't just reinforce them," she said. "We change them."
 
