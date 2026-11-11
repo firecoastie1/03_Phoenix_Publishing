@@ -79,27 +79,25 @@ They walked back together, not holding hands, but close enough that the thread b
 
 VICTOR
 
-He had been waiting at the clearing for an hour before she arrived. He hadn't planned to wait. He hadn't meant to. He just stood there, pacing, his hands in his pockets, his mind racing with every possible way this could go wrong.
+He had been waiting at the clearing for an hour before she arrived. He hadn't planned to wait. He hadn't meant to. He just stood there, pacing, his hands in his pockets, his mind racing through the same loop of worst-case scenarios he'd been running since Reid died.
 
 The bond had pulled him here, not forcefully, not like the first time, but gently, like a current carrying him toward something he knew he needed but wasn't sure he was ready for. The full moon was rising. The clearing was where they'd stood the first time. The place where Aurela had spoken. The place where everything changed.
 
-When Amelia appeared at the edge of the clearing, he felt it, the thread tightening, the warmth spreading through his chest, the pull that he had stopped fighting a long time ago. He turned. He couldn't not turn. She was there. And the bond between them hummed like a live wire.
+When Amelia appeared at the edge of the clearing, he felt it — the thread tightening, the warmth spreading through his chest, the pull that he had stopped fighting a long time ago. He turned. He couldn't not turn. She was there. And the bond between them hummed like a live wire.
 
 He didn't know how to start. He never knew how to start with her. She saw too much. She asked the right questions. And she didn't flinch when he gave her the wrong answers.
 
-So he didn't answer. He just stood there, shaking, carrying the weight of a hollowed friend and a pack that looked to him for answers he didn't have.
+He looked at her and thought about Reid. His brother. His best friend. The one person who knew what it was like to grow up in his shadow, who knew what it was like to carry that weight and pretend it didn't crush you. Reid had died hollow, and he'd been the one to end him. His oldest friend. His littermate. He'd held Reid's body while it went cold.
 
-And then she said the one thing he hadn't expected: "I know."
+That knowledge sat in his chest like a stone.
 
-She didn't try to fix it. She didn't offer comfort. She just acknowledged it. That was enough.
-
-When she stepped closer, he could feel the heat of her body from ten feet away. She kept coming. He wanted to stop her. He wanted her to keep going. He wanted everything and nothing and both at the same time.
+When Amelia stepped closer, he could feel the heat of her body from ten feet away. She kept coming. He wanted to stop her. He wanted her to keep going. He wanted everything and nothing and both at the same time.
 
 He reached for her, his hands still trembling. She didn't notice. Or if she did, she didn't say anything. She just took them, and the warmth was immediate, flooding through his palms, up his arms, into his chest. He felt her pulse. He felt the steady rhythm of her heartbeat through his skin. He didn't try to feel anything else. He didn't push. He just held her hands and let it be enough.
 
 But it wasn't enough. It was never enough.
 
-She didn't let go. She held on, and he watched her watching him, and he saw something in her eyes that made something primal and desperate rise inside him, hunger, need, a want so sharp it was almost physical.
+She didn't let go. She held on, and he watched her watching him, and he saw something in her eyes that made something primal and desperate rise inside him — hunger, need, a want so sharp it was almost physical.
 
 He looked down at their hands. He didn't want to lose this, not the contact, not the warmth, not the certainty that for this one moment, he wasn't alone. He squeezed her hands. Not tightly. Not desperately. Just firmly. Steadily.
 
