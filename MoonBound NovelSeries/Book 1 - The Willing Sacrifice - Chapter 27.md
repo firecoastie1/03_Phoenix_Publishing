@@ -22,9 +22,9 @@ She knows. She can feel the fight in him. The restraint. The Alpha who won't cro
 
 She reaches up. Her fingers find his. His grip is firm. Hard. The kind of grip that says he is holding on for dear life.
 
-He pulls back. Slowly. Reluctantly. His face lifts from her hair. His eyes are dark. His jaw is clenched. His body is still hard against her, still straining. He doesn't look away. He can't. Not when she is beneath him. Not when she is warm. Not when she is his.
+He pulls back. Slowly. Reluctantly. His face lifts from her hair. His eyes are dark. His jaw is clenched. His body is still hard against her, still straining. He doesn't look away. He can't. Not when she is warm. Not when she is his.
 
-He stands. The sheet falls away. He steps to the edge of the bed. The bond flares with the distance — a wave of absence, a pull so sharp it makes her gasp. She reaches for him with her hand. Her fingers brush the edge of the sheet where he was.
+He stands. The sheet falls away. He steps to the edge of the bed. The bond flares with the distance — a wave of absence, a pull so sharp it makes her gasp. She reaches for him with her hand. Her fingers brush the edge of the sheet where his body was.
 
 He turns. Looks back. Just once.
 
@@ -66,9 +66,9 @@ She knows. She can feel the fight in him. The restraint. The Alpha who won't cro
 
 She reaches up. Her fingers find his. His grip is firm. Hard. The kind of grip that says he is holding on for dear life.
 
-He pulls back. Slowly. Reluctantly. His face lifts from her hair. His eyes are dark. His jaw is clenched. His body is still hard against her, still straining. He doesn't look away. He can't. Not when she is beneath him. Not when she is warm. Not when she is his.
+He pulls back. Slowly. Reluctantly. His face lifts from her hair. His eyes are dark. His jaw is clenched. His body is still hard against her, still straining. He doesn't look away. He can't. Not when she is warm. Not when she is his.
 
-He stands. The sheet falls away. He steps to the edge of the bed. The bond flares with the distance — a wave of absence, a pull so sharp it makes her gasp. She reaches for him with her hand. Her fingers brush the edge of the sheet where he was.
+He stands. The sheet falls away. He steps to the edge of the bed. The bond flares with the distance — a wave of absence, a pull so sharp it makes her gasp. She reaches for him with her hand. Her fingers brush the edge of the sheet where his body was.
 
 He turns. Looks back. Just once.
 
