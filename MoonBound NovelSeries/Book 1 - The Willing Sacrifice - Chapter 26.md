@@ -148,7 +148,7 @@ He opens the lock.
 
 The room is exactly as she imagined — small, quiet, full of the ghost of a man she never met. An empty bed. An empty desk. An empty Alpha.
 
-He takes her hand. Steps inside. Closes the door behind them. The space is quiet. Still. Waiting.
+He takes her hand. They make their way inside, past the empty desk, past the untouched shelves. The space is quiet. Still. Waiting.
 
 "It's yours too," he says. "All of it."
 
