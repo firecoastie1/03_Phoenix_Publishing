@@ -9,13 +9,13 @@ She didn't announce herself. She just climbed up the access ladder and walked ov
 
 He didn't look up. He didn't speak. He just sat there, staring at nothing.
 
-She didn't ask if he was okay. She didn't. He wasn't, and the question was too small for what he was carrying.
+She didn't offer comfort. He wasn't okay, and the question was too small for what he was carrying.
 
 Instead she said: "The pack needs you."
 
 And he said: "The pack doesn't need me to see what I've failed to protect."
 
-She didn't argue. She didn't offer comfort. She just sat with him until he stopped shaking.
+She didn't argue. She just sat with him until he stopped shaking.
 
 ---
 
