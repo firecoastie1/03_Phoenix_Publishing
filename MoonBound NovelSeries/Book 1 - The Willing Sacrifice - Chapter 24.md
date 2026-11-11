@@ -23,7 +23,7 @@ Clean. Professional. If you knew what you were doing.
 
 Perseus knelt in front of the node. He'd walked past it a dozen times since the attack. A dozen times without really looking. But this time he saw it.
 
-He knelt. He pressed his hand against the stone and felt the residual magic. Cold, wrong, like standing next to a body that had just been put down.
+He knelt. He pressed his hand against the stone and felt the residual magic. Cold, wrong, like standing next to a body that had just been put down. And then he felt something else.
 
 There was a trace of something foreign. Not human. Not shifter. Not anything he recognized. It was faint, almost gone, like a scent after the rain had washed it away. But it was there. And it wasn't disengaging magic. Someone had to stand at the node to disengage the ward. This was different. This was the ward being disengaged. From the outside.
 
