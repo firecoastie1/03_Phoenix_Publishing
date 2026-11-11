@@ -75,7 +75,7 @@ It was the first time anyone had said that to him since Reid died.
 
 He turned around. His face was pale, but steady. "If the Hollow King can get through the wards without help, that means he can come back. Any time. Anywhere."
 
-David stood. "Then we fortify. We reinforce the wards. We double the patrols."
+David pushed back from the table. "Then we fortify. We reinforce the wards and we double the patrols."
 
 Perseus shook his head. "Reinforcing won't help. If he can dissolve them from the outside, reinforcing just gives him more material to dissolve. We need to understand what he's capable of. We need to know if his power is infinite or if there's a limit."
 
