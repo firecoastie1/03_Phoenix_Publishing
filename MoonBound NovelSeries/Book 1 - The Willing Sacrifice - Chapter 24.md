@@ -97,7 +97,7 @@ It was intimate in a way she didn't have a word for. And she didn't need one.
 
 This morning, the hum was sharp. Tense. It made her skin feel too tight. Her pulse spiked when she thought about him carrying whatever was happening inside those walls.
 
-She poured the tea. She set the mug on the table. She stood there, listening.
+She poured the tea, set the mug on the table, and stood there, listening.
 
 The voices stopped.
 
