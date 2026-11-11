@@ -37,7 +37,7 @@ Reid was reaching for him. Movement mechanical and wrong, like a puppet with str
 
 Victor didn't want to. He couldn't. But he had to. He put him down.
 
-He didn't cry. He didn't make a sound. He just stood there, his hands shaking, his chest aching, and tried to understand how something like this had happened inside the compound. Inside the wards. Inside the one place that was supposed to be safe.
+He didn't cry. He didn't make a sound. He just stood there with his hands shaking and his chest aching, trying to understand how something like this had happened inside the compound. Inside the wards. Inside the one place that was supposed to be safe.
 
 The pack was in lockdown. No one in. No one out. The wards were reinforced. The guards doubled. But the question hung in the air like smoke. How did this happen?
 
