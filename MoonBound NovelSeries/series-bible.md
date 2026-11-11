@@ -144,6 +144,18 @@ The modern world exists alongside a hidden supernatural layer governed by shifte
 > 
 > "I'm not telling you what to do. I'm telling you that if we do this your way, we lose the western boundary and probably three pack members in the process."
 
+#### Reid Beaumont — Warrior of the Blackwood Pack
+
+**Physical:** Mid-20s. Leaner than Victor, with a similar build but softer features. Dark brown hair, green eyes. He moves with the easy confidence of someone who has never been told no. He is the pack's newest senior warrior.
+
+**Personality:** Loyal. Fearless. Charming. He is the kind of warrior who makes people laugh even in the darkest hours. He is Perseus's younger brother but nothing like him — Reid is all instinct and action where Perseus is calculation and caution.
+
+**Motivation:** Earn his place as a respected warrior in his own right, not just as Perseus's brother. He wants to prove he is more than a last name.
+
+**Flaw:** He is reckless. He charges into danger without thinking it through, and his fearlessness has cost him before.
+
+**Voice:** Casual, warm, a little too confident. He makes jokes when he should be serious.
+
 #### David Landry — Lieutenant of the Blackwood Pack
 
 **Physical:** Late 20s. Athletic build, short-cropped dark hair, intense brown eyes. He is the pack's combat specialist and most physically imposing warrior besides Victor. He has a scar through his left eyebrow.
