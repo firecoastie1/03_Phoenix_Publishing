@@ -142,9 +142,9 @@ She touches his face. Her thumb brushes his jaw. His eyes close for half a secon
 
 He doesn't hesitate. He grabs her hand. Their fingers close around each other. The bond hums, bright, warm, open. They leave the clearing together, walk back through the tree line, past the sleeping compound, up the stairs to the second floor.
 
-She stops. Three years. That's how long he's stood outside this door, telling himself he's not worthy. That he hasn't earned it.
+They stop at the door to his father's quarters. Three years. That's how long he's stood outside this door, telling himself he's not worthy. That he hasn't earned it.
 
-She hears the lock turn.
+He opens the lock.
 
 The room is exactly as she imagined — small, quiet, full of the ghost of a man she never met. An empty bed. An empty desk. An empty Alpha.
 
