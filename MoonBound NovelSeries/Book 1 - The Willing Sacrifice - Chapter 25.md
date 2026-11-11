@@ -103,6 +103,8 @@ It was his. Not Aurela's. Not the Moon Goddess's. His. He had chosen it.
 
 AMELIA
 
-The pack meeting echoes through the bond like a struck bell — heavy, sudden, impossible. She's in the healing tent, sorting herbs, and the world tilts. Something just shifted. Something enormous. She grips the edge of the table and breathes. She doesn't know what it is yet. She will. She just knows.
+The pack meeting echoes through the bond like a struck bell — heavy, sudden, impossible. She's in the healing tent, sorting herbs, and the world tilts. Something just shifted. Something enormous. She grips the edge of the table and breathes. Doesn't know what it is yet. Will. Just knows.
+
+The feeling settles. Not gone. Just quiet. She picks up the herbs she was sorting and puts them back. Her hands are steady. Good. She needs to be steady for whatever comes next.
 
 She goes about her morning. Feeds Luna. Makes tea. The bond stays warm between them, low and steady, like a hum beneath the noise of the world. She doesn't know what to do with this. She doesn't know how to prepare. But she will. When he tells her.
