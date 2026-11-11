@@ -113,17 +113,7 @@ She nodded. She knew what that was like. "I was making tea."
 
 He stared at her for a long moment. She could see the weight of it in his shoulders, the way his jaw worked when he didn't want to say what he was thinking.
 
-He moved past her to the counter. He leaned against it, one hand braced on the surface, his body angled toward hers. The space between them closed without either of them moving.
-
-"You're close," she said quietly.
-
-"I didn't realize." He looked down. Looked back up. His gray eyes were dark. "Sorry."
-
-"Don't." She took a half step closer. Close enough to feel the heat of him. Close enough to see the pulse jumping at his throat. "I like it."
-
-His breath caught. Just slightly. But she noticed.
-
-He set both hands on the counter. He didn't look at her. He looked at the wall behind her.
+He moved past her to the counter, his shoulders tense, jaw working. He didn't look at her. He looked at the wall behind her.
 
 "Perseus just told me something. The breach. It wasn't anyone from the pack. No traitor. No betrayal. It was the Hollow King. He weakened the ward from the outside. His Void Power."
 
@@ -131,11 +121,19 @@ Amelia's breath caught. "That's good, right?"
 
 "Yes." He looked at her. His eyes were darker now. "It's good. It's also terrifying. Because it means he can come back. Any time. Anywhere. He doesn't need anyone to help him."
 
-She set the tea down. She stepped into his space. Fully this time. Until she was close enough to feel the heat radiating off his body. Close enough to smell him. Smoke and mint and something wild underneath.
+He set both hands on the counter. His shoulders were tight, jaw clenched. He didn't look at her — couldn't.
 
-Her pulse spiked. Her body hummed.
+She stepped into his space. Until she was close enough to feel the heat of him. Close enough to smell him. Smoke and mint and something wild underneath.
 
-She didn't hide it. He could feel it. The bond carried it.
+He went very still.
+
+"You're close," she said quietly.
+
+"I didn't realize." He looked down. Looked back up. His gray eyes were dark. "Sorry."
+
+"Don't." She took a half step closer. Close enough to see the pulse jumping at his throat. "I like it."
+
+His breath caught. Just slightly. But she noticed.
 
 "Then we don't reinforce them," she said. "We change them."
 
