@@ -50,7 +50,7 @@
 | 20 | ✅ Written | Research — Amelia discovers bond+Hollow King pattern, presents to war room, Victor's fury at being used by both sides. |
 | 21 | ✅ Written | The Second Attack: Hollow King strikes inside compound — Reid (Victor's oldest friend, Perseus's brother) hollowed, Victor puts him down, pack on lockdown, Amelia stays and lets Victor break. |
 | 22 | ✅ Written | The Suspects: Perseus returns from Hanley, discovers Reid hollowed, walks away in silence. Investigation begins. David wants punishment, Perseus wants evidence, Josiah wants patience. Victor paralyzed by guilt. Amelia challenges him. |
-| 23 | ✅ Written | The Full Moon: Victor and Amelia meet in the clearing under the full moon. Talk about fear, what they want. Hold hands, feel warmth and heartbeat. Walk back together, thread pulling taut. |
+| 23 | ✅ Written + Revised | The Full Moon: Amelia walks from compound guest room to clearing. Hold hands, feel warmth and heartbeat, fight restraint. Kiss — warm, sure, desperate, hands on waist, fingers in shirt. "I want you close, but I won't cross a line." Temple kiss, walk back together, Victor's internal guilt about Reid (held his body while it went cold). 0 em-dashes. ~1,400 words. |
 | 24 | Pending | |
 | 25 | Pending | |
 | 26 | Pending | |
@@ -70,12 +70,13 @@
 | 40 | Pending | |
 
 ## Current Status
-|- **Date:** 2026-11-10
-|- **Chapters Written:** 23 of 40 (Ch 1–23)
+- **Date:** 2026-11-10
+- **Chapters Written:** 23 of 40 (Ch 1–23)
+- **Ch23 Fixes Applied:** Temple kiss replacing stone gesture. Victor breaks kiss (not Amelia). "see you tomorrow" removed (both at compound). Reid consistent with Ch21 (put down, burial coming). "into his chest" (Victor POV). Hand-holding contradiction fixed. Cottage references removed from Ch18/Ch19. Timeline gap added (mid-morning departure). Victor POV deepened with internal guilt about Reid.
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 - **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-|- **Next:** Chapter 24 — The Traitor Revealed
+- **Next:** Chapter 24 — The Traitor Revealed
