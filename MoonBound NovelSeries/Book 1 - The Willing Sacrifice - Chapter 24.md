@@ -21,7 +21,7 @@ The control node was a stone pedestal near the healing tent. It was where ward a
 
 Clean. Professional. If you knew what you were doing.
 
-Perseus knelt in front of the node. He'd walked past it a dozen times since the attack. He'd glanced at it a dozen times. But he hadn't really seen it.
+Perseus knelt in front of the node. He'd walked past it a dozen times since the attack. A dozen times without really looking. But this time he saw it.
 
 Now he knelt. He pressed his hand against the stone. He felt the residual magic. Cold, wrong, like standing next to a body that had just been put down. And then he felt something else.
 
