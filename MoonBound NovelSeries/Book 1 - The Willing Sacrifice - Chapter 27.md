@@ -26,7 +26,7 @@ Then she does something he doesn't expect. She rolls. Fast. Deliberate. Her body
 
 "I know," she says. Her voice is rough. Sleepy. Certain. "I know you can't. So I'll do it."
 
-She moves. Her hand finds his wrist. She pulls it down. Over the sheet. Over her hip. His fingers find the edge of her underwear. She lifts her hips. He pulls the fabric down. Her bare skin meets the cool air. Her thighs are warm. Wet. She's wet. He feels it through the bond. The pulse at his groin jumps. He closes his eyes. The bond carries her feeling — a slow, rising awareness, a softening, a willingness. She's not asleep. She knows. She just doesn't want to pull away.
+She moves. Her hand finds his wrist. She pulls it down. Over the sheet. Over her hip. His fingers find the edge of her underwear. She lifts her hips. He pulls the fabric down. Her bare skin meets the cool air. Her thighs are warm. Wet. She's wet. He feels it through the bond. The pulse at his groin jumps. He closes his eyes. The bond carries her feeling — a slow, rising awareness, a softening, a willingness. She's not asleep. She knows. She wants this.
 
 His fingers find her.
 
