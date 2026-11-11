@@ -31,7 +31,7 @@ His breath caught.
 
 The ward hadn't been sabotaged from the inside. The Hollow King had done it from the outside.
 
-He'd used his Void Power. Not to override the sequence, but to weaken the ward itself, to thin it enough that the Hollow King could push through. No one had to stand at the node. No one had to be present. The breach was impossible. And that was exactly the point.
+He'd used his Void Power. Not to override the sequence, but to weaken the ward itself, to thin it enough that something could push through. No one had to stand at the node. No one had to be present. The breach was impossible. And that was exactly the point.
 
 Perseus stood up. His hands were shaking.
 
