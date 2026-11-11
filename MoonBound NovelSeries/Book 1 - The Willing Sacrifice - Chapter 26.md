@@ -48,7 +48,7 @@ He exhales. Slow. The relief that follows is physical — like a weight he didn'
 
 He takes her hand. His fingers close around hers. Warm. Solid. The bond flares — not a detonation this time, not a scream. A hum. A vibration. A thread pulling taut and holding.
 
-"Tonight," he says. "The clearing. Just us. Josiah."
+"Tonight," he says. "The clearing. Just us and Josiah."
 
 She squeezes his hand. "Then let's go."
 
