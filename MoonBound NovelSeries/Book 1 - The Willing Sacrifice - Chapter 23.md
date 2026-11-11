@@ -71,13 +71,9 @@ When they broke apart, it was only because she needed to breathe. His forehead r
 
 He didn't move. He just stood there, his hands on her waist, his breath on her lips, his eyes locked on hers, and she could feel the restraint in him like a physical thing, a wire holding back something wild and powerful and entirely his.
 
-They stood like that for a long time. Then he pulled back, slowly, reluctantly. He pressed one last kiss to her temple, stayed close for a heartbeat, his palm flat against her shoulder, before he let his hand fall.
+They stood like that for a long time. Then he pulled back, slowly, reluctantly. He pressed one last kiss to her temple, his palm resting flat against her shoulder for a heartbeat, before he let his hand fall.
 
-"I'll see you tomorrow," he said. His voice was quiet, rough. "Before the draw."
-
-"I'll be there."
-
-They walked back together, not holding hands, but close enough that the thread between them pulled taut with every step. She could feel the ghost of his touch on her waist, the warmth of his mouth on hers, the way his breath had felt against her lips. She didn't look back at the clearing. He didn't either. They just walked, side by side, his arm brushing against hers with every step, the bond between them, warm, steady, growing stronger.
+They walked back together, not holding hands, but close enough that the thread between them pulled taut with every step. She could feel the ghost of his touch on her waist, the warmth of his mouth on hers, the way his breath had felt against her lips. When they reached the tree line, he stopped. "I'll see you tomorrow," he said. His voice was quiet, rough. "Before the draw."
 
 ---
 
@@ -123,12 +119,10 @@ He could feel her pulse under his fingertips where his hands rested on her waist
 
 He didn't move. He just stood there, his hands on her waist, his breath on her lips, his eyes locked on hers, and he could feel the restraint in him like a physical thing, a wire holding back something wild and powerful and entirely his.
 
-They stood like that for a long time. Then he pulled back, slowly, reluctantly. He pressed one last kiss to her temple, stayed close for a heartbeat, his palm flat against her shoulder, before he let his hand fall.
+They stood like that for a long time. Then he pulled back, slowly, reluctantly. He pressed one last kiss to her temple, his palm resting flat against her shoulder for a heartbeat, before he let his hand fall.
 
-"I'll see you tomorrow," he said. His voice was quiet, rough. "Before the draw."
+They walked back together, not holding hands, but close enough that the thread between them pulled taut with every step. He could feel the ghost of her mouth on his, the warmth of her body against his arm, the way she leaned into him with every step. When they reached the tree line, he stopped. "I'll see you tomorrow," he said. His voice was quiet, rough. "Before the draw."
 
-"I'll be there."
-
-They walked back together, not holding hands, but close enough that the thread between them pulled taut with every step. He could feel the ghost of her mouth on his, the warmth of her body against his arm, the way she leaned into him with every step. He didn't look back at the clearing. She didn't either. They just walked, side by side, with the thread pulling taut between them with every step, and he felt something he hadn't felt in a long time.
+He didn't look back at the clearing. She didn't either. They just stood in the shadow of the trees, the thread between them warm and steady, and he felt something he hadn't felt in a long time.
 
 Not relief. Not yet. But hope. Small. Fragile. Real.
