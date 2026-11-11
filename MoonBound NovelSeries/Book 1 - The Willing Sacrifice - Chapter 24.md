@@ -123,15 +123,13 @@ Amelia's breath caught. "That's good, right?"
 
 He set both hands on the counter. His shoulders were tight, jaw clenched. He didn't look at her — couldn't.
 
-She stepped into his space. Until she was close enough to feel the heat of him. Close enough to smell him. Smoke and mint and something wild underneath.
-
-He went very still.
+The space between them was nothing. She hadn't moved. He had.
 
 "You're close," she said quietly.
 
-"I didn't realize." He looked down. Looked back up. His gray eyes were dark. "Sorry."
+He looked down. Looked back up. His gray eyes were dark. "I didn't realize."
 
-"Don't." She took a half step closer. Close enough to see the pulse jumping at his throat. "I like it."
+"Don't apologize." She took a half step closer. Close enough to see the pulse jumping at his throat. "I like it."
 
 His breath caught. Just slightly. But she noticed.
 
