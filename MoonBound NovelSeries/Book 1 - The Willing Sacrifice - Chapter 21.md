@@ -31,7 +31,7 @@ Reid's face. Not Reid's body. His body was there, breathing, eyes open, chest ri
 
 Hollowed.
 
-Victor recognized him. It was Reid Beaumont. Perseus's younger brother. A warrior he'd trained with since they were pups. A man who'd stood beside him during his first pack council. A man who'd joked about retiring to the southern border and opening a tavern.
+Victor recognized him. It was Reid Beaumont. Perseus's younger brother. Victor's oldest friend — they'd known each other since they were pups in the same litter. They'd trained together for years. Reid had stood beside him during his first pack council. He'd joked about retiring to the southern border and opening a tavern.
 
 Reid was reaching for him. Movement mechanical and wrong, like a puppet with strings cut halfway.
 
