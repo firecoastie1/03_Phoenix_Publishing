@@ -39,7 +39,7 @@ Victor didn't want to. He couldn't. But he had to. He put him down.
 
 He didn't cry. He didn't make a sound. He just stood there with his hands shaking and his chest aching, trying to understand how something like this had happened inside the compound. Inside the wards. Inside the one place that was supposed to be safe.
 
-The pack was in lockdown. No one in. No one out. The wards were reinforced. The guards doubled. But the question hung in the air like smoke. How did this happen?
+The pack was on lockdown. No one in. No one out. The wards were reinforced. The guards doubled. But the question hung in the air like smoke. How did this happen?
 
 Someone opened the wards. Someone invited the Hollow King in.
 
