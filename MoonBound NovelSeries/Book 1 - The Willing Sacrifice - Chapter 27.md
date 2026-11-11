@@ -4,19 +4,35 @@ VICTOR
 
 He wakes before dawn.
 
-It is automatic — the Alpha always wakes first. But tonight, the first thing he feels is not the weight of the pack, not the cold edge of duty, but warmth. A steady, slow warmth pressed against his chest because she is lying against him. Her back to his front, her hair tickling his arm, her breathing slow and even.
+It is automatic — the Alpha always wakes first. But tonight, the first thing he feels is warmth. A steady, slow warmth pressed against his chest. Her body is curled against his front, her back to his chest, her face buried in the pillow. Her arm is draped across his stomach. Her legs are tangled with his. Every inch of her skin is against every inch of his.
 
-He does not move. He just lies there in the dark and lets himself feel it. Her heartbeat through her shirt, matching his own. The way her fingers curl loosely at her side where they brushed against his forearm. The faint scent of sage and dried herbs on her skin, still lingering from the healing tent, still lingering from the clearing.
+His hand slides slowly, deliberately, over the sheet that covers her. His palm rests against the dip of her waist. She stirs. Her eyes flutter open. She looks at him for a long moment, dazed and soft and entirely unguarded. She doesn't pull away. She reaches up, brushes her thumb against his jaw, traces the line of his cheekbone. Her hand slides down — past his neck, past his collarbone, to his chest, where she presses her palm flat against his heart. She feels it hammering. He feels her palm on his skin like a brand. She smiles. Just a little. Just for him.
 
-He closes his eyes. Three years. Three years of sleeping alone in this room — this room he has called empty even though it is not. It was empty before her. It was a shrine to a ghost who never asked to be worshipped. Now it is a room that smells like her. Now it is warm.
+He turns onto his side. Brings her with him. She comes willingly, her body arching into his, her leg sliding between his thighs, her back pressed flush against his chest. The sheet falls to her waist. Her bare back is warm against his hand. Her skin is soft. The curve of her spine, the dip of her waist, the line of her hip — he traces them all. His fingers move slowly, reverently, over the skin that is not covered. She shivers. He feels it. The bond flares at every touch.
 
-He exhales. Slowly. Carefully, so as not to wake her.
+He moves. Slowly. His leg presses against hers. His hand slides from her waist to her hip. His fingers dig into the soft flesh there. She makes a small sound in her throat — soft, low, entirely involuntary. He feels it through the bond, and it makes his teeth ache. He slides his hand higher. Over the curve of her ass. She shifts against him. Her back presses harder against his groin.
 
-She shifts in her sleep. Her hand finds his. Her fingers interlace with his without waking, without thinking — muscle memory, or the bond, or something deeper than both. She squeezes once. Sleepily. And he feels it. The bond flares — soft, bright, open. A thread of certainty stretching through his ribs.
+He is hard. She feels it. The thick weight of him, pressed between her backside and his thigh. She feels the pulse at his groin, the way his body strains against restraint, the raw, physical hunger in him. She knows. She feels it through the bond. Every muscle, every breath, every beat of his pulse.
 
-He holds his breath. For a heartbeat. Then two.
+She doesn't pull away. He doesn't either. They are inches apart. Her knee between his thighs. His hand on her hip. His face in her hair. The air is heavy. The bond is a wire, pulled taut, vibrating between them.
 
-She is his. Not by duty. Not by decree. By choice.
+"We can't," he says. His voice is rough. Low. Strained.
+
+She knows. She can feel the fight in him. The restraint. The Alpha who won't cross a line. But the man — the man is trembling. She feels it through the bond. Every muscle. Every heartbeat. Every millimeter of distance between them.
+
+She reaches up. Her fingers find his. His grip is firm. Hard. The kind of grip that says he is holding on for dear life.
+
+He pulls back. Slowly. Reluctantly. His face lifts from her hair. His eyes are dark. His jaw is clenched. His body is still hard against her, still straining. He doesn't look away. He can't. Not when she is beneath him. Not when she is warm. Not when she is his.
+
+He stands. The sheet falls away. He steps to the edge of the bed. The bond flares with the distance — a wave of absence, a pull so sharp it makes her gasp. She reaches for him with her hand. Her fingers brush the edge of the sheet where he was.
+
+He turns. Looks back. Just once.
+
+She feels the look. It crashes through the bond — heavy, desperate, full of everything he cannot say. She holds his gaze. Doesn't flinch. Doesn't look away.
+
+Then he is gone.
+
+The room is quiet. The bed is cold. The bond is still open. Still humming. Still pulling her toward him.
 
 ---
 
@@ -24,83 +40,47 @@ AMELIA
 
 She wakes to sunlight.
 
-It is a pale, thin thing — late autumn light, the kind that barely clings to the world, the kind that makes everything feel fragile. It spills through the window in a narrow golden strip, cutting across the floor, across the sheets, across the back of her hand where Victor's fingers are still curled around hers.
+It is a pale, thin thing — late autumn light, the kind that barely clings to the world. It spills through the window in a narrow golden strip, cutting across the sheets, across the space between them.
 
-She does not pull away. She could. She would have, before last night. Before the ceremony. Before the bond detonated and tore everything she thought she knew about herself apart and rebuilt it from the ground up.
+She is on her back. He is behind her. Her entire body is arched against his, her ass pressed to his groin, her spine curved into his chest, her cheek against the pillow. She can feel every hard line of him — his forearm beneath her stomach, his thigh between her legs, the heat of his body at her back. And lower, lower, she can feel the thick weight of him, pressing against her backside through the sheet. It is solid. It is real. It is him.
 
-She looks at his hand. His thumb is pressed against her knuckles, his palm warm and solid against hers. His breathing is slow and even. His face is softer in sleep — the tension gone, the Alpha mask gone, just a man. Just Victor.
+She does not pull away. She could. She would have, before last night. Before the ceremony. Before the bond detonated and tore everything she thought she knew about herself apart.
 
-She is afraid.
+She turns her head. Looks back. He is watching her. His eyes are dark, blown wide, his breathing slow and controlled. But she can feel what his face won't show — the tension in his jaw, the pulse jumping at his throat, the way his body is held rigid against hers.
 
-Not of him. Never of him. But of what this means. The bond is so loud today — not a hum, not a pull. A current. A river, wide and deep and pulling her toward him without resistance. She can feel him, even asleep — not his thoughts, not his feelings, but his presence. His steadiness. The way he holds the world together, even in sleep. Even in rest.
+She reaches back. Her hand finds his jaw. His skin is warm. His stubble scrapes against her fingertips. She traces the line of his cheekbone. His breath catches. She feels it through the bond — a sharp, sudden intake of air, a flare of awareness, a pulse of something dark and hot that floods through the connection like a current.
 
-She can feel his exhaustion. It's there — a low pressure behind his ribs, a weight in his shoulders — the pack, always the pack. But beneath it, there's something else. Something warm. Something like relief. Like he has been carrying a stone in his chest for three years and last night, he finally set it down.
+Her fingers slide down. Past his neck. Past his collarbone. To his chest. His skin is hard, taut, the muscle jumping under her palm. His heartbeat is a storm. She can feel it — not just through her hand, but through the bond, through her own chest, as if their hearts are beating in a rhythm she can't quite decipher but desperately wants to learn.
 
-She shifts. Her fingers tighten around his.
+She smiles. Tiny. Private.
 
-His thumb moves. Subtle. Almost imperceptible. But she feels it. The bond carries it — a whisper of awareness, a pulse of warmth. He is still half in her. Half in this. Half in them.
+He moves. Slowly. Deliberately. His hand slides from beneath her stomach to her waist. His fingers dig into the sheet beside her hip. He pulls her closer. Just a fraction. Her back presses harder against him. His arm wraps around her, pulling her flush. His face buries in her hair. His breath is hot against her neck.
 
-She closes her eyes. Lets herself feel it.
+He is hard. She feels it. The thick weight of him, pressed between her backside and his thigh. She feels the pulse at his groin, the way his body strains against restraint, the raw, physical hunger in him. She knows. She feels it through the bond. Every muscle, every breath, every beat of his pulse.
+
+She doesn't pull away. He doesn't either. They are inches apart. Her knee between his thighs. His hand on her waist. His face in her hair. The air is heavy. The bond is a wire, pulled taut, vibrating between them.
+
+"We can't," he says. His voice is rough. Low. Strained.
+
+She knows. She can feel the fight in him. The restraint. The Alpha who won't cross a line. But the man — the man is trembling. She feels it through the bond. Every muscle. Every heartbeat. Every millimeter of distance between them.
+
+She reaches up. Her fingers find his. His grip is firm. Hard. The kind of grip that says he is holding on for dear life.
+
+He pulls back. Slowly. Reluctantly. His face lifts from her hair. His eyes are dark. His jaw is clenched. His body is still hard against her, still straining. He doesn't look away. He can't. Not when she is beneath him. Not when she is warm. Not when she is his.
+
+He stands. The sheet falls away. He steps to the edge of the bed. The bond flares with the distance — a wave of absence, a pull so sharp it makes her gasp. She reaches for him with her hand. Her fingers brush the edge of the sheet where he was.
+
+He turns. Looks back. Just once.
+
+She feels the look. It crashes through the bond — heavy, desperate, full of everything he cannot say. She holds his gaze. Doesn't flinch. Doesn't look away.
+
+Then he is gone.
+
+The room is quiet. The bed is cold. The bond is still open. Still humming. Still pulling her toward him.
 
 ---
 
 VICTOR
-
-He does not intend to doze off again. He only closes his eyes for a moment. Just a moment. But the warmth of her against his chest, the steady rhythm of her breathing, the bond humming between them like a second heartbeat — it is too much. It is too good. His body surrenders before his mind catches up.
-
-He wakes to sunlight and to the sound of her breathing.
-
-The room is bright now. The morning light falls across the sheets, across her face, across the space between them. She is awake. He can feel it — the subtle shift in the bond, the way it sharpens when her awareness clicks on. She is looking at him. He is sure of it. She has never looked at him like this before.
-
-He opens his eyes.
-
-She is looking at him. Her brown eyes are wide. Not afraid. Not overwhelmed. Just... new. Like she is seeing him for the first time. Or like the person she has been looking at for weeks has suddenly become real.
-
-Neither of them speaks. Neither of them needs to. The bond carries what words cannot.
-
-She is his. He is hers.
-
-The thought should be overwhelming. It is. But it is also the most natural thing he has ever felt.
-
-He lets go of her hand. Slowly. Reluctantly. His fingers slide against her skin one last time, and the bond flares with the loss — a small, sharp ache in his ribs, like the absence of a limb he didn't know was missing.
-
-She shifts. Turns onto her back. The sheet falls to her waist. Her collarbone is pale against the morning light, the crescent moon tattoo on her wrist catching the sun. She looks up at him. Her face is bare. Unguarded. Open.
-
-"I'm scared," she says.
-
-He sits up. The movement pulls the sheet away. The room is warm. Not cold. Not the cold he has lived in for three years.
-
-"What are you scared of?" he asks.
-
-She considers it. Her fingers trace the edge of the sheet. Her wrist trembles — just slightly.
-
-"Everything," she says. "But... not of you."
-
-He nods. He understands. He stands. The floor is cool under his feet. He walks to the window and looks out. The compound is waking up — smoke from the kitchen chimney, warriors on patrol, the low murmur of a pack that does not yet know what changed last night. What changed him.
-
-He turns back to her. She is sitting on the edge of the bed. Her bare feet are flat against the floor. Her shoulders are tense but her face is steady. She is not looking away. She is not running. She is standing in the doorway of something enormous and refusing to look back.
-
-He walks back to her. He stops in front of her. Reaches down. Takes her hand.
-
-"You don't have to be," he says.
-
-She looks at his hand. Looks at his face.
-
-"I have to be," she says. "But I will be. With you."
-
-He pulls her up. She rises. The bond flares — not a detonation, not a shock. A settling. Like two pieces of a puzzle clicking into place. He wraps his arms around her. She wraps hers around his waist. His face buries in her hair. She rests her cheek against his chest.
-
-He holds her like she is the anchor. Like she is the only thing keeping him from drifting away.
-
-And maybe she is.
-
----
-
-He leaves her in the quarters.
-
-It is not a decision born of distance — of avoidance or fear or the old habit of pushing people away. It is the opposite. He trusts her enough to leave her here. He trusts this room enough to be without her for a few hours. He trusts the bond. It is open. It is steady. She will know if anything goes wrong.
-
-She will know, and he will know.
 
 He takes the stairs down slowly. The compound wakes around him — a low murmur of voices, footsteps on wooden floors, the clink of plates and cups. He walks through the main hall toward the war room. He expects the usual morning: Perseus with a stack of reports, David pacing, Emila with a tray of tea, Josiah sitting quietly in the corner with his eyes closed.
 
@@ -188,6 +168,22 @@ The bond hums between them. Not loud. Not demanding. Just... present. A steady v
 
 She sets down the mortar. Closes her eyes. Pushes something through the bond. Not words. Not images. A feeling. Calm. Warm. Unshakable.
 
-She does not know if it reaches him. But the bond flares — a small spark of something that might be surprise. Might be gratitude. Might be both.
+But the bond is open. So wide. So raw. And as she pushes calm through it, something else floods back — raw, unfiltered, overwhelming.
 
-She smiles. Tiny. Private. And goes back to work.
+His body.
+
+Not his thoughts. Not his feelings. His body. Fully. Completely. She feels him — the set of his shoulders, the tension in his jaw, the way he grips the edge of the table, his knuckles white, his spine rigid. And beneath it, lower, she feels him — the thick weight of him, the hard line of his body pressing against restraint, the heat building in his groin, the pulse throbbing low and steady.
+
+She stops breathing. Her fingers tighten around the mortar. The bond is so wide, so open, so unfiltered that every sensation he feels radiates through her like a current — his pulse, his breath, the tension in every muscle, the weight of him, and beneath it all, the heat pooling low in her body, her skin flushing, the soft part of her thighs pressing together instinctively.
+
+Her breath hitches. Her knees weaken. The heat in her body mirrors his — a slow, spreading ache between her legs, her nipples hardening against the fabric of her shirt, her skin electric beneath her own awareness. The bond is too open. It carries everything. Every millimeter of distance between them. Every second he is fighting to stay away. Every heartbeat straining against restraint.
+
+She presses her knees together. Hard. Breathes through the heat. Tries to steady herself. But the bond doesn't let her. It carries the weight of his restraint, the tension in his muscles, the way his hands grip the table, and the heat between them is too thick, the bond too raw, the desire too real.
+
+Her fingers dig into the mortar. Crush the herbs. Blood wells at the cut on her knuckles. She doesn't feel it. All she feels is him. The heat of him. The tension of him. The way his body fights to stay rigid while every instinct screams at him to reach for her.
+
+She tries to push calm through the bond. Tries to give him what he needs. But her own body is too far gone, her own restraint too thin, her own flesh pressing against her own thigh in a rhythm she cannot control. The bond carries the heat between them like a live wire. It connects them. It amplifies them. It makes the space between them feel like the thinnest sheet of glass, about to shatter.
+
+She closes her eyes. Grips the edge of the table. And waits for it to pass.
+
+The bond flares. A spark of something — not words, not images, but raw feeling. Surprise. Gratitude. Hunger. It hits her like a current, making her knees weak. She opens her eyes. The mortar is crushed. The herbs are mixed. Her hands are shaking. But the bond is steady. The warmth is there. He feels it. He knows. And somewhere, he is breathing the same way she is.
