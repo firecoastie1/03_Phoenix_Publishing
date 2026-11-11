@@ -70,11 +70,11 @@
 
 ## Current Status
 |- **Date:** 2026-11-10
-- **Chapters Written:** 22 of 40 (Ch 1–22)
+|- **Chapters Written:** 22 of 40 (Ch 1–22)
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 - **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-|- **Next:** Chapter 23
+|- **Next:** Chapter 23 — The Full Moon
