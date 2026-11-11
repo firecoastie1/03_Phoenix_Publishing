@@ -148,9 +148,9 @@ He opens the lock.
 
 The room is exactly as she imagined — small, quiet, full of the ghost of a man she never met. An empty bed. An empty desk. An empty Alpha.
 
-He takes her hand. Steps inside. Closes the door behind them.
+He takes her hand. Steps inside. Closes the door behind them. The space is quiet. Still. Waiting.
 
-"It's yours too," he says.
+"It's yours too," he says. "All of it."
 
 The bond hums between them. Warm. Steady. Open.
 
