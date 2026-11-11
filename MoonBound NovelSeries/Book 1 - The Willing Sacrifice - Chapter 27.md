@@ -4,7 +4,7 @@ VICTOR
 
 He wakes before dawn.
 
-It is automatic — the Alpha always wakes first. But tonight, the first thing he feels is warmth. A steady, slow warmth pressed against his chest. Her body is curled against his front, her back to his chest, her face buried in the pillow. Her arm is draped across his stomach. Her legs are tangled with his. Every inch of her skin is against every inch of his.
+It is automatic — the Alpha always wakes first. But tonight, the first thing he feels is warmth. A steady, slow warmth pressed against his chest. Her body is curled against his front, her back to his chest, her face buried in the pillow. Her arm is tucked beneath her cheek. Her legs are tangled with his. Every inch of her skin is against every inch of his.
 
 His hand slides slowly, deliberately, over the sheet that covers her. His palm rests against the dip of her waist. She stirs. Her eyes flutter open. She looks at him for a long moment, dazed and soft and entirely unguarded. She doesn't pull away. She reaches up, brushes her thumb against his jaw, traces the line of his cheekbone. Her hand slides down — past his neck, past his collarbone, to his chest, where she presses her palm flat against his heart. She feels it hammering. He feels her palm on his skin like a brand. She smiles. Just a little. Just for him.
 
