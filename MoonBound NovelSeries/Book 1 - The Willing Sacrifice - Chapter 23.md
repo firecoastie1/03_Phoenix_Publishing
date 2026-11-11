@@ -5,9 +5,7 @@ AMELIA
 
 She felt it at dawn, the same pull she'd felt before, but stronger. The thread between them was taut, vibrating like a plucked string. She knew what it meant before she even thought about it: the moon was coming.
 
-She didn't fight it. She'd learned that lesson already. Instead, she made tea, fed Luna, and sat by the window of her guest room until the sun climbed high enough to make the walk feel manageable. Her pulse kept spiking without reason, her body humming with anticipation she couldn't name.
-
-She didn't rush. She left the compound by the eastern gate, followed the ridge road toward the old clearing near the northern boundary. The forest grew darker as she got closer, the air thick with that low vibration she'd learned to recognize. Her hands tingled before she even saw the trees.
+She didn't fight it. She'd learned that lesson already. Instead, she made tea, fed Luna, and sat by the window of her guest room until the sun had climbed high enough to make the walk feel manageable. Her pulse kept spiking without reason, her body humming with anticipation she couldn't name. She waited until mid-morning before she finally stood, pulled on her coat, and left the compound by the eastern gate. The forest grew darker as she got closer, the air thick with that low vibration she'd learned to recognize. Her hands tingled before she even saw the trees.
 
 When she arrived, he was already there.
 
@@ -37,7 +35,7 @@ He looked at her then, really looked at her, and something in his face cracked. 
 
 "I'm scared of failing them," he said. "Of failing the pack. Of failing you. Of failing Reid."
 
-The name hung between them like a stone. Reid was still hollowed. The body had been moved to a side room. The pack knew. Everyone knew. But saying it out loud made it real.
+The name hung between them like a stone. Reid was gone. He'd been put down. The pack was burying him at dawn tomorrow. The pack knew. Everyone knew. But saying it out loud made it real.
 
 "I know," she said.
 
