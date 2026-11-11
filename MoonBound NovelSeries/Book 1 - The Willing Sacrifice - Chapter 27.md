@@ -42,7 +42,7 @@ She wakes to sunlight.
 
 It is a pale, thin thing — late autumn light, the kind that barely clings to the world. It spills through the window in a narrow golden strip, cutting across the sheets, across the space between them.
 
-She is on her back. He is behind her. Her entire body is arched against his, her ass pressed to his groin, her spine curved into his chest, her cheek against the pillow. She can feel every hard line of him — his forearm beneath her stomach, his thigh between her legs, the heat of his body at her back. And lower, lower, she can feel the thick weight of him, pressing against her backside through the sheet. It is solid. It is real. It is him.
+She is on her side. He is behind her. Her entire body is arched against his, her ass pressed to his groin, her spine curved into his chest, her cheek against the pillow. She can feel every hard line of him — his forearm beneath her stomach, his thigh between her legs, the heat of his body at her back. And lower, lower, she can feel the thick weight of him, pressing against her backside through the sheet. It is solid. It is real. It is him.
 
 She does not pull away. She could. She would have, before last night. Before the ceremony. Before the bond detonated and tore everything she thought she knew about herself apart.
 
