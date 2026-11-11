@@ -26,7 +26,7 @@ She nods. Her face is careful. Not cold. Not distant. Just careful — like she'
 
 He holds her gaze. The bond is so loud tonight. So present. Like it's vibrating through the floorboards, through the herbs on the table, through the air between them.
 
-"And I meant it. Not because of Aurela. Not because of the Hollow King. Not because of any strategy." His voice is low. Steady. "Because you are my mate. And I have spent three years telling myself I am not worthy of the life my father built. I have stood in that empty room on the second floor and I have told myself I do not deserve it. I do not deserve you."
+"And I meant it. Not because of Aurela. Not because of the Hollow King. Or any strategy." His voice is low. Steady. "Because you are my mate. And I have spent three years telling myself I am not worthy of the life my father built. I have stood in that empty room on the second floor and I have told myself I do not deserve it. I do not deserve you."
 
 Her eyes widen. Just slightly.
 
