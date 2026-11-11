@@ -126,7 +126,7 @@ It's overwhelming. It's beautiful. It's terrifying.
 
 He kisses her.
 
-The first kiss comes after the ceremony. It is different. Before, it would have been a kiss under the weight of magic and pull and inevitability. Now it is a kiss between two people who can feel everything about each other — and choose it anyway. The bond hums between them, warm and steady and open.
+The first kiss that comes after the ceremony is different. Before, it would have been a kiss under the weight of magic and pull and inevitability. Now it is a kiss between two people who can feel everything about each other — and choose it anyway. The bond hums between them, warm and steady and open.
 
 His lips move against hers. Slow at first. Then not. She tastes salt and tea and something uniquely Victor — warm and solid and entirely him. She makes a small sound in her throat. He feels it. His hands move from her arms to her waist, pulling her closer, his mouth pressing harder, deeper, hungrier, and she opens for him because she wants to because she chooses to because the bond between them is so strong it makes everything else feel like noise.
 
