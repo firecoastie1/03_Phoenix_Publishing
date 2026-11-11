@@ -66,7 +66,7 @@ The moon is full. White. Heavy. Hanging like a lantern above the trees. It flood
 
 Josiah is already there.
 
-He sits on a flat rock in the center of the clearing, his staff planted beside him, his eyes closed. He looks up when they approach. When he sees them together — hands linked, shoulders close, the bond glowing bright between them — he smiles. A small thing. Old. Knowing.
+He sits on a flat rock in the center of the clearing, his staff planted beside him, his eyes closed. He looks up when they approach. When he sees them together, hands linked, shoulders close, the bond glowing bright between them, he smiles. A small thing. Old. Knowing.
 
 "You came," he says.
 
@@ -116,7 +116,7 @@ The bond detonates.
 
 Not a hum. Not a pull. A detonation — full-body, full-soul, full-thought. The thread becomes a bridge. The channel opens. Everything crashes into her at once — Victor, his fear, his love, his determination, his devotion, his loneliness, his hope — a wave so violent she gasps and clings to him, her fingers digging into his arms, her body pressing against his, her heart hammering against her ribs.
 
-He gasps too. He feels her — all of her — her courage, her curiosity, her desire, her certainty, the way she thinks about him when he's not in the room, the way she touches her moon tattoo when she's lonely, the way she can't sleep without him near. His eyes go dark. His grip tightens. He pulls her against him, forehead resting against hers, and for a long moment they just breathe together. The bond between them is so strong it makes them both dizzy.
+He gasps too. He feels her, all of her, her courage, her curiosity, her desire, her certainty, the way she thinks about him when he's not in the room, the way she touches her moon tattoo when she's lonely, the way she can't sleep without him near. His eyes go dark. His grip tightens. He pulls her against him, forehead resting against hers, and for a long moment they just breathe together. The bond between them is so strong it makes them both dizzy.
 
 She feels his heartbeat through his chest. She feels his breath on her skin. She feels the heat of his body, the solidity of his arms, the way he holds her like she's the only real thing in the world.
 
@@ -130,7 +130,7 @@ The first kiss comes after the ceremony. It is different. Before, it would have 
 
 His lips move against hers. Slow at first. Then not. She tastes salt and tea and something uniquely Victor — warm and solid and entirely him. She makes a small sound in her throat. He feels it. His hands move from her arms to her waist, pulling her closer, his mouth pressing harder, deeper, hungrier, and she opens for him because she wants to because she chooses to because the bond between them is so strong it makes everything else feel like noise.
 
-Her hands find his hair. Thick. Dark. Warm under her fingers. He groans — low, rough, entirely honest — and pulls her flush against him, his body pressing into hers, her body yielding, their mouths moving together, their breathing becoming one. The bond pulses with every touch, every shift, every moment of contact — amplifying everything, connecting everything, binding them together in a way that has nothing to do with magic and everything to do with choice.
+Her hands find his hair. Thick. Dark. Warm under her fingers. He groans, low, rough, entirely honest, and pulls her flush against him, his body pressing into hers, her body yielding, their mouths moving together, their breathing becoming one. The bond pulses with every touch, every shift, every moment of contact — amplifying everything, connecting everything, binding them together in a way that has nothing to do with magic and everything to do with choice.
 
 He breaks the kiss. Just barely. Just enough to breathe. His forehead rests against hers. His hands stay on her waist. His eyes are dark. His breathing is ragged.
 
@@ -140,7 +140,7 @@ She touches his face. Her thumb brushes his jaw. His eyes close for half a secon
 
 "Take me," she says. "Please."
 
-He doesn't hesitate. He grabs her hand. Their fingers close around each other. The bond hums — bright, warm, open. They leave the clearing together, walk back through the tree line, past the sleeping compound, up the stairs to the second floor.
+He doesn't hesitate. He grabs her hand. Their fingers close around each other. The bond hums, bright, warm, open. They leave the clearing together, walk back through the tree line, past the sleeping compound, up the stairs to the second floor.
 
 He stops at the door to his father's quarters. Three years. Three years of standing outside this door, telling himself he's not worthy, telling himself he hasn't earned it.
 
