@@ -63,7 +63,7 @@ He stepped closer, still holding her hands. One step. Until she could feel the h
 
 She tilted her face up. He didn't hesitate. He didn't think about it. He just leaned down and captured her mouth with his, and the kiss was everything she'd been waiting for and more, warm and sure and desperate, his hands finding her waist, pulling her closer, her fingers curling into his shirt. The bond flared between them, not opening, not fully, but widening, the thread stretching tight, and she could feel his heartbeat through his chest against hers, steady and fast and entirely his.
 
-When they broke apart, it was only because she needed to breathe. His forehead rested against hers, his hands still on her waist, his breath warm against her skin. He didn't pull away. Neither did she.
+When they broke apart, it was only because he needed to breathe. His forehead rested against hers, his hands still on her waist, his breath warm against her skin. He didn't pull away. Neither did she.
 
 "I want you," he said, and his voice was low and quiet and entirely honest. "I want you close. I want you here. But I won't cross a line you haven't let me cross."
 
