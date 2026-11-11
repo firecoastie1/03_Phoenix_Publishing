@@ -128,7 +128,7 @@ He kisses her.
 
 The first kiss that comes after the ceremony is different. Before, it would have been a kiss under the weight of magic and pull and inevitability. Now it is a kiss between two people who can feel everything about each other — and choose it anyway. The bond hums between them, warm and steady and open.
 
-His lips move against hers. Slow at first. Then not. She tastes salt and tea and something uniquely Victor — warm and solid and entirely him. She makes a small sound in her throat. He feels it. His hands move from her arms to her waist, pulling her closer, his mouth pressing harder, deeper, hungrier, and she opens for him because she wants to because she chooses to because the bond between them is so strong it makes everything else feel like noise.
+His lips move against hers. Slow at first. Then not. He tastes salt and tea and something uniquely her — warm, solid, entirely her. She makes a small sound in her throat. He feels it. His hands move from her arms to her waist, pulling her closer, his mouth pressing harder, deeper, hungrier, and she opens for him because she wants to because she chooses to because the bond between them is so strong it makes everything else feel like noise.
 
 Her hands find his hair. Thick. Dark. Warm under her fingers. He groans, low, rough, entirely honest, and pulls her flush against him, his body pressing into hers, her body yielding, their mouths moving together, their breathing becoming one. The bond pulses with every touch, every shift, every moment of contact — amplifying everything, connecting everything, binding them together in a way that has nothing to do with magic and everything to do with choice.
 
