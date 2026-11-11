@@ -7,7 +7,7 @@ He called the pack at dawn. Not a council. Not a meeting. A gathering. Every mem
 
 David arrived first, arms crossed, jaw tight. He'd been waiting for Victor to make a move. David always wanted Victor to make a move.
 
-Perseus arrived second, his face unreadable, his eyes already calculating. He'd spent the night going over Perseus's findings, and he couldn't find a flaw. The math was clean. The Hollow King had done it alone. The wards hadn't been broken from the inside. They'd been dissolved from the outside.
+Perseus arrived second, his face unreadable, his findings in hand. Victor tore through them. The math was clean. The Hollow King had done it alone. The wards hadn't been broken from the inside. They'd been dissolved from the outside.
 
 Josiah arrived third, his staff in hand, his eyes calm. He'd seen this before. Not the Hollow King. Not exactly. But the shape of what was coming. The weight of it. The necessity of the choice Victor was about to make.
 
@@ -17,15 +17,15 @@ The rest came in waves. Dozens of them. Then hundreds. They filled the central y
 
 Victor stood on the steps and looked out at them. At his pack. At the lives that depended on him. At the people he'd sworn to protect. At the people he'd failed.
 
-Reid.
+Marcus. And Reid.
 
-He pushed the name down. It sat in his chest like a stone, but he pushed it down. He couldn't carry it right now. Not here.
+He pushed the names down. They sat in his chest like stones, but he pushed them down. He couldn't carry them right now. Not here.
 
 "I called you here," he said. His voice carried. It always did. "Because I owe you the truth."
 
 The yard went still. Even the wind seemed to stop.
 
-"Three weeks ago," he continued, "something got through the wards. Something hollowed one of our own. Someone I trained with. Someone I called my friend. I put him down."
+"Something got through the wards," he continued. "Two of our own. Marcus at the boundary. Reid inside the compound. Someone I trained with. Someone I called my friend. I put them both down."
 
 A murmur went through the yard. He could hear it. Quiet, pained, the kind of sound a pack makes when something sacred is taken from them. He let it happen. Let them feel it. Then he kept going.
 
@@ -39,7 +39,7 @@ A larger murmur. This one louder. This one edged with fear. Fear was the Hollow 
 
 "He can enter minds," Victor said. "He can manipulate fear. He can turn what you're afraid of against you. He's not a monster in the woods. He's a predator of the mind."
 
-David stepped forward. His face was red, his hands clenched. "So what do we do? We fortify. We reinforce the wards. We find him and we kill him."
+David stepped forward. His face was red, his hands clenched. "So what do we do? Do we fortify? Do we reinforce the wards? Do we find him and kill him?"
 
 "We can't reinforce them," Perseus said from the steps beside Victor. "Not if he can dissolve them from the outside. Reinforcing just gives him more to dissolve."
 
@@ -131,13 +131,13 @@ She listened.
 
 The bond hummed. Warm. Steady. Pulling toward Victor like gravity. She didn't fight it. She never did.
 
-"I want to," she said.
+"I want to," she said, then caught herself. She met Josiah's eyes. "I'm ready to do it. Whatever it takes."
 
 Josiah smiled. It was a small smile. But it was real. "Then we prepare."
 
 She stood up. She walked to the edge of the garden. She looked toward the main building, toward the war room, toward Victor. He was probably up there right now, standing on the steps, holding a pack together with nothing but his voice and his will.
 
-She could feel him through the bond. Not his thoughts. Not his feelings. Just his presence. A steady, warm hum, like a second heartbeat. It was enough.
+She could feel him through the bond. Just his presence. A steady, warm hum, like a second heartbeat. It was enough.
 
 She turned back toward the healing tent. She had things to do. Herbs to prepare. Supplies to gather. Her grandmother's packet was in her pack. She could use it tonight. She didn't know what she was doing. But she was going to try.
 
@@ -147,7 +147,7 @@ That afternoon, Victor found her in the healing tent. He stood in the doorway fo
 
 He was still. His eyes were gray. His face was tired. But he looked at her like she was the only real thing in the room.
 
-"I heard what you told them," he said.
+"I heard what you told them," she said.
 
 She set down the mortar and pestle. She walked toward him. Stopped close enough to feel the heat of him. Close enough to see the pulse jumping at his throat.
 
@@ -177,10 +177,10 @@ She reached up and touched his face. Her fingers found his jaw, warm and solid u
 
 He didn't say anything. He just stood there, his hands at his sides, his face close to hers, the bond between them pulling taut with every heartbeat.
 
-Then he pulled back. Slowly. Reluctantly. He pressed one last kiss to her temple. His palm rested flat against her shoulder for a heartbeat. Then he let his hand fall.
+Then he pulled back. Slowly. Reluctantly. He reached up, his forehead resting against hers for a heartbeat. His palm settled flat against her shoulder. Then he let his hand fall.
 
 "I'll see you at dawn," he said. His voice was quiet. Rough. "Before the draw."
 
 She didn't answer. She just watched him walk away. Her hand tingled where his had touched her. The bond hummed between them. Steady. Warm. Growing.
 
-She turned back to her work. She measured more roots. She crushed more petals. She mixed more tinctures. She didn't know what she was making. But she knew one thing: she was going to try.
+She turned back to her work. She measured more roots. She crushed more petals. She mixed more tinctures. Whatever she needed, she would figure it out. For Victor. For the ceremony. For herself.

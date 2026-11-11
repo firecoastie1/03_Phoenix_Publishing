@@ -91,7 +91,7 @@ AMELIA
 
 Amelia stood in the kitchen, waiting for tea to steep, listening to the sound of voices coming from the war room. She'd been trying to ignore it. The tension. The low arguing. The way the bond hummed with Victor's stress. But she couldn't. Not anymore.
 
-She'd moved into the guest room weeks ago. Since then, every morning she woke up feeling him through the bond. Not his thoughts, not his feelings, just the hum. The low steady vibration of his presence. Like a second heartbeat. She knew when he was awake before she opened her eyes. She knew when he was near by the way the hum got louder.
+She'd moved into the guest room weeks ago. Since then, every morning she woke up feeling him through the bond. Just the hum. The low steady vibration of his presence. Like a second heartbeat. She knew when he was awake before she opened her eyes. She knew when he was near by the way the hum got louder.
 
 It was intimate in a way she didn't have a word for. And she didn't need one.
 
