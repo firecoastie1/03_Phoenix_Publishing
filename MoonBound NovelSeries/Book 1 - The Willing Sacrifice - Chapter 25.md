@@ -103,6 +103,38 @@ It was his. Not Aurela's. Not the Moon Goddess's. His. He had chosen it.
 
 AMELIA
 
-The ceremony is announced to the pack at dawn. She feels it through the bond — a wave of weight and purpose that settles in her chest like a stone, heavy and certain. She doesn't know the details yet. She will. Soon. She just knows.
+Amelia was in the garden when Josiah came to find her. She was sitting on the bench where they'd met before, watching the flowers bloom in the thin morning light, her hands folded in her lap, the bond humming steady in her chest.
 
-She goes about her morning. Feeds Luna. Makes tea. The bond stays warm between them, low and steady, like a hum beneath the noise of the world. She doesn't know what to do with this. She doesn't know how to prepare. But she will. When he tells her.
+Josiah sat beside her. He didn't say anything at first. He just sat. He was patient that way.
+
+"They heard," he said finally.
+
+She looked at him. "About what?"
+
+"About the ceremony. Victor's decision."
+
+She felt it before she heard it. The bond flaring, not with warmth, not with pulse, but with something larger. Certainty. A kind of weight that settled into her bones and made her feel both steady and terrified.
+
+"He said what?" she asked.
+
+"He said he will complete the bond. The Moonlit Rite. Under the next full moon."
+
+Three days. The moon was waxing. Three nights from now, it would be full again. The same moon that had drawn them to the clearing. The same moon that had hummed between them like a live wire.
+
+She looked at Josiah. He was watching her. His eyes were kind.
+
+"What do you want to do?" he asked.
+
+It was a simple question. But it was enormous. It was the kind of question that changed lives.
+
+She thought about her grandmother's voice. About the way she taught her to make tinctures, to mix herbs, to trust her hands. "The body knows what it needs," she used to say. "Your job is to listen."
+
+She listened.
+
+The bond hummed. Warm. Steady. Pulling toward Victor like gravity. She didn't fight it. She never did.
+
+"I want to," she said, then caught herself. She met Josiah's eyes. "I'm ready to do it. Whatever it takes."
+
+Josiah smiled. It was a small smile. But it was real. "Then we prepare."
+
+She turned back toward the healing tent. She had things to do. Herbs to prepare. Supplies to gather. Her grandmother's packet was in her pack. She could use it tonight. She didn't know what she was doing. But she was going to try.
