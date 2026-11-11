@@ -95,7 +95,7 @@ She didn't try to fix it. She didn't offer comfort. She just acknowledged it. Th
 
 When she stepped closer, he could feel the heat of her body from ten feet away. She kept coming. He wanted to stop her. He wanted her to keep going. He wanted everything and nothing and both at the same time.
 
-He reached for her, his hands still trembling. She didn't notice. Or if she did, she didn't say anything. She just took them, and the warmth was immediate, flood through his palms, up his arms, into her chest. He felt her pulse. He felt the steady rhythm of her heartbeat through his skin. He didn't try to feel anything else. He didn't push. He just held her hands and let it be enough.
+He reached for her, his hands still trembling. She didn't notice. Or if she did, she didn't say anything. She just took them, and the warmth was immediate, flooding through his palms, up his arms, into his chest. He felt her pulse. He felt the steady rhythm of her heartbeat through his skin. He didn't try to feel anything else. He didn't push. He just held her hands and let it be enough.
 
 But it wasn't enough. It was never enough.
 
