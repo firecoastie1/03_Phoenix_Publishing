@@ -2,9 +2,9 @@
 
 VICTOR
 
-He wakes before dawn.
+He wakes early.
 
-It is automatic — the Alpha always wakes first. But tonight, the first thing he feels is warmth. A steady, slow warmth pressed against his chest. Her body is curled against his front, her back to his chest, her face buried in the pillow. Her arm is tucked beneath her cheek. Her legs are tangled with his. Every inch of her skin is against every inch of his.
+It is automatic — the Alpha always wakes first. But this morning, the first thing he feels is warmth. A steady, slow warmth pressed against his chest. Her body is curled against his front, her back to his chest, her face buried in the pillow. Her arm is tucked beneath her cheek. Her legs are tangled with his. Every inch of her skin is against every inch of his.
 
 His hand slides slowly, deliberately, over the sheet that covers her. His palm rests against the dip of her waist. She stirs. Her eyes flutter open. She looks at him for a long moment, dazed and soft and entirely unguarded. She doesn't pull away. She reaches up, brushes her thumb against his jaw, traces the line of his cheekbone. Her hand slides down — past his neck, past his collarbone, to his chest, where she presses her palm flat against his heart. She feels it hammering. He feels her palm on his skin like a brand. She smiles. Just a little. Just for him.
 
@@ -78,7 +78,7 @@ It is a pale, thin thing — late autumn light, the kind that barely clings to t
 
 She is on her side. He is behind her. Her back pressed to his chest, her leg tangled with his, her hand in his. The sheet falls over them both. Her body is warm. His body is warm. Everything is warm.
 
-She thinks about last night. About the ceremony. About the way the bond detonated and opened the channel. About what happened after.
+She thinks about this morning. About the ceremony. About the way the bond detonated and opened the channel. About what happened after.
 
 He pulled her onto him. Slow. Careful. His cock pushed through her folds. Her walls stretched around him. The bond screamed — a flare of white-hot sensation that made them both cry out. He buried himself inside her. She took every inch. And when he came — hot, thick, filling her — the bond caught it. Amplified it. Carried it through the connection, making his release a white-hot star that burned through both of them, that made them both cry out, both tremble, both shake, both fall into the same breathless, breaking, perfect moment.
 
