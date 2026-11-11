@@ -6,7 +6,7 @@ He wakes early.
 
 It is automatic — the Alpha always wakes first. But this morning, the first thing he feels is warmth. A steady, slow warmth pressed against his chest. Her body is curled against his front, her back to his chest, her face buried in the pillow. Her arm is tucked beneath her cheek. Her legs are tangled with his. Every inch of her skin is against every inch of his.
 
-His hand slides slowly, deliberately, over the sheet that covers her. His palm rests against the dip of her waist. She stirs. Her eyes flutter open. She looks at him for a long moment, dazed and soft and entirely unguarded. She doesn't pull away. She reaches up, brushes her thumb against his jaw, traces the line of his cheekbone. Her hand slides down — past his neck, past his collarbone, to his chest, where she presses her palm flat against his heart. She feels it hammering. He feels her palm on his skin like a brand. She smiles. Just a little. Just for him.
+His hand slides slowly, deliberately, over the sheet that covers her. His palm rests against the dip of her waist. She stirs. Her eyes flutter open. She looks at him for a long moment, dazed and soft and entirely unguarded. She doesn't pull away. She reaches up, brushes her thumb against his jaw, traces the line of his cheekbone. Her hand slides down, past his neck, past his collarbone, to his chest, where she presses her palm flat against his heart. She feels it hammering. He feels her palm on his skin like a brand. She smiles. Just a little. Just for him.
 
 He turns onto his side. Brings her with him. She comes willingly, her body arching into his, her leg sliding between his thighs, her back pressed flush against his chest. The sheet falls to her waist. Her bare back is warm against his hand. Her skin is soft. The curve of her spine, the dip of her waist, the line of her hip — he traces them all. His fingers move slowly, reverently, over the skin that is not covered. She shivers. He feels it. The bond flares at every touch.
 
@@ -30,9 +30,9 @@ She moves. Her hand finds his wrist. She pulls it down. Over the sheet. Over her
 
 His fingers find her.
 
-She gasps. Her eyes fly open. Her body arches against him. The bond flares — a flare of heat and need and want so sharp it makes him see stars. He feels her — her pulse, her heat, the wetness of her, the way her body yields under his touch. He feels her wanting. She wants him. Not by magic. Not by the bond. By choice.
+She gasps. Her eyes fly open. Her body arches against him. The bond flares, a flare of heat and need and want so sharp it makes him see stars. He feels her, her pulse, her heat, the wetness of her, the way her body yields under his touch. He feels her wanting. She wants him. Not by magic. Not by the bond. By choice.
 
-He moves his fingers. Slow. Two fingers. Sliding through her folds, through her slick heat. She makes a sound — low, broken, entirely involuntary. Her back arches off the mattress. Her ass lifts against him. He feels it — her body pushing against his fingers, her body pushing against him, her body telling him everything her mouth won't say.
+He moves his fingers. Slow. Two fingers. Sliding through her folds, through her slick heat. She makes a sound, low, broken, entirely involuntary. Her back arches off the mattress. Her ass lifts against him. He feels it, her body pushing against his fingers, her body pushing against him, her body telling him everything her mouth won't say.
 
 "Victor," she whispers. Her voice is rough. Shaking. "Please."
 
@@ -44,27 +44,27 @@ He doesn't wait. He slides his fingers back. Finds his cock. Pushes the sheet as
 
 He pushes forward.
 
-Her body yields. He slides inside. Slow. Slow. Slow. The heat of her body closes around him — tight, wet, impossibly warm. Every inch. Every millimeter. He fills her. She fills him. The bond screams — a flare of white-hot sensation that makes him see stars, makes his fingers dig into the mattress, makes his breath catch in his throat. He feels her feeling him. Her walls stretching. Her pulse quickening. Her body opening around him. He feels it all through the bond. The connection is absolute. Complete. Devastating.
+Her body yields. He slides inside. Slow. Slow. Slow. The heat of her body closes around him, tight, wet, impossibly warm. Every inch. Every millimeter. He fills her. She fills him. The bond screams — a flare of white-hot sensation that makes him see stars, makes his fingers dig into the mattress, makes his breath catch in his throat. He feels her feeling him. Her walls stretching. Her pulse quickening. Her body opening around him. He feels it all through the bond. The connection is absolute. Complete. Devastating.
 
 He bottoms out. His pelvis against her ass. His cock buried to the hilt. He stays there. Motionless. His face buried in her neck. His breath ragged. Her heartbeat against his chest. His heartbeat against hers. They are one.
 
-Then she moves. Her body shifts. Her walls contract around his cock. The sensation is overwhelming. He sees black. His hips jerk. He groans — a low, broken sound that comes from somewhere deep, somewhere primal. She feels it. The bond carries his pleasure, his control fraying, his need crashing through him like a wave. She shifts again. Faster. Her walls clenching. Her body riding his cock with the rhythm of her own desire. He follows. He moves with her. Slow at first. Then not. His hips piston forward. His cock slides in and out of her — tight, wet, perfect. Every thrust sends a bolt of pleasure through the bond, through both of them, a current that arcs between their bodies and makes them both gasp and cry out and reach for each other with a desperation that is almost violent.
+Then she moves. Her body shifts. Her walls contract around his cock. The sensation is overwhelming. He sees black. His hips jerk. He groans — a low, broken sound that comes from somewhere deep, somewhere primal. She feels it. The bond carries his pleasure, his control fraying, his need crashing through him like a wave. She shifts again. Faster. Her walls clenching. Her body riding his cock with the rhythm of her own desire. He follows. He moves with her. Slow at first. Then not. His hips piston forward. His cock slides in and out of her, tight, wet, perfect. Every thrust sends a bolt of pleasure through the bond, through both of them, a current that arcs between their bodies and makes them both gasp and cry out and reach for each other with a desperation that is almost violent.
 
-His hands find her hips. His fingers dig into her skin. He pulls her down onto him. Deeper. Harder. His cock drives into her — fast, deep, unrelenting. She throws her head back. Her mouth falls open. A moan tears from her throat. The bond amplifies everything — the wet slap of skin against skin, the stretch of her walls around his cock, the heat pooling between them, the tight, burning knot of desire at the base of her spine that is coiling tighter and tighter.
+His hands find her hips. His fingers dig into her skin. He pulls her down onto him. Deeper. Harder. His cock drives into her — fast, deep, unrelenting. She throws her head back. Her mouth falls open. A moan tears from her throat. The bond amplifies everything, the wet slap of skin against skin, the stretch of her walls around his cock, the heat pooling between them, the tight, burning knot of desire at the base of her spine that is coiling tighter and tighter.
 
 "Victor," she says. Her voice is shaking. Broken. "I'm close. I'm—"
 
 "Let go," he growls. "Let go. I've got you."
 
-She lets go. Her body convulses around his cock. Her walls clenching, pulsing, milking him — tight, hot, overwhelming. He feels her climax through the bond — a flare of white-hot pleasure, a wave that crashes through both of them, that pulls a groan from his throat, that makes his hips jerk, that makes his cock throb, that makes him close his eyes and see nothing but her — her face, her body, her mouth, her eyes, everything, everything, everything.
+She lets go. Her body convulses around his cock. Her walls clenching, pulsing, milking him, tight, hot, overwhelming. He feels her climax through the bond, a flare of white-hot pleasure, a wave that crashes through both of them, that pulls a groan from his throat, that makes his hips jerk, that makes his cock throb, that makes him close his eyes and see nothing but her, her face, her body, her mouth, her eyes, everything, everything, everything.
 
-He follows. He doesn't hold back. He doesn't fight it. He drives into her one last time — deep, deep, buried to the hilt — and he comes. His cock pulses. His body shudders. His release floods her — hot, thick, filling her, claiming her, completing her. The bond catches every drop, every pulse, every drop of his seed deep inside her, amplifies it, carries it through the connection, making his orgasm a white-hot star that burns through both of them, that makes them both cry out, both tremble, both shake, both fall into the same breathless, breaking, perfect moment.
+He follows. He doesn't hold back. He doesn't fight it. He drives into her one last time, deep, deep, buried to the hilt, and he comes. His cock pulses. His body shudders. His release floods her, hot, thick, filling her, claiming her, completing her. The bond catches every drop, every pulse, every drop of his seed deep inside her, amplifies it, carries it through the connection, making his orgasm a white-hot star that burns through both of them, that makes them both cry out, both tremble, both shake, both fall into the same breathless, breaking, perfect moment.
 
-He collapses against her. His face buried in her hair. His body pressed flush against hers. His cock still inside her — softening, but still connected, still touching, still theirs. Her body is trembling. Her breathing is ragged. The bond is quiet. Not silent. Quiet. Like a storm that has passed. Like a fire that has burned down to embers. Like two hearts beating in sync, steady and slow and entirely, completely, done.
+He collapses against her. His face buried in her hair. His body pressed flush against hers. His cock still inside her, softening, but still connected, still touching, still theirs. Her body is trembling. Her breathing is ragged. The bond is quiet. Not silent. Quiet. Like a storm that has passed. Like a fire that has burned down to embers. Like two hearts beating in sync, steady and slow and entirely, completely, done.
 
 They lie there. Together. Breathing. Touching. Connected.
 
-He shifts. Slowly. Pulls his cock out. She makes a small sound — disappointed, soft, reluctant. He smiles. Small. Private. He rolls to his side. Pulls her against him. Her back to his chest. Her leg over his. Her hand in his. The sheet falls over them. Both of them. Together.
+He shifts. Slowly. Pulls his cock out. She makes a small sound, disappointed, soft, reluctant. He smiles. Small. Private. He rolls to his side. Pulls her against him. Her back to his chest. Her leg over his. Her hand in his. The sheet falls over them. Both of them. Together.
 
 He closes his eyes. And for the first time in three years, he sleeps without dreaming of being alone.
 
@@ -74,15 +74,15 @@ AMELIA
 
 She wakes to sunlight.
 
-It is a pale, thin thing — late autumn light, the kind that barely clings to the world. It spills through the window in a narrow golden strip, cutting across the sheets, across the space between them.
+It is a pale, thin thing, late autumn light, the kind that barely clings to the world. It spills through the window in a narrow golden strip, cutting across the sheets, across the space between them.
 
 She is on her side. He is behind her. Her back pressed to his chest, her leg tangled with his, her hand in his. The sheet falls over them both. Her body is warm. His body is warm. Everything is warm.
 
 She thinks about this morning. About the ceremony. About the way the bond detonated and opened the channel. About what happened after.
 
-He pulled her onto him. Slow. Careful. His cock pushed through her folds. Her walls stretched around him. The bond screamed — a flare of white-hot sensation that made them both cry out. He buried himself inside her. She took every inch. And when he came — hot, thick, filling her — the bond caught it. Amplified it. Carried it through the connection, making his release a white-hot star that burned through both of them, that made them both cry out, both tremble, both shake, both fall into the same breathless, breaking, perfect moment.
+He pulled her onto him. Slow. Careful. His cock pushed through her folds. Her walls stretched around him. The bond screamed, a flare of white-hot sensation that made them both cry out. He buried himself inside her. She took every inch. And when he came, hot, thick, filling her, the bond caught it. Amplified it. Carried it through the connection, making his release a white-hot star that burned through both of them, that made them both cry out, both tremble, both shake, both fall into the same breathless, breaking, perfect moment.
 
-He had collapsed against her. His face buried in her hair. His cock still inside her — softening, but still connected, still touching, still theirs. She had felt every pulse. Every drop of his seed deep inside her. She had felt the bond complete — not magically, not ceremonially, but physically. Completely. The bond had finally, fully, finished what the ceremony started. It was a seal. A claim. A completion. She had felt every drop of him, every pulse of his release, every beat of his heart against hers, and she had known, with absolute certainty, that he was hers. That she was his. That the bond was no longer just magic or vow or ceremony — it was flesh and blood and seed and skin and breath and heartbeat and everything. Everything. Everything.
+He had collapsed against her. His face buried in her hair. His cock still inside her, softening, but still connected, still touching, still theirs. She had felt every pulse. Every drop of his seed deep inside her. She had felt the bond complete, not magically, not ceremonially, but physically. Completely. The bond had finally, fully, finished what the ceremony started. It was a seal. A claim. A completion. She had felt every drop of him, every pulse of his release, every beat of his heart against hers, and she had known, with absolute certainty, that he was hers. That she was his. That the bond was no longer just magic or vow or ceremony — it was flesh and blood and seed and skin and breath and heartbeat and everything. Everything. Everything.
 
 Her body still feels full. The warm ache between her thighs where his cock was buried. The sticky warmth between her legs where his seed had leaked. The ghost of his mouth on her shoulder. The imprint of his weight on her back. She can feel him through the bond — steady, warm, deep. Not the sharp tension of before. Not the desperate strain. A slow, deep pulse. The pulse of a man who has come home.
 
@@ -100,7 +100,7 @@ She thinks about the healing tent. About the herbs. About the supplies she needs
 
 She gets out of bed. Bare feet on the cold floor. The ache between her thighs flares — a soft, sweet reminder of what just happened. She smiles. Tiny. Private.
 
-She dresses. Quietly. He doesn't wake. She pauses at the door. Looks back at him — sleeping, peaceful, his hair messy, his face softer than she has ever seen it, his mouth slightly open, his body relaxed for the first time in her memory.
+She dresses. Quietly. He doesn't wake. She pauses at the door. Looks back at him, sleeping, peaceful, his hair messy, his face softer than she has ever seen it, his mouth slightly open, his body relaxed for the first time in her memory.
 
 She touches the crescent moon tattoo on her wrist. It is warm. Hot, actually. She pulls her hand away. The bond hums between them. Warm. Steady. Open.
 
@@ -136,7 +136,7 @@ Victor walks to the head of the table. Sets his hands on the surface. "What is g
 
 David blinks. He looks away. Then back. "Nothing. I was just — the Hanley scouts. Southern border. Perseus thinks they're pushing again."
 
-Perseus looks up. His eyes are sharp, calculating — but there is something else there. Something that Victor cannot place. Curiosity? Concern? Both?
+Perseus looks up. His eyes are sharp, calculating, but there is something else there. Something that Victor cannot place. Curiosity? Concern? Both?
 
 "David is right," Perseus says. "But not about the Hanley scouts." He meets Victor's gaze. "You're different."
 
@@ -154,7 +154,7 @@ Victor turns to him.
 
 Josiah's eyes are closed again. But his voice is steady. "The bond opens when the ceremony completes. It changes you. It changes her. You are more... open. More transparent. The pack can feel you. They have not had a fully bonded Alpha before. They do not know how to process it."
 
-Emila sets down her ladle. "You smell different. Calmer. Not just your scent — your energy. Your presence. The pack feels presence. Always."
+Emila sets down her ladle. "You smell different. Calmer. Not just your scent, your energy. Your presence. The pack feels presence. Always."
 
 Victor closes his eyes. The weight of it presses in on him — the pack sensing his stress, his determination, his fear, like a signal broadcast on a frequency they have never heard before. The bond makes him transparent. And transparency is vulnerability.
 
