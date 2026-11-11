@@ -74,9 +74,9 @@ He sits on a flat rock in the center of the clearing, his staff planted beside h
 
 Josiah nods. He stands. His knees crack. He's ancient. He's been doing this longer than anyone alive. Longer than Victor's father. Longer than the pack itself.
 
-"Take his hand," he says. "Stand where you can see each other. The moon has to see you."
+"Stand where you can see each other," he says. "The moon has to see you."
 
-They step into the center. They face each other. Their hands find each other. Fingers interlace. The bond surges — a wave of warmth that rolls through her chest, up her arms, into her throat. She gasps. He feels it. He gasps too.
+They step into the center. They face each other. Their hands are already joined. The bond surges — a wave of warmth that rolls through her chest, up her arms, into her throat. She gasps. He feels it. He gasps too.
 
 Josiah raises his staff. The air shifts. The forest goes quiet — no crickets, no wind, no animals. Just them and the moon and the old man standing between them.
 
