@@ -61,7 +61,7 @@ Perseus nodded. "That's what this is. He didn't need a traitor because the breac
 
 Josiah closed his eyes. "The old stories said he didn't just eat bodies. He ate certainty. He made people doubt that they could trust their own eyes, their own senses. Once they doubted, the wards meant nothing."
 
-Victor stood up. He walked to the window. He didn't turn around.
+Victor stood and walked to the window. He didn't turn around.
 
 "So it wasn't any of you," he said to the room. To Perseus. To David. To Josiah.
 
