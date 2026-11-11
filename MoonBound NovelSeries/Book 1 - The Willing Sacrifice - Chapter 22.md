@@ -17,6 +17,8 @@ And he said: "The pack doesn't need me to see what I've failed to protect."
 
 She didn't argue. She just sat with him until he stopped shaking.
 
+When he finally stood, she stepped back. He didn't say goodbye. He just climbed down the access ladder and walked away. She watched him go until he disappeared around the corner.
+
 ---
 
 VICTOR
