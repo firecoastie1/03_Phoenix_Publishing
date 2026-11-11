@@ -21,6 +21,8 @@
 - `Book 1 - The Willing Sacrifice - Chapter 18.md` — WRITTEN + REVISED (~1,850 words)
 - `Book 1 - The Willing Sacrifice - Chapter 19.md` — WRITTEN (~1,640 words)
 |- `Book 1 - The Willing Sacrifice - Chapter 20.md` — WRITTEN (~1,150 words)
+|- `Book 1 - The Willing Sacrifice - Chapter 21.md` — WRITTEN (~710 words)
+|- `Book 1 - The Willing Sacrifice - Chapter 22.md` — WRITTEN (~975 words)
 
 ## Chapter Status
 | Chapter | Status | Notes |
@@ -44,9 +46,9 @@
 | 17 | ✅ Written | The Invitation: Aurela appears to Victor in a dream — explains the coalition (all 6 shifter types), the bond as bridge/weapon, Hollow King targets bonds. Victor wakes angry at being manipulated by a goddess; resists control but can't deny what Amelia means to him. Flaw on display — arc toward letting go of control. |
 | 18 | ✅ Written + Revised | Kitchen scene (room offer, Luna accepted, almost-kiss interrupted by Marco). Afternoon bridge. Rooftop scene (human trust, not magical transmission). Em-dashes standardized. Trust logic fixed. Bridge continuity Ch17→Ch18. Pronoun fix. Line 49 consistency. |
 | 19 | ✅ Written | Border Dispute — Victor wakes to bond hum. David notices he looks different. War room: Hanley pushing south 3 miles. Perseus volunteers, Victor insists on going, Perseus stops him. Perseus pulls Victor aside: "The bond — is it affecting your judgment?" Seeds doubt. Amelia researching mate bonds + Hollow King correlation. David presses Victor about distraction. Victor feels Amelia's hum and distant pack tension. |
-| 20 | Pending | |
-| 21 | Pending | |
-| 22 | Pending | |
+| 20 | ✅ Written | Research — Amelia discovers bond+Hollow King pattern, presents to war room, Victor's fury at being used by both sides. |
+| 21 | ✅ Written | The Second Attack: Hollow King strikes inside compound — Reid (Victor's oldest friend, Perseus's brother) hollowed, Victor puts him down, pack on lockdown, Amelia stays and lets Victor break. |
+| 22 | ✅ Written | The Suspects: Perseus returns from Hanley, discovers Reid hollowed, walks away in silence. Investigation begins. David wants punishment, Perseus wants evidence, Josiah wants patience. Victor paralyzed by guilt. Amelia challenges him. |
 | 23 | Pending | |
 | 24 | Pending | |
 | 25 | Pending | |
@@ -67,12 +69,12 @@
 | 40 | Pending | |
 
 ## Current Status
-- **Date:** 2026-11-09
-- **Chapters Written:** 20 of 40 (Ch 1–20)
+|- **Date:** 2026-11-10
+- **Chapters Written:** 22 of 40 (Ch 1–22)
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 - **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-- **Next:** Chapter 21 — The Second Attack (Hollow King strikes inside the compound)
+|- **Next:** Chapter 23
