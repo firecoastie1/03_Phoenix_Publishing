@@ -5,7 +5,7 @@ AMELIA
 
 She found him on the roof again.
 
-She didn't announce herself. She just climbed up the access ladder and walked over. He was sitting on the edge, his head in his hands, his shoulders tense, his silence louder than any words he could have spoken. She sat down beside him, close enough to feel the warmth of his body but not close enough to touch — not yet. He hadn't given permission, and she had learned that lesson well.
+She didn't announce herself. She just climbed up the access ladder and walked over. He was sitting on the edge, his head in his hands, his shoulders tense, his silence louder than any words he could have spoken. She sat down beside him, close enough to feel the warmth of his body but not close enough to touch. She had learned the hard way not to cross that line without asking. He hadn't given permission.
 
 He didn't look up. He didn't speak. He just sat there, staring at nothing.
 
