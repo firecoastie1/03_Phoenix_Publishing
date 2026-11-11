@@ -167,7 +167,7 @@ He turned to leave. He was at the door. He stopped. He didn't turn around.
 
 And then he was gone. She stood there, listening to his footsteps fade. Her hand still tingled where he'd held it. The bond hummed between them. Steady. Warm. Pulling.
 
-She picked up her tea. It was cold. She drank it anyway.
+She picked up her tea. It was cold, but she drank it anyway.
 
 ---
 
