@@ -7,7 +7,7 @@ The bond pulled him before he even opened his eyes.
 
 It wasn't a sound, or a word, or an image. It was warmth, a steady, low hum, like a second heartbeat in his chest. Amelia was awake. He didn't know how he knew, but he knew, and it made something loosen in his ribs that had been knotted tight for weeks.
 
-He got up. Washed his face. Put on his coat. Didn't think about going to the compound. Didn't need to. The bond hummed, steady and open, and that was enough.
+He got up. Washed his face. Put on his coat. Didn't need to go looking for her. The bond hummed, steady and open, and that was enough.
 
 He walked into the compound's common room at eight AM and David was already there, coffee in hand, eyes narrow.
 
