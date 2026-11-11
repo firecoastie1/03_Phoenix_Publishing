@@ -181,7 +181,7 @@ She sat beside him. He didn't open his eyes.
 
 "Good. That means you're paying attention."
 
-She told him about the wards. She told him about the bond barrier. She told him about Aurela's words. She told him about Perseus's discovery.
+She told him about the wards, the bond barrier, Aurela's words, and Perseus's discovery.
 
 Josiah listened without interrupting. When she finished, he opened his eyes.
 
