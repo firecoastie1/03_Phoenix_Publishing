@@ -100,13 +100,9 @@ She climbs the stairs. Two at a time. Her heart is racing. Not from the climb. F
 
 When she reaches the second-floor landing, she pauses. The door is closed. But she can feel him. Through the bond, through the door, through the walls. Vibrating with something she has never felt before. Not anger. Not grief. Something between them. A resonance. The bond is wide open. A bridge, not a thread. And right now it is humming with a frequency that makes her teeth ache.
 
-She knocks.
+She turns the handle and pushes the door open.
 
-Silence.
-
-Then footsteps. Heavy. Deliberate. The door opens.
-
-Victor stands in the doorway. He is still wearing the clothes from the battle. Torn, stained, soaked with blood that is not his. His face is clean. His hair is wet. He has washed himself, but the cold has not left him. He looks like a man who has just walked out of a storm and cannot remember what sunlight feels like.
+Footsteps. Heavy. Deliberate. Victor appears from the adjoining bathroom, a towel draped over his shoulders, water still dark in his hair. He is still wearing the clothes from the battle. Torn, stained, soaked with blood that is not his. His face is clean. His hair is wet. He has washed himself, but the cold has not left him. He looks like a man who has just walked out of a storm and cannot remember what sunlight feels like.
 
 His eyes find hers.
 
@@ -122,9 +118,9 @@ His jaw tightens. "I told you not to worry."
 
 "I am not worrying. I am here."
 
-He stares at her for a long moment. Then he steps back. "Come in."
+He stares at her for a long moment. Then he steps aside. "I was just —" He gestures at his half-washed face. His half-cleaned clothes.
 
-She walks inside. The quarters are warm. Her clothes are thrown over the chair next to Victor's. Her satchel sits on the desk beside his maps. The window is open a crack to let in the night air. It feels different than the night of the ceremony. Not a shrine anymore. A home.
+She walks inside. The quarters are warm. Her clothes are thrown over the chair next to Victor's. The window is open a crack to let in the night air. It feels different than the night of the ceremony. Not a shrine anymore. A home.
 
 She sets her satchel on the desk. Turns to face him.
 
@@ -138,7 +134,7 @@ He looks down. His left forearm is torn. A gash, three inches long, oozing dark 
 
 She walks toward him. Takes his arm. Gently. He does not pull away. He never pulls away anymore. But his muscles are rigid. Taut. Like a wire wound too tight.
 
-She pulls a clean cloth from her satchel. Wrings it in a basin of water. Presses it against the wound. He flinches. Just barely. She feels it through the bond. A spike of sensation, sharp and bright, like pain and relief tangled together.
+She pulls a clean cloth wrapped in dried lavender from her satchel. Wrings it in a basin of water. Presses it against the wound. He flinches. Just barely. She feels it through the bond. A spike of sensation, sharp and bright, like pain and relief tangled together.
 
 "You fought today," she says. Quietly. Not a question. A statement.
 
@@ -172,9 +168,11 @@ He looks at her. Really looks at her. Not with the Alpha's eyes. Not the eyes of
 
 She leans up. Kisses him.
 
-Not a ceremony kiss. Not a desperate, aching kiss born of months of restraint. This is something quieter. Something more certain. Her lips against his, warm and steady, the bond humming between them like a living thing, like a fire that refuses to go out. He closes his eyes. His hand comes up to her waist. His thumb presses into the fabric of her shirt. He holds her like she is the only solid thing in a world that has gone liquid.
+Soft. Slow. Her lips against his, warm and steady, the bond humming between them like a fire that refuses to go out. It is a kiss that says she is there. That she is not going anywhere. His hand comes up to her waist. His thumb presses into the fabric of her shirt. He holds her like she is the only solid thing in a world that has gone liquid.
 
-When they break apart, he is breathing hard. Not from passion. From release. From the pressure of holding something inside for too long and finally letting it out.
+When they break apart, he is breathing hard. Not from passion. From release. From the pressure of holding something inside for too long and finally letting it out. She rests her forehead against his. He breathes her in. For a moment the world is just this room, just the two of them, just the bond humming between them like a steady heartbeat.
+
+Then reality settles in.
 
 "Gage left," Victor says. His voice is low. Flat. "He does not trust me."
 
@@ -184,7 +182,7 @@ Amelia nods. "I know."
 
 "He saw you fight. He saw what your pack is capable of. He felt the bond. He could feel it, couldn't he?"
 
-Victor's eyes widen. Just slightly. "He felt it?"
+Victor's eyes widen. Just slightly. "Gage felt the bond?"
 
 "The pack can feel your stress. Your fear. Your determination. The bond makes you transparent. When the fight was happening, the whole compound was vibrating. I doubt Gage didn't notice something was different about your pack."
 
@@ -204,7 +202,7 @@ He opens his eyes. Stares at her. A flicker of something in his face. Not a smil
 
 "You think I can do this?" he asks. "Unite them? Make them see that the Hollow King is the enemy. Not each other?"
 
-"I know you can. Because you already started today. You admitted you were too slow. You agreed to Gage's terms. You fought instead of standing on the sidelines being the Alpha who gives orders." She pauses. "That is not the same man who brought me to the compound and told Perseus I was a witness and not a stray."
+"I know you can. Because you already started today. You admitted you were too slow. You agreed to Gage's terms. You fought instead of standing on the sidelines being the Alpha who gives orders." She pauses. "I know you. And you're the one man who only changes rules when they absolutely need to be changed." She smiles faintly. "You're not the same man who brought me to the compound and told Perseus I was a witness and not a stray. You've changed. You're growing."
 
 He almost smiles. "You remember that?"
 
@@ -212,7 +210,7 @@ He almost smiles. "You remember that?"
 
 She lets her hands fall. Steps back. The bond hums between them. Warm, steady, aching with everything neither of them is saying yet.
 
-Victor turns to the window. Looks out at the valley. The moon is not out yet. Not high. Not silver. Not the witness it will be when the time comes. But the sky is dark. Clear. The stars are faint but visible.
+Victor turns to the window. Looks out at the valley. The moon is not out yet. Not high. Not silver. Not the witness it will be when the time comes. But the sky is wide and deep above the pines. Cold, clear. Stars scattered like frost on black glass. They catch on the mountain ridges and hold for a moment before fading behind the tree line.
 
 "Gage will come back," he says. "The Hollow King will come back. And when both of them do, this alliance will either hold or it will break. I know which one is more likely."
 
