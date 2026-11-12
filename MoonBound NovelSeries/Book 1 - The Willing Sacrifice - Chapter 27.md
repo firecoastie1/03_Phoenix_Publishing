@@ -56,7 +56,7 @@ His hands find her hips. His fingers dig into her skin. He pulls her down onto h
 
 "Let go," he growls. "Let go. I've got you."
 
-She lets go. Her body convulses around his cock. Her walls clenching, pulsing, milking him, tight, hot, overwhelming. He feels her climax through the bond, a flare of white-hot pleasure, a wave that crashes through both of them, that pulls a groan from his throat, that makes his hips jerk, that makes his cock throb, that makes him close his eyes and see nothing but her, her face, her body, her mouth, her eyes, everything, everything, everything.
+She lets go. Her body convulses around his cock. Her walls clenching, pulsing, milking him, tight, hot, overwhelming. He feels her climax through the bond, a flare of white-hot pleasure, a wave that crashes through both of them, that pulls a groan from his throat, that makes his hips jerk, that makes his cock throb, that makes him close his eyes and see nothing but her, her face, her body, her mouth, her eyes, everything.
 
 He follows. He doesn't hold back. He doesn't fight it. He drives into her one last time, deep, deep, buried to the hilt, and he comes. His cock pulses. His body shudders. His release floods her, hot, thick, filling her, claiming her, completing her. The bond catches every drop, every pulse, every drop of his seed deep inside her, amplifies it, carries it through the connection, making his orgasm a white-hot star that burns through both of them, that makes them both cry out, both tremble, both shake, both fall into the same breathless, breaking, perfect moment.
 
