@@ -102,4 +102,6 @@ Then he turns and walks away. The Hanley warriors follow. They leave the ridge. 
 
 Victor presses his hand to his chest. It is warm. Hot. He feels the bond in his chest — a living weight, and Amelia is there. Not with words. Not with images. Just the steady, warm, unshakable certainty that she is with him. That she always will be.
 
+He stands alone on the ridge. The fog is gone. The wounded are being tended. The plain stretches empty in every direction. But the cold remains — in the soil, in the air, in the hollowed warrior's still body. A chill that does not belong in the world of the living.
+
 The Hollow King has returned. And for the first time, the enemy is seen.
