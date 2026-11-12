@@ -200,16 +200,16 @@ His body.
 
 Not his thoughts. Not his feelings. His body. Fully. Completely. She feels him — the set of his shoulders, the tension in his jaw, the way he grips the edge of the table, his knuckles white, his spine rigid. And beneath it, lower, she feels him — the thick weight of him, the hard line of his body pressing against restraint, the heat building in his groin, the pulse throbbing low and steady.
 
-She stops breathing. Her fingers tighten around the mortar. The bond is so wide, so open, so unfiltered that every sensation he feels radiates through her like a current — his pulse, his breath, the tension in every muscle, the weight of him, and beneath it all, the heat pooling low in her body, her skin flushing, the soft part of her thighs pressing together instinctively.
+She stops breathing. Her fingers tighten on the edge of the table. The bond is so wide, so open, so unfiltered that every sensation he feels radiates through her like a current — his pulse, his breath, the tension in every muscle, the weight of him, and beneath it all, the heat pooling low in her body, her skin flushing, the soft part of her thighs pressing together instinctively.
 
 Her breath hitches. Her knees weaken. The heat in her body mirrors his — a slow, spreading ache between her legs, her nipples hardening against the fabric of her shirt, her skin electric beneath her own awareness. The bond is too open. It carries everything. Every millimeter of distance between them. Every second he is fighting to stay away. Every heartbeat straining against restraint.
 
 She presses her knees together. Hard. Breathes through the heat. Tries to steady herself. But the bond doesn't let her. It carries the weight of his restraint, the tension in his muscles, the way his hands grip the table, and the heat between them is too thick, the bond too raw, the desire too real.
 
-Her fingers dig into the mortar. Crush the herbs. Blood wells at the cut on her knuckles. She doesn't feel it. All she feels is him. The heat of him. The tension of him. The way his body fights to stay rigid while every instinct screams at him to reach for her.
+Her fingers dig into the table. Blood wells at the cut on her knuckles. She doesn't feel it. All she feels is him. The heat of him. The tension of him. The way his body fights to stay rigid while every instinct screams at him to reach for her.
 
 She tries to push calm through the bond. Tries to give him what he needs. But her own body is too far gone, her own restraint too thin, her own flesh pressing against her own thigh in a rhythm she cannot control. The bond carries the heat between them like a live wire. It connects them. It amplifies them. It makes the space between them feel like the thinnest sheet of glass, about to shatter.
 
 She closes her eyes. Grips the edge of the table. And waits for it to pass.
 
-The bond flares. A spark of something — not words, not images, but raw feeling. Surprise. Gratitude. Hunger. It hits her like a current, making her knees weak. She opens her eyes. The mortar is crushed. The herbs are mixed. Her hands are shaking. But the bond is steady. The warmth is there. He feels it. He knows. And somewhere, he is breathing the same way she is.
+The bond flares. A spark of something — not words, not images, but raw feeling. Surprise. Gratitude. Hunger. It hits her like a current, making her knees weak. She opens her eyes. The herbs are mixed. Her hands are shaking. But the bond is steady. The warmth is there. He feels it. He knows. And somewhere, he is breathing the same way she is.
