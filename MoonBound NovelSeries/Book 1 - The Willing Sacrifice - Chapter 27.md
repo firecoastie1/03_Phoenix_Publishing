@@ -32,7 +32,7 @@ His fingers find her.
 
 She gasps. Her eyes widen. Her body arches against him. The bond flares, a flare of heat and need and want so sharp it makes him see stars. He feels her, her pulse, her heat, the wetness of her, the way her body yields under his touch. He feels her wanting. She wants him. Not by magic. Not by the bond. By choice.
 
-He moves his fingers. Slow. Two fingers. Sliding through her folds, through her slick heat. She makes a sound, low, broken, entirely involuntary. Her chest rises off him. Her ass presses down against him. He feels it, her body pushing against his fingers, her body pushing against him, her body telling him everything her mouth won't say.
+He moves his fingers. Slow. Two fingers. Sliding through her folds, through her slick heat. She makes a sound, low, broken, entirely involuntary. Her thighs tense. Her hips jerk against his fingers. He feels it, her body pushing against his fingers, her body pushing against him, her body telling him everything her mouth won't say.
 
 "Victor," she whispers. Her voice is rough. Shaking. "Please."
 
