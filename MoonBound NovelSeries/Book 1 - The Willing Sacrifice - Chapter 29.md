@@ -8,7 +8,7 @@ The door opens.
 
 David walks in. No knocking. He closes the door behind him. The click of the latch is loud in the empty room. He does not sit. He stands on the other side of the table, arms crossed, jaw tight. His eyes are red. Not from crying. From exhaustion. From holding something in.
 
-"You need to talk to me," David says.
+"I need to talk to you," David says. His voice is low. Stern.
 
 Victor closes the report. Sets it down. Looks at his brother. "What is it?"
 
