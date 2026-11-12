@@ -82,7 +82,7 @@ Victor nods. The words settle in his chest, warm and steady. He sends them throu
 
 DAVID
 
-David stands at the window of the war room, watching the scouts prepare. Ten warriors. His jaw aches from clenching it. He chose them himself. Perseus made him choose, and David picked the best. Marcus Chen, who never flinches. Tessa Okafor, who has eyes like a hawk. Jalen Brooks, who can shift blind if he has to. They are the best the pack has. And Victor is sending them to stare down two hundred hollowed warriors and twenty bears.
+David watches from the window of the war room. Ten warriors. His jaw aches from clenching it. He chose them himself. Perseus made him choose, and David picked the best. Marcus Chen, who never flinches. Tessa Okafor, who has eyes like a hawk. Jalen Brooks, who can shift blind if he has to. They are the best the pack has. And Victor is sending them to stare down two hundred hollowed warriors and twenty bears.
 
 *It is not enough.* The thought repeats in his head like a drumbeat. *It is never enough.*
 
