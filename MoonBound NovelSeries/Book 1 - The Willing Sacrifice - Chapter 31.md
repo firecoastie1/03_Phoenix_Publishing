@@ -12,7 +12,7 @@ David kneels beside the hollowed warrior. His jaw is set. His fists are clenched
 
 Gage Hanley stands five paces from the hollowed body. Blood on his face. A gash on his left forearm, already clotting dark. He has not looked at Victor once since he shifted back to human form. His warriors are moving. Tending to their own, gathering weapons, scanning the dark. They move like soldiers. Like professionals. Like a pack that does not panic.
 
-"Your Alpha," Gage says. His voice is flat. Not a question. A statement.
+"You're the Alpha," Gage says. His voice is flat. Not a question. A statement.
 
 Victor turns to face him. "What?"
 
@@ -38,7 +38,7 @@ Gage stares at him. Something flickers in his eyes. Surprise, maybe, or the fain
 
 Gage studies him for a long moment. The silence stretches. The wounded groan. The wind moves across the plain, carrying the smell of smoke and something sharper. Something metallic, like old blood dried into the soil.
 
-Finally, Gage turns to his warriors. "We take him with us. We bring him to our healers." He pauses. "We treat him. And we do not speak of this to anyone."
+Finally, Gage turns to his warriors. "We cannot leave him on this plain." He pauses. The young wolf beside him has not taken his eyes off the hollowed body.
 
 One of his warriors steps forward. A young wolf, barely old enough to shave, eyes wide with shock. "Alpha, he is one of ours. We cannot leave him here."
 
