@@ -32,7 +32,7 @@ She gasps. Catches herself on the counter. The pain is overwhelming. The beauty 
 
 And then it is over.
 
-The healing tent is quiet. Her hands are shaking. The mortar lies shattered on the floor. She can feel him through the bond — not warm. Not calm. Violent. Fierce. Alive.
+The healing tent is quiet. Her hands are shaking. The mortar lies on the floor. She can feel him through the bond — not warm. Not calm. Violent. Fierce. Alive.
 
 She stumbles to the door. Steps outside. Looks south. The sky is dark. The air is heavy. She knows — with absolute certainty — that he is fighting.
 
