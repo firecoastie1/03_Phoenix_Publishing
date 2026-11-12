@@ -66,7 +66,7 @@ They lie there. Together. Breathing. Touching. Connected.
 
 He shifts. Slowly. Pulls his cock out. She makes a small sound, disappointed, soft, reluctant. He smiles. Small. Private. He rolls to his side. Pulls her against him. Her back to his chest. Her leg over his. Her hand in his. The sheet falls over them. Both of them. Together.
 
-He closes his eyes. And for the first time in three years, he sleeps without dreaming of being alone.
+He closes his eyes. And for the first time in three years, he stays still without dreaming of being alone.
 
 ---
 
