@@ -60,7 +60,7 @@ She lets go. Her body convulses around his cock. Her walls clenching, pulsing, m
 
 He follows. He doesn't hold back. He doesn't fight it. He drives into her one last time, deep, buried to the hilt, and he comes. His cock pulses. His body shudders. His release floods her, hot, thick, filling her, claiming her, completing her. The bond catches every drop, every pulse, every drop of his seed deep inside her, amplifies it, carries it through the connection, making his orgasm a white-hot star that burns through both of them, that makes them both cry out, both tremble, both shake, both fall into the same breathless, breaking, perfect moment.
 
-He collapses against her. His face buried in her hair. His body pressed flush against hers. His cock still inside her, softening, but still connected, still touching, still theirs. Her body is trembling. Her breathing is ragged. The bond is quiet. Not silent. Quiet. Like a storm that has passed. Like a fire that has burned down to embers. Like two hearts beating in sync, steady and slow and entirely, completely, done.
+She collapses against him. Her face buried in his neck. Her body pressed flush against his. His cock still inside her, softening, but still connected, still touching, still theirs. Her body is trembling. Her breathing is ragged. The bond is quiet. Not silent. Quiet. Like a storm that has passed. Like a fire that has burned down to embers. Like two hearts beating in sync, steady and slow and entirely, completely, done.
 
 They lie there. Together. Breathing. Touching. Connected.
 
