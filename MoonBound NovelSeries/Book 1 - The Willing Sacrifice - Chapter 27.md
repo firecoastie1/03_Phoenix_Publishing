@@ -94,7 +94,7 @@ She thinks about the healing tent. About the herbs. About whatever comes next.
 
 She gets out of bed. Bare feet on the cold floor. The ache between her thighs flares — a soft, sweet reminder of what just happened. She smiles. Tiny. Private.
 
-She dresses. Quietly. He doesn't stop her. She pauses at the door. Looks back at him — awake, watching her, his hair messy, his face softer than she has ever seen it.
+She dresses. Quietly. He doesn't stop her. She pauses at the door. Looks back at him, awake, watching her, his hair messy, his face softer than she has ever seen it.
 
 She touches the crescent moon tattoo on her wrist. It is warm. Hot, actually. She pulls her hand away. The bond hums between them. Warm. Steady. Open.
 
