@@ -90,7 +90,7 @@ She is his. Not by fate. Not by decree. By choice. By flesh. By blood. By everyt
 
 She shifts. Her hand finds his jaw. His stubble scrapes against her fingertips. His breathing is slow and even. He is asleep. The bond carries the steady rhythm of his heart. Steady. Warm. Full.
 
-She thinks about the healing tent. About the herbs. About the supplies she needs to gather for the ceremony. About whatever comes next.
+She thinks about the healing tent. About the herbs. About whatever comes next.
 
 She gets out of bed. Bare feet on the cold floor. The ache between her thighs flares — a soft, sweet reminder of what just happened. She smiles. Tiny. Private.
 
