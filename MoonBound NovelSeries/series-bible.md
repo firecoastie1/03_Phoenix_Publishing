@@ -156,7 +156,7 @@ The modern world exists alongside a hidden supernatural layer governed by shifte
 
 **Voice:** Casual, warm, a little too confident. He makes jokes when he should be serious.
 
-#### David Landry — Lieutenant of the Blackwood Pack
+#### David Beaumont — Lieutenant of the Blackwood Pack
 
 **Physical:** Late 20s. Athletic build, short-cropped dark hair, intense brown eyes. He is the pack's combat specialist and most physically imposing warrior besides Victor. He has a scar through his left eyebrow.
 **Personality:** Loyal. Fierce. Impulsive. He is the kind of shifter who charges first and asks questions later. He respects Victor deeply but does not always agree with him. He is passionate about pack defense and has a hot temper that he struggles to control.
@@ -259,7 +259,7 @@ The modern world exists alongside a hidden supernatural layer governed by shifte
 ```
 Victor Slade — Mate — Amelia Wren
 Victor Slade — Beta — Perseus Beaumont (trusted ally, occasional disagreement)
-Victor Slade — Lieutenant — David Landry (loyal but impulsive, Victor manages his temper)
+Victor Slade — Lieutenant — David Beaumont (loyal but impulsive, Victor manages his temper)
 Victor Slade — Elder — Josiah Amos (respected advisor, Victor seeks his counsel)
 Victor Slade — Omega — Emila Sterling (pack's emotional center, healer)
 Victor Slade — Warrior — Samuel LaBlanc (pack's tracker, loyal)
@@ -270,14 +270,14 @@ Victor Slade — Warrior — Raine Blackwell (mutual respect, combat skill)
 Victor Slade — Omega — Cassian Bennett (encourages scholarship)
 
 Perseus Beaumont — Mate — Lyra Thorne (Book 2: Panther Shifter. Currently, intellectual debate partners.)
-Perseus Beaumont — David Landry — Tactical planning partners. Perseus calculates, David executes.
+Perseus Beaumont — David Beaumont — Tactical planning partners. Perseus calculates, David executes.
 Perseus Beaumont — Josiah Amos — Mutual respect. Perseus seeks Josiah's historical perspective.
 Perseus Beaumont — Emila Sterling — Friendly rivalry. Emila teases Perseus for being too calculating.
 
-David Landry — Mate — Hazel Wilder (Book 3: Bear Shifter. Bond through combat training.)
-David Landry — Grayden Brooks — Mentor/mentee. David teaches patience; Grayden wants speed.
-David Landry — Raine Blackwell — Combat partners. Mutual respect in fighting.
-David Landry — Marco Hayes — Friendly. David keeps Marco in line.
+David Beaumont — Mate — Hazel Wilder (Book 3: Bear Shifter. Bond through combat training.)
+David Beaumont — Grayden Brooks — Mentor/mentee. David teaches patience; Grayden wants speed.
+David Beaumont — Raine Blackwell — Combat partners. Mutual respect in fighting.
+David Beaumont — Marco Hayes — Friendly. David keeps Marco in line.
 
 Raine Blackwell — Mate — Kael Ashwood (Book 5: Dragon Shifter. Mission prep together.)
 ```
@@ -322,7 +322,7 @@ By the series finale, all shifter types are united, the Hollow King is confronte
 **Series Progression:** Expands the world to include panther shifters. Introduces the Hanley pack as a recurring antagonist faction. Demonstrates the mate bond's power to unite different shifter types.
 
 #### Book 3: Bound by Borders
-**Protagonist:** David Landry (Lieutenant) × Hazel Wilder (Bear Shifter)  
+**Protagonist:** David Beaumont (Lieutenant) × Hazel Wilder (Bear Shifter)  
 **Mate Bond:** Wolf Lieutenant × Bear Shifter  
 **Setting:** Ironridge Territory (Rocky Mountains)  
 **Plot:** David volunteers for a military-style mission to investigate disappearances along the mountain territory. He encounters Hazel Wilder — a bear shifter warrior who is fiercely independent and suspicious of wolves. The mate bond hits David hard. Hazel is furious — she sees wolf-bear bonds as a political threat, not a romantic one. The book's conflict is physical: a bear-wolf war that has been simmering for decades is about to ignite. David must prove that his bond to Hazel is genuine, and Hazel must prove that she can value strength beyond brute force. The Hollow King's influence is growing — they witness hollowed warriors from both sides.
@@ -523,7 +523,7 @@ By the series finale, all shifter types are united, the Hollow King is confronte
 
 | Date | Changes |
 |------|---------|
-| 2026-11-03 | Added full last names to all main characters (Slade, Wren, Beaumont, Thorne, Landry, Wilder, Amos, Sterling, LaBlanc, Roche, Brooks, Dove, Hayes, Blackwell, Ashwood, Bennett) |
+| 2026-11-03 | Added full last names to all main characters (Slade, Wren, Beaumont, Thorne, Wilder, Amos, Sterling, LaBlanc, Roche, Brooks, Dove, Hayes, Blackwell, Ashwood, Bennett) |
 | 2026-11-03 | Updated book titles to final versions: The Willing Sacrifice, Shifted Trust, Bound by Borders, The Skeptical Vixen, Sins of Fire and Fur, Stolen Currents, Unleashed Hearts |
 | 2026-11-03 | Hollow King's true name set to Alaric |
 | 2026-11-03 | Removed "Void-Eater" designation entirely |
