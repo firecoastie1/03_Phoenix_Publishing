@@ -2,7 +2,7 @@
 
 VICTOR
 
-Morning reports. That's what they are. Routine. Bureaucracy disguised as survival. Victor sits at the head of the war room table, fingers steepled, eyes on Perseus's maps. David paces. Emila refills tea he doesn't drink. Josiah watches from the corner with eyes closed. Amelia is in the healing tent. He can feel her through the bond — a steady warmth, like a candle burning low. It keeps him grounded. Keeps him focused. He focuses on the reports. Northern border: clear. Supply runs: on schedule. New arrivals: three minor wolf families seeking shelter. He signs the papers. Nods. Says the right words. All the while, the bond hums in his chest, connecting him to her, to the pack, to the weight of a thousand decisions pressing down on his shoulders.
+Morning reports. That's what they are. Routine. Bureaucracy disguised as survival. Victor sits at the head of the war room table, fingers steepled, eyes on Perseus's maps. David paces. Emila refills tea he doesn't drink. Josiah watches from the corner with eyes closed. Amelia is in the healing tent. He can feel her through the bond — her warmth, the soft weight of her body, the memory of his cock inside her still echoing in her flesh. It keeps him grounded. Keeps him focused. He focuses on the reports. Northern border: clear. Supply runs: on schedule. New arrivals: three minor wolf families seeking shelter. He signs the papers. Nods. Says the right words. All the while, the bond hums in his chest, connecting him to her, to the pack, to the weight of a thousand decisions pressing down on his shoulders.
 
 The meeting moves on. Supply inventories. Patrol rotations. Medical updates from Emila about the healing tent — herb stocks are low, but she's managing with what she has. He nods. Signs. Repeats. But his attention is divided. Half of him is here, in the war room. The other half is with her — in the healing tent, mixing herbs, feeling the bond like a thread pulling at his chest.
 
@@ -40,7 +40,7 @@ David's face goes white. Then red. "He's arming himself with *that*? In our terr
 
 "Not our territory," Perseus corrects. "Shadowfen. But it's overlapping. And if he pushes further, it will be ours. Gage is calling the Blackwood weak — saying we hesitated, that we won't fight back. He says our Alpha bonded with a human like a coward hiding behind magic instead of facing the Hollow King directly." He meets Victor's gaze. "He's using the bond against us. Calling it proof that you've lost your edge, Victor."
 
-Victor feels the bond tighten in his chest. Amelia's warmth flickers — concern, sharp and sudden. He sends calm back through the bond without thinking. *I'm fine.* The warmth settles. He keeps his face neutral.
+Victor feels the bond tighten in his chest. Amelia's warmth flickers — concern, sharp and sudden. He sends calm back through the bond without thinking. *I'm fine.* The warmth settles, heavy and wet with the memory of him inside her. He keeps his face neutral.
 
 "Does anyone else know about the hollowing?" Victor asks.
 
@@ -76,7 +76,7 @@ Victor holds his gaze. "What should I do?"
 
 Josiah's eyes close again. "You do what you have always done. Lead. Protect. Trust your pack. The bond does not make you weak, Victor. It makes you more than one."
 
-Victor nods. The words settle in his chest, warm and steady. He sends them through the bond to Amelia — not the words, just the feeling. Gratitude. Resolve. The warmth in the bond brightens in response.
+Victor nods. The words settle in his chest, warm and steady. He sends them through the bond to Amelia — not the words, just the feeling. Gratitude. Resolve. She feels him through the bond too — the ghost of his cock still buried in her, the ache in her thighs where she rode him, the way her body remembers his. The warmth in the bond brightens in response.
 
 ---
 
