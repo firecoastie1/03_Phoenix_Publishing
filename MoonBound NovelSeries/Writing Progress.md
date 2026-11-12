@@ -27,7 +27,8 @@
 |- `Book 1 - The Willing Sacrifice - Chapter 26.md` — WRITTEN (~1,870 words)
 |- `Book 1 - The Willing Sacrifice - Chapter 27.md` — WRITTEN + REVISED (~3,510 words)
 |- `Book 1 - The Willing Sacrifice - Chapter 28.md` — WRITTEN + REVISED (~2,070 words)
-|- `Book 1 - The Willing Sacrifice - Chapter 29.md` — WRITTEN (~1,680 words)
+||- `Book 1 - The Willing Sacrifice - Chapter 29.md` — WRITTEN (~1,680 words)
+|- `Book 1 - The Willing Sacrifice - Chapter 30.md` — WRITTEN (~7,700 words)
 
 ## Chapter Status
 | Chapter | Status | Notes |
@@ -60,27 +61,27 @@
 | 26 | ✅ Written | The Moonlit Rite — Ceremony. Vows. Bond detonation. First kiss. Second floor quarters. |
 | 27 | ✅ Written + Revised | The Morning After — High heat post-ceremony intimacy. Bond transparency. Pack reactions. Victor in war room, Amelia in healing tent. |
 | 28 | ✅ Written + Revised | The Hanley Threat Grows — Perseus brings updated intelligence: Hanley fortification, hollowed warriors, bears recruited. Victor sends scouts instead of full strike. David's frustration. Perseus/David perspective. |
-| 29 | ✅ Written | The Confrontation — David confronts Victor privately about Hanley and the bond. "You're the Alpha. You can't afford to be attached." Victor shuts it down. Perseus/David corridor scene about love vs strength. |
-| 30 | Pending | |
-| 31 | Pending | |
-| 32 | Pending | |
-| 33 | Pending | |
-| 34 | Pending | |
-| 35 | Pending | |
-| 36 | Pending | |
-| 37 | Pending | |
-| 38 | Pending | |
-| 39 | Pending | |
-| 40 | Pending | |
+|| 29 | ✅ Written | The Confrontation — David confronts Victor privately about Hanley and the bond. "You're the Alpha. You can't afford to be attached." Victor shuts it down. Perseus/David corridor scene about love vs strength. |
+|| 30 | ✅ Written | Border battle — Hollow King beast attacks scouts, Victor feels shift through bond, Amelia feels the shift sensation, Gage Hanley joins the fight, Hanley warrior hollowed, enemy finally seen. |
+|| 31 | Pending | |
+|| 32 | Pending | |
+|| 33 | Pending | |
+|| 34 | Pending | |
+|| 35 | Pending | |
+|| 36 | Pending | |
+|| 37 | Pending | |
+|| 38 | Pending | |
+|| 39 | Pending | |
+|| 40 | Pending | |
 
 ## Current Status
 |- **Date:** 2026-11-11
-|- **Chapters Written:** 29 of 40 (Ch 1–29)
-|- **Recent Work:** Ch 26 (Moonlit Rite ceremony), Ch 27 (post-ceremony intimacy, timeline/POV fixes, Mrs. Calloway), Ch 28 (Hanley threat, Perseus intelligence, scouts), Ch 29 (David/Victor confrontation). All commits pushed to main.
+|- **Chapters Written:** 30 of 40 (Ch 1–30)
+|- **Recent Work:** Ch 26 (Moonlit Rite ceremony), Ch 27 (post-ceremony intimacy, timeline/POV fixes, Mrs. Calloway), Ch 28 (Hanley threat, Perseus intelligence, scouts), Ch 29 (David/Victor confrontation), Ch 30 (border battle, Hollow King beast, Amelia feels shift through bond). All commits pushed to main.
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 - **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-|- **Next:** Chapter 30 — The Hollowing Returns
+|- **Next:** Chapter 31 — The Aftermath
