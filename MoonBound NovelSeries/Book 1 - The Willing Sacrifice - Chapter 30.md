@@ -50,7 +50,7 @@ Behind them, on the ridge, Gage Hanley and his warriors are watching. Two hundre
 
 Victor does not think. He charges.
 
-The world narrows. The fog. The screams. The hunger. He shifts — bone cracking, flesh tearing, a massive wolf bursting from his human form — and he hits the fog like a storm.
+The world narrows. The fog. The screams. The hunger. A massive wolf bursting from the tree line, he hits the fog like a storm.
 
 The first beast meets him with claws like knives and a maw full of teeth made from shadow. He catches it in mid-air, slams it into the ground, and tears its throat out. It dissolves into smoke. Black. Rotten.
 
