@@ -2,7 +2,7 @@
 
 VICTOR
 
-Evening settles over the compound. The war room is quiet. Papers stacked, maps rolled, lamps lit. Victor stays behind after the others have left. He sits at the head of the table, staring at the same report he has not read in ten minutes. The bond hums in his chest — Amelia is in the healing tent, asleep, her warmth steady and slow. It grounds him. But it does not quiet his thoughts.
+Evening settles over the compound. The war room is quiet. Papers stacked, maps rolled, lamps lit. Victor stays behind after the others have left. He sits at the head of the table, staring at the same report he has been reading for ten minutes. The bond hums in his chest — Amelia is in the healing tent, asleep, her warmth steady and slow. It grounds him. But it does not quiet his thoughts.
 
 The door opens.
 
