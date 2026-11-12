@@ -116,7 +116,7 @@ Not a sound. Not a scent. A shift.
 
 It is subtle. Barely noticeable. But it is there — a ripple in the air, a pressure on his skin, like walking into a room where everyone's attention has already turned toward him.
 
-He keeps walking. But the feeling grows. It is like walking into a current. People glance up as he passes. Not stare. Not gawk. But glance. A warrior by the supply room door looks at him and nods. A healer carrying a tray of herbs stops mid-step and watches him pass with a small, puzzled expression. An inner council member — Samir — looks at him with something like surprise.
+He keeps walking. But the feeling grows. It is like walking into a current. People glance up as he passes. A warrior by the supply room door looks at him and nods. A healer carrying a tray of herbs stops mid-step and watches him pass with a small, puzzled expression. An inner council member — Samir — looks at him with something like surprise.
 
 He reaches the war room. He pushes the door open.
 
