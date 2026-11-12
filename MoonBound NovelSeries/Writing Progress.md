@@ -27,7 +27,7 @@
 |- `Book 1 - The Willing Sacrifice - Chapter 26.md` — WRITTEN (~1,870 words)
 |- `Book 1 - The Willing Sacrifice - Chapter 27.md` — WRITTEN + REVISED (~3,510 words)
 |- `Book 1 - The Willing Sacrifice - Chapter 28.md` — WRITTEN + REVISED (~2,070 words)
-||- `Book 1 - The Willing Sacrifice - Chapter 29.md` — WRITTEN (~1,680 words)
+|- `Book 1 - The Willing Sacrifice - Chapter 29.md` — WRITTEN (~1,680 words)
 |- `Book 1 - The Willing Sacrifice - Chapter 30.md` — WRITTEN (~7,700 words)
 
 ## Chapter Status
@@ -35,8 +35,8 @@
 |---------|--------|-------|
 | 1 | ✅ Written | Patrol → compound → quarters → calls council. Ends before meeting. |
 | 2 | ✅ Written | Full council, Veil exchange (Perseus pushes back), Josiah warns, Emila scene, balcony. David "keep your head cool" |
-| 3 | ✅ Written + Revised | Amelia POV — morning routine, clinic, Mrs. Calloway, cottage, first bond pull. Cat → Luna (slate-black, orange eyes). Grandmother's packet scent → pancakes/bacon/eggs. Removed "shifters/humans in town" (she doesn't know). Line 75 "She" fixes. Choppy sentences combined. "It/You/Everything is fine" progression. Semicolons on line 147 |
-| 4 | ✅ Written + Revised | Bond recognition — Amelia gathers herbs at boundary (pull + tingling), Victor on patrol feels same sensation. Choppy sentences combined (line 7, line 19). Comma on line 13, line 51. "Chest" instead of "sternum" (line 37). "She told herself" repetition fixed (line 71). Line 79 combined sentence, removed "doubt". Line 81 "couldn't name, or reach" + added "hook/thread" back |
+|| 3 | ✅ Written + Revised | Amelia POV — morning routine, clinic, Mrs. Calloway, cottage, first bond pull. Cat → Luna (slate-black, orange eyes). Grandmother's packet scent → pancakes/bacon/eggs. Removed "shifters/humans in town" (she doesn't know). Line 75 "She" fixes. Choppy sentences combined. "It/You/Everything is fine" progression. Semicolons on line 147 |
+|| 4 | ✅ Written + Revised | Bond recognition — Amelia gathers herbs at boundary (pull + tingling), Victor on patrol feels same sensation. Choppy sentences combined (line 7, line 19). Comma on line 13, line 51. "Chest" instead of "sternum" (line 37). "She told herself" repetition fixed (line 71). Line 79 combined sentence, removed "doubt". Line 81 "couldn't name, or reach" + added "hook/thread" back |
 | 5 | ✅ Written + Revised | Victor returns to compound shaken (Perseus notices, David teases "spooked by a squirrel"), Amelia's day at clinic (tingling lingers), moon tattoo burns in afternoon, wolf dream at night, wakes still tingling. Opening rewritten to next morning (no porch continuation). Smell paragraphs trimmed. Removed "grandmother's old" clinic (just Amelia's clinic). Repetition removed (lines 9-13/21-25). Line 43 "dismounted, tied his horse, and walked inside." Line 49-53 "eyes with which are usually sharp, focused, and commanding were distant and unfocused" Line 65 "David was joking, mostly." Added character name labels at POV breaks |
 | 6 | ✅ Written + Revised | Missing hunter Marcus LaBlanc (no body, no blood, no tracks). Emergency council — David wants immediate search, Perseus argues caution, Perseus recalls Josiah's old words from Ch2 ("dark would return" — no repeat). Victor orders full search, no one goes alone. Amelia hears rumors. Victor rides boundary alone, finds scent ends cleanly, feels pull north but holds back. Opening rewritten ("Marcus LaBlanc was gone."). Line 27 dashes → commas, comma removed between way/in. Line 43 "closed it and nodded." "Pack decrees" removed. Character name labels at POV breaks |
 | 7 | ✅ Written + Revised | Amelia investigates boundary area. Hears rumors from townspeople (strange lights, dog covered in frost, dark shapes in trees) — no pack/Veil knowledge. Packs supplies, walks north, tingling intensifies. Enters forest — air thick with low vibration, trees darker, metallic/electric smell. Shadows flicker wrong, stop when she turns. Feels watched by unseen presence. Sets up camp near boundary. Dreams of dark forest, shadows in mist. Wakes still tingling. Written from Amelia's human POV — no pack/Veil terminology. "Amelia" label at start. Line 51 "but also, made her want to stay." Line 55 "Their trunks wider...and their leaves a darker green." Line 59 "Shadows moved between the trees, not just..." Line 71 "worse than fear, it was the knowledge." Line 89 smoother sentence flow. Line 99 commas replace em-dashes. Style locked in for future Amelia chapters |
@@ -55,15 +55,15 @@
 | 20 | ✅ Written | Research — Amelia discovers bond+Hollow King pattern, presents to war room, Victor's fury at being used by both sides. |
 | 21 | ✅ Written | The Second Attack: Hollow King strikes inside compound — Reid (Victor's oldest friend, Perseus's brother) hollowed, Victor puts him down, pack on lockdown, Amelia stays and lets Victor break. |
 | 22 | ✅ Written | The Suspects: Perseus returns from Hanley, discovers Reid hollowed, walks away in silence. Investigation begins. David wants punishment, Perseus wants evidence, Josiah wants patience. Victor paralyzed by guilt. Amelia challenges him. |
-| 23 | ✅ Written + Revised | The Full Moon: Amelia walks from compound guest room to clearing. Hold hands, feel warmth and heartbeat, fight restraint. Kiss — warm, sure, desperate, hands on waist, fingers in shirt. "I want you close, but I won't cross a line." Temple kiss, walk back together, Victor's internal guilt about Reid (held his body while it went cold). 0 em-dashes. ~1,400 words. |
-| 24 | ✅ Written | The Traitor Revealed — Perseus discovers Hollow King dissolved wards from outside (not traitor). Amelia + Victor kitchen scene: close proximity, physical tension, hand hold, "I'm glad you're here." Bond hums, warmth, pulse through touch. Amelia meets Josiah — wards as mirrors reflecting pack's certainty. |
-| 25 | ✅ Written | The Decision — Victor calls pack gathering, reveals Hollow King's true nature (Mind Whisper, Void Power). Pack believes him. Victor announces Moonlit Rite under next full moon (3 days). Amelia told by Josiah, says yes. Intimate healing tent scene: temple kiss, hand on shoulder, "I'm scared too" exchange. |
-| 26 | ✅ Written | The Moonlit Rite — Ceremony. Vows. Bond detonation. First kiss. Second floor quarters. |
-| 27 | ✅ Written + Revised | The Morning After — High heat post-ceremony intimacy. Bond transparency. Pack reactions. Victor in war room, Amelia in healing tent. |
-| 28 | ✅ Written + Revised | The Hanley Threat Grows — Perseus brings updated intelligence: Hanley fortification, hollowed warriors, bears recruited. Victor sends scouts instead of full strike. David's frustration. Perseus/David perspective. |
+|| 23 | ✅ Written + Revised | The Full Moon: Amelia walks from compound guest room to clearing. Hold hands, feel warmth and heartbeat, fight restraint. Kiss — warm, sure, desperate, hands on waist, fingers in shirt. "I want you close, but I won't cross a line." Temple kiss, walk back together, Victor's internal guilt about Reid (held his body while it went cold). 0 em-dashes. ~1,400 words. |
+|| 24 | ✅ Written | The Traitor Revealed — Perseus discovers Hollow King dissolved wards from outside (not traitor). Amelia + Victor kitchen scene: close proximity, physical tension, hand hold, "I'm glad you're here." Bond hums, warmth, pulse through touch. Amelia meets Josiah — wards as mirrors reflecting pack's certainty. |
+|| 25 | ✅ Written | The Decision — Victor calls pack gathering, reveals Hollow King's true nature (Mind Whisper, Void Power). Pack believes him. Victor announces Moonlit Rite under next full moon (3 days). Amelia told by Josiah, says yes. Intimate healing tent scene: temple kiss, hand on shoulder, "I'm scared too" exchange. |
+|| 26 | ✅ Written | The Moonlit Rite — Ceremony. Vows. Bond detonation. First kiss. Second floor quarters. |
+|| 27 | ✅ Written + Revised | The Morning After — High heat post-ceremony intimacy. Bond transparency. Pack reactions. Victor in war room, Amelia in healing tent. |
+|| 28 | ✅ Written + Revised | The Hanley Threat Grows — Perseus brings updated intelligence: Hanley fortification, hollowed warriors, bears recruited. Victor sends scouts instead of full strike. David's frustration. Perseus/David perspective. |
 || 29 | ✅ Written | The Confrontation — David confronts Victor privately about Hanley and the bond. "You're the Alpha. You can't afford to be attached." Victor shuts it down. Perseus/David corridor scene about love vs strength. |
 || 30 | ✅ Written | Border battle — Hollow King beast attacks scouts, Victor feels shift through bond, Amelia feels the shift sensation, Gage Hanley joins the fight, Hanley warrior hollowed, enemy finally seen. |
-|| 31 | Pending | |
+|| 31 | ✅ Written | Aftermath — Hollow King battle leaves both packs shaken, forces uneasy alliance. Victor admits fault to Gage, Gage respects his strength, notices pack unity. Amelia senses battle through bond, goes to Victor. Intimate scene — kiss, bond transparency. Victor knows alliance is temporary. |
 || 32 | Pending | |
 || 33 | Pending | |
 || 34 | Pending | |
@@ -75,13 +75,13 @@
 || 40 | Pending | |
 
 ## Current Status
-|- **Date:** 2026-11-11
-|- **Chapters Written:** 30 of 40 (Ch 1–30)
-|- **Recent Work:** Ch 26 (Moonlit Rite ceremony), Ch 27 (post-ceremony intimacy, timeline/POV fixes, Mrs. Calloway), Ch 28 (Hanley threat, Perseus intelligence, scouts), Ch 29 (David/Victor confrontation), Ch 30 (border battle, Hollow King beast, Amelia feels shift through bond). All commits pushed to main.
+|- **Date:** 2026-11-12
+|- **Chapters Written:** 31 of 40 (Ch 1–31)
+|- **Recent Work:** Ch 26 (Moonlit Rite ceremony), Ch 27 (post-ceremony intimacy, timeline/POV fixes, Mrs. Calloway), Ch 28 (Hanley threat, Perseus intelligence, scouts), Ch 29 (David/Victor confrontation), Ch 30 (border battle, Hollow King beast, Amelia feels shift through bond), Ch 31 (uneasy Hanley/Blackwood alliance, Victor admits fault, Amelia senses battle through bond, intimate quarters scene). All commits pushed to main.
 - **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 - **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-|- **Next:** Chapter 31 — The Aftermath
+|- **Next:** Chapter 32 — The Choice
