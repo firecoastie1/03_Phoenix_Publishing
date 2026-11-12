@@ -36,7 +36,7 @@ He moves his fingers. Slow. Two fingers. Sliding through her folds, through her 
 
 "Victor," she whispers. Her voice is rough. Shaking. "Please."
 
-He doesn't wait. He slides his fingers free. Pushes the sheet aside. Lines himself up at her entrance. Presses forward. Slowly. Carefully. The tip pushes through her folds. She's tight. Wet. Clenching around the air. He feels her clenching through the bond — a tight, hot ring, a pulse of shock, a wave of sensation that crashes through him like a wave. He stops. He waits. His breath comes in short, controlled bursts. His hands shake. His cock is pressed against her.
+He doesn't wait. He slides his fingers free. Pushes the sheet aside. Lines himself up at her entrance. Presses forward. Slowly. Carefully. The tip pushes through her folds. She's tight. Wet. Clenching at his touch. He feels her clenching through the bond — a tight, hot ring, a pulse of shock, a wave of sensation that crashes through him like a wave. He stops. He waits. His breath comes in short, controlled bursts. His hands shake. His cock is pressed against her.
 
 "Can I?" he says. His voice is a growl. Low. Rough. Barely human.
 
