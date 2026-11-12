@@ -26,9 +26,7 @@ She is in the healing tent. Crushing herbs. Mixing salves. The mortar feels heav
 
 Then it hits.
 
-It is not like anything she has felt before. It is not the gentle hum of the bond, the steady warmth of his presence. This is a detonation — a blast of raw, animal power that fills her chest and burns up her throat and makes her knees buckle. She drops the mortar. It shatters. Her hands are shaking. Her breath catches in her throat. She feels it — the shift. Not through words. Not through images. Through flesh. Through bone. Through instinct.
-
-She feels his muscles tensing. His spine curving. His fur erupting across his skin. The wolf — the wolf is not a costume he puts on. It is something wilder. Something older. Something ancient and terrible and magnificent. It explodes through him and she feels it in her own body, like her own muscles are tensing without permission, like her teeth are sharpening, like her lungs are pulling in air that tastes like blood and storm.
+It is not like anything she has felt before. It is not the gentle hum of the bond, the steady warmth of his presence after a long night together. This is a detonation — a blast of raw, animal power that fills her chest and burns up her throat and makes her knees buckle. She drops the mortar. It shatters. Her hands are shaking. Her breath catches in her throat. She feels it — the shift. Not through words. Not through images. Through flesh. Through bone. Through instinct. She feels his muscles tensing. His spine curving. His cock thickening even as his body warps, the last echo of his human form before the wolf takes over. The wolf — the wolf is not a costume he puts on. It is something wilder. Something older. Something ancient and terrible and magnificent. It explodes through him and she feels it in her own body, like her own muscles are tensing without permission, like her teeth are sharpening, like her lungs are pulling in air that tastes like blood and storm, like her hips are aching with the phantom weight of him.
 
 She gasps. Catches herself on the counter. The pain is overwhelming. The beauty is overwhelming. It is terrifying. It is the most beautiful thing she has ever felt.
 
@@ -98,7 +96,7 @@ David steps forward. His voice is a growl. "Back off, Gage."
 
 "Stay out of this, David." Gage meets David's gaze without flinching. "You know he is right. Look at him. Look at what he has become. This was always going to end in blood."
 
-Victor touches the crescent moon tattoo on his wrist. It is warm. Hot. He feels the bond in his chest, and Amelia is there — not with words. Not with images. Just the steady, warm, unshakable certainty that she is with him. That she always will be.
+Victor touches the crescent moon tattoo on his wrist. It is warm. Hot. He feels the bond in his chest — a living weight, the memory of his cock buried deep in her, the way her body yielded around him, the heat of her skin still burning on his — and Amelia is there. Not with words. Not with images. Just the steady, warm, unshakable certainty that she is with him. That she always will be.
 
 "He will live," Victor says again. "And I will make sure of it."
 
