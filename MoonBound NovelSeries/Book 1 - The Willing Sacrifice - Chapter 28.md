@@ -48,7 +48,7 @@ Perseus shakes his head. "Only Gage's inner circle. Darius Voss is running it. I
 
 David slams his fist on the table. "We can't just sit here and let him build an army on our border. We have to hit him now. Before he's ready. A demonstration force. Send a squadron to the fortification, show him that the Blackwood Pack is not going to back down." He turns to Victor. "Alpha."
 
-Victor holds his brother's gaze. He can feel the weight of the room. David's anger, Perseus's calculation, Josiah's quiet attention, Emila's silence. The bond hums in his chest, connecting him to Amelia, to the pack, to the weight of a decision that will shape everything.
+Victor holds his friend's gaze. He can feel the weight of the room. David's anger, Perseus's calculation, Josiah's quiet attention, Emila's silence. The bond hums in his chest, connecting him to Amelia, to the pack, to the weight of a decision that will shape everything.
 
 He considers it. The logic is sound. A demonstration force would show Hanley that the Blackwood is not weak. It would deter further expansion. But it would also be the first strike. The spark that ignites a war. And the Hollow King is still breathing down his neck. If he fights Hanley, he divides his forces. He opens himself to attack from the Hollow King's shadows.
 
