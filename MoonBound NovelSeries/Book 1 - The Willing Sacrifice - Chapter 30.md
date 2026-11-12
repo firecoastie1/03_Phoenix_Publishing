@@ -84,7 +84,7 @@ Gage approaches. He is a man again now. Blood on his face. Fury in his eyes. He 
 
 Victor meets his eyes. "He is. And he is not done."
 
-Gage holds his gaze for a long moment. The pack knows what the Hollow King is — Victor told them in the gathering, and the Hanley warriors were there too. But seeing it, fighting it, feeling its cold — that is different from hearing about it.
+Gage holds his gaze for a long moment. He has heard what the Hollow King is — Victor told his pack, and word carries fast between packs. But hearing about it and fighting it are two different things.
 
 "Your scouts," Gage says. "They are still alive?"
 
