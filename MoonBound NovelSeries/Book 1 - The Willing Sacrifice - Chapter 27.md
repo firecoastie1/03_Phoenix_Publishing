@@ -108,7 +108,7 @@ She leaves the room. Closes the door behind her. The bond hums in her chest. The
 
 VICTOR
 
-He waits until the door clicks shut. Waits a moment. Then he gets out of bed, pulls on a shirt, and goes downstairs. The compound wakes around him — a low murmur of voices, footsteps on wooden floors, the clink of plates and cups. He walks through the main hall toward the war room. He expects the usual morning: Perseus with a stack of reports, David pacing, Emila with a tray of tea, Josiah sitting quietly in the corner with his eyes closed.
+He waits until the door clicks shut. Then he gets out of bed, pulls on a shirt, and goes downstairs. The compound wakes around him — a low murmur of voices, footsteps on wooden floors, the clink of plates and cups. He walks through the main hall toward the war room. He expects the usual morning: Perseus with a stack of reports, David pacing, Emila with a tray of tea, Josiah sitting quietly in the corner with his eyes closed.
 
 But the moment he steps into the corridor, he feels it.
 
