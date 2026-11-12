@@ -108,7 +108,7 @@ Perseus is quiet for a long moment. Then he speaks. "You think love makes him so
 
 Perseus nods slowly. "You want to fight him."
 
-"I want to protect him." David turns away. Looks at his brother. Really looks at him. "I have always wanted to protect him. Since we were children. And I think I have been bad at it because I have only ever protected him from the outside. From the pack. From the enemies. But what if the real threat is what is inside him? What if the bond is the thing that gets him killed?"
+"I want to protect him." David looks at Perseus. Really looks at him. "I have always wanted to protect him. Since we were children. And I think I have been bad at it because I have only ever protected him from the outside. From the pack. From the enemies. But what if the real threat is what is inside him? What if the bond is the thing that gets him killed?"
 
 Perseus meets his gaze. "Then you ask yourself: did love get him the victory in Ch 16? Did love get him through the hollowing? Did love get him the respect of the Ironridge bears?" He pauses. "The bond does not make him weak, David. It makes him more than one."
 
