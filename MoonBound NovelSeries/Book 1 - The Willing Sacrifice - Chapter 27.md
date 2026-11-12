@@ -44,7 +44,7 @@ He doesn't wait. He slides his fingers free. Pushes the sheet aside. Lines himse
 
 He pushes forward.
 
-Her body yields. He slides inside. Slow. Slow. Slow. The heat of her body closes around him, tight, wet, impossibly warm. Every inch. Every millimeter. He fills her. She fills him. The bond screams — a flare of white-hot sensation that makes him see stars, makes his fingers dig into the mattress, makes his breath catch in his throat. He feels her feeling him. Her walls stretching. Her pulse quickening. Her body opening around him. He feels it all through the bond. The connection is absolute. Complete. Devastating.
+Her body yields. He slides inside. Slow. Slow. Slow. The heat of her body closes around him, tight, wet, impossibly warm. Every inch. Every millimeter. He fills her. She fills him. The bond screams — a flare of white-hot sensation that makes him see stars, makes his fingers dig into the mattress, makes his breath catch in his throat. He feels her feeling him. Her walls stretching. Her pulse quickening. Her body opening around him. He feels it all through the bond. The connection is absolute. Complete. Irreversible.
 
 He bottoms out. His pelvis against her ass. His cock buried to the hilt. He stays there. Motionless. His face buried in her neck. His breath ragged. Her heartbeat against his chest. His heartbeat against hers. They are one.
 
