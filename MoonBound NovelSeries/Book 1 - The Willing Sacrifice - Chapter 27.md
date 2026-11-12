@@ -136,7 +136,7 @@ Perseus looks up. His eyes are sharp, calculating, but there is something else t
 
 The room goes quiet. Josiah opens his eyes. Emila turns from the stove.
 
-Victor looks at them all. At David's confused frown. At Perseus's steady, searching stare. At Josiah's knowing calm. At Emila's gentle smile.
+Victor looks at them all — David's confused frown, Perseus's searching stare, Josiah's calm, Emila's smile.
 
 "How?" Victor asks.
 
