@@ -76,7 +76,7 @@ She is on her side. He is behind her. Her back pressed to his chest, her leg tan
 
 She thinks about this morning. About the ceremony. About the way the bond detonated and opened the channel. About what happened after.
 
-She remembers the feel of him — his hands on her hips, his face buried in her hair, his voice rough in her ear. How the bond caught every pulse, every drop of his seed deep inside her. How the connection had finally, fully, finished what the ceremony started. A seal. A claim. A completion. She had felt every drop of him, every beat of his heart against hers, and she had known, with absolute certainty, that he was hers. That she was his. That the bond was no longer just magic or vow or ceremony — it was flesh and blood and seed and skin and breath and heartbeat and everything. Everything. Everything.
+She remembers the bond catching every pulse, every drop of his seed deep inside her. How the physical had finally, fully, finished what the ceremony had started. A seal. A claim. A completion. She had felt every drop of him, every beat of his heart against hers, and she had known, with absolute certainty, that he was hers. That she was his. That the bond was no longer just magic or vow or ceremony — it was flesh and blood and seed and skin and breath and heartbeat and everything. Everything. Everything.
 
 Her body still feels full. The warm ache between her thighs where his cock was buried. The sticky warmth between her legs where his seed had leaked. The ghost of his mouth on her shoulder. The imprint of his weight on her back. She can feel him through the bond — steady, warm, deep. Not the sharp tension of before. Not the desperate strain. A slow, deep pulse. The pulse of a man who has come home.
 
