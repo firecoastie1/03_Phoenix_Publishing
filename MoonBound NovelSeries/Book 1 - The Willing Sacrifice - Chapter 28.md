@@ -2,9 +2,9 @@
 
 VICTOR
 
-Morning reports. That's what they are. Routine. Bureaucracy disguised as survival. Victor sits at the head of the war room table, fingers steepled, eyes on Perseus's maps. David paces. Emila refills tea he doesn't drink. Josiah watches from the corner with eyes closed. Amelia is in the healing tent. He can feel her through the bond — her warmth, the soft weight of her body, the memory of his cock inside her still echoing in her flesh. It keeps him grounded. Keeps him focused. He focuses on the reports. Northern border: clear. Supply runs: on schedule. New arrivals: three minor wolf families seeking shelter. He signs the papers. Nods. Says the right words. All the while, the bond hums in his chest, connecting him to her, to the pack, to the weight of a thousand decisions pressing down on his shoulders.
+Morning reports. That's what they are. Routine. Bureaucracy disguised as survival. Victor sits at the head of the war room table, fingers steepled, eyes on Perseus's maps. David paces. Emila refills tea he doesn't drink. Josiah watches from the corner with eyes closed. Amelia is in the healing tent. He can feel her through the bond: her warmth, the soft weight of her body, the memory of his cock inside her still echoing in her flesh. It keeps him grounded. Keeps him focused. He focuses on the reports. Northern border: clear. Supply runs: on schedule. New arrivals: three minor wolf families seeking shelter. He signs the papers. Nods. Says the right words. All the while, the bond hums in his chest, connecting him to her, to the pack, to the weight of a thousand decisions pressing down on his shoulders.
 
-The meeting moves on. Supply inventories. Patrol rotations. Medical updates from Emila about the healing tent — herb stocks are low, but she's managing with what she has. He nods. Signs. Repeats. But his attention is divided. Half of him is here, in the war room. The other half is with her — in the healing tent, mixing herbs, feeling the bond like a thread pulling at his chest.
+The meeting moves on. Supply inventories. Patrol rotations. Medical updates from Emila about the healing tent. Herb stocks are low, but she's managing with what she has. He nods. Signs. Repeats. But his attention is divided. Half of him is here, in the war room. The other half is with her — in the healing tent, mixing herbs, feeling the bond like a thread pulling at his chest.
 
 Then the door opens.
 
@@ -12,7 +12,7 @@ Perseus steps in. His expression has changed. The casual curiosity from yesterda
 
 "We need to talk about Hanley," he says.
 
-David stops pacing. Perseus's voice has that effect. The room goes quiet — even Josiah opens his eyes.
+David stops pacing. Perseus's voice has that effect. The room goes quiet. Even Josiah opens his eyes.
 
 Victor leans forward. "What about him?"
 
@@ -20,11 +20,11 @@ Perseus unrolls the map across the table. His fingers trace a route along the so
 
 David's jaw tightens. "How big?"
 
-"Two hundred warriors. Maybe more. Gage has been building this in secret — moving supplies from the main camp under cover of night, using Hanley sympathizers in nearby packs to transport materials. He's been at this for months." Perseus pauses. "He's also recruited the Ironridge bears. Bram Stonefist is there. Two dozen bears."
+"Two hundred warriors. Maybe more. Gage has been building this in secret. Moving supplies from the main camp under cover of night, using Hanley sympathizers in nearby packs to transport materials. He's been at this for months." Perseus pauses. "He's also recruited the Ironridge bears. Bram Stonefist is there. Two dozen bears."
 
 The room goes very quiet.
 
-Victor feels it — the weight of the news, the shift in the board. Wolves and bears. That's not harassment. That's preparation.
+Victor feels the weight of the news shift the board. Wolves and bears. That's not harassment. That's preparation.
 
 "How long?" Victor asks. "How long has it been there?"
 
@@ -38,23 +38,23 @@ He opens the pouch. Inside: a handful of dried leaves, dark and brittle. He spre
 
 David's face goes white. Then red. "He's arming himself with *that*? In our territory?"
 
-"Not our territory," Perseus corrects. "Shadowfen. But it's overlapping. And if he pushes further, it will be ours. Gage is calling the Blackwood weak — saying we hesitated, that we won't fight back. He says our Alpha bonded with a human like a coward hiding behind magic instead of facing the Hollow King directly." He meets Victor's gaze. "He's using the bond against us. Calling it proof that you've lost your edge, Victor."
+"Not our territory," Perseus corrects. "Shadowfen. But it's overlapping. And if he pushes further, it will be ours. Gage is calling the Blackwood weak. Saying we hesitated, that we won't fight back. He says our Alpha bonded with a human like a coward hiding behind magic instead of facing the Hollow King directly." He meets Victor's gaze. "He's using the bond against us. Calling it proof that you've lost your edge, Victor."
 
-Victor feels the bond tighten in his chest. Amelia's warmth flickers — concern, sharp and sudden. He sends calm back through the bond without thinking. *I'm fine.* The warmth settles, heavy and wet with the memory of him inside her. He keeps his face neutral.
+Victor feels the bond tighten in his chest. Amelia's warmth flickers: concern, sharp and sudden. He sends calm back through the bond without thinking. *I'm fine.* The warmth settles, heavy and wet with the memory of him inside her. He keeps his face neutral.
 
 "Does anyone else know about the hollowing?" Victor asks.
 
 Perseus shakes his head. "Only Gage's inner circle. Darius Voss is running it. I got close enough to smell it, and close enough to see the warriors. They're... not right. Their eyes are wrong. The way they move. No hesitation. No fear. Like puppets on strings."
 
-David slams his fist on the table. "We can't just sit here and let him build an army on our border. We have to hit him now — before he's ready. A demonstration force. Send a squadron to the fortification, show him that the Blackwood Pack is not going to back down." He turns to Victor. "Alpha."
+David slams his fist on the table. "We can't just sit here and let him build an army on our border. We have to hit him now. Before he's ready. A demonstration force. Send a squadron to the fortification, show him that the Blackwood Pack is not going to back down." He turns to Victor. "Alpha."
 
-Victor holds his brother's gaze. He can feel the weight of the room — David's anger, Perseus's calculation, Josiah's quiet attention, Emila's silence. The bond hums in his chest, connecting him to Amelia, to the pack, to the weight of a decision that will shape everything.
+Victor holds his brother's gaze. He can feel the weight of the room. David's anger, Perseus's calculation, Josiah's quiet attention, Emila's silence. The bond hums in his chest, connecting him to Amelia, to the pack, to the weight of a decision that will shape everything.
 
-He considers it. The logic is sound. A demonstration force would show Hanley that the Blackwood is not weak. It would deter further expansion. But it would also be the first strike — the spark that ignites a war. And the Hollow King is still breathing down his neck. If he fights Hanley, he divides his forces. He opens himself to attack from the Hollow King's shadows.
+He considers it. The logic is sound. A demonstration force would show Hanley that the Blackwood is not weak. It would deter further expansion. But it would also be the first strike. The spark that ignites a war. And the Hollow King is still breathing down his neck. If he fights Hanley, he divides his forces. He opens himself to attack from the Hollow King's shadows.
 
 But if he does nothing, Hanley sees it as weakness. He grows bolder. And eventually, he comes for the Blackwood regardless.
 
-"There's more," Perseus says quietly. "Hanley is not the only threat. Darius Voss has been communicating with the Hollow King — in secret. I didn't see the communication, but I saw the traces. The same residue from the fortification is on the supply routes. Gage thinks he's playing a game — wolves versus wolves, territory versus territory. But the Hollow King is playing him. He's using Gage to weaken both packs so he can pick up the pieces."
+"There's more," Perseus says quietly. "Hanley is not the only threat. Darius Voss has been communicating with the Hollow King. In secret. I didn't see the communication, but I saw the traces. The same residue from the fortification is on the supply routes. Gage thinks he's playing a game. Wolves versus wolves, territory versus territory. But the Hollow King is playing him. He's using Gage to weaken both packs so he can pick up the pieces."
 
 Victor closes his eyes. The pieces are falling into place, and none of them fit.
 
@@ -76,13 +76,13 @@ Victor holds his gaze. "What should I do?"
 
 Josiah's eyes close again. "You do what you have always done. Lead. Protect. Trust your pack. The bond does not make you weak, Victor. It makes you more than one."
 
-Victor nods. The words settle in his chest, warm and steady. He sends them through the bond to Amelia — not the words, just the feeling. Gratitude. Resolve. She feels him through the bond too — the ghost of his cock still buried in her, the ache in her thighs where she rode him, the way her body remembers his. The warmth in the bond brightens in response.
+Victor nods. The words settle in his chest, warm and steady. He sends them through the bond to Amelia. Not the words, just the feeling. Gratitude. Resolve. She feels him through the bond too: the ghost of his cock still buried in her, the ache in her thighs where she rode him, the way her body remembers his. The warmth in the bond brightens in response.
 
 ---
 
 DAVID
 
-David stands at the window of the war room, watching the scouts prepare. Ten warriors. His jaw aches from clenching it. He chose them himself — Perseus made him choose, and David picked the best. Marcus Chen, who never flinches. Tessa Okafor, who has eyes like a hawk. Jalen Brooks, who can shift blind if he has to. They are the best the pack has. And Victor is sending them to stare down two hundred hollowed warriors and twenty bears.
+David stands at the window of the war room, watching the scouts prepare. Ten warriors. His jaw aches from clenching it. He chose them himself. Perseus made him choose, and David picked the best. Marcus Chen, who never flinches. Tessa Okafor, who has eyes like a hawk. Jalen Brooks, who can shift blind if he has to. They are the best the pack has. And Victor is sending them to stare down two hundred hollowed warriors and twenty bears.
 
 *It is not enough.* The thought repeats in his head like a drumbeat. *It is never enough.*
 
@@ -130,11 +130,11 @@ PERSEUS
 
 Perseus watches the scouts leave. Ten warriors moving south along the old trade road, carrying only supplies and word. No weapons beyond their belts. No armor beyond their hides. They are brave. They are skilled. But they are ten against two hundred.
 
-He feels the weight of the decision — Victor's decision. Not a full strike. Not silence. Something in between. A statement. A message. *We see you. We are not afraid. Do not test us.*
+He feels the weight of the decision. Victor's decision. Not a full strike. Not silence. Something in between. A statement. A message. *We see you. We are not afraid. Do not test us.*
 
 It is the right call. Perseus knows this. He also knows that messages do not stop armies. Intentions do not stop hollowed warriors. And Gage Hanley does not care about messages.
 
-But Victor is the Alpha. The call is his. Perseus's job is to execute it — and to prepare for what happens next.
+But Victor is the Alpha. The call is his. Perseus's job is to execute it. And to prepare for what happens next.
 
 He turns toward the armory. Picks up a sword. Tests its weight. The battle is coming. It always is. The question is not *if* — it is *when* and *how hard*.
 
