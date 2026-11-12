@@ -120,7 +120,7 @@ He keeps walking. But the feeling grows. It is like walking into a current. Peop
 
 He reaches the war room and pushes the door open.
 
-David is there. Already pacing. Already red-faced. Perseus is at the table, head bent over a map. Josiah sits in the corner, eyes closed. Emila is by the stove, stirring a pot of tea.
+David is there. Already pacing. Already red-faced. Perseus is at the table, leaning over a map. Josiah sits in the corner, eyes closed. Emila is by the stove, stirring a pot of tea.
 
 The moment Victor walks in, David stops. He stares.
 
