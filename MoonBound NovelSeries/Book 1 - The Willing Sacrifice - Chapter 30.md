@@ -4,7 +4,7 @@ VICTOR
 
 The scouts are gone six hours when the bond screams.
 
-It is not a feeling. It is not a sensation. It is a rupture — a white-hot tear in the fabric of the connection that makes his vision blur and his knees buckle. He catches himself on the war room table, breathing hard, face in his hands. The pack notices. Perseus stands. David steps back. Josiah's eyes open.
+It is not a feeling. It is not a sensation. It is a rupture — a white-hot tear in the fabric of the connection that makes his vision blur and his knees buckle. He braces his palms on the war room table, breathing hard. The pack notices. Perseus stands. David steps back. Josiah's eyes open.
 
 "Alpha?" David says.
 
