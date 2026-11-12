@@ -184,7 +184,7 @@ She is in the healing tent by mid-morning.
 
 She tells herself it is to gather supplies. For the bond. For whatever comes next. But the truth is she needs to be somewhere that is not the quarters. Not yet. The room is too full of him — his scent, his warmth, the way the bed still holds the shape of his body against hers, the way the air between them feels charged even when they are not in the same space.
 
-She works. She measures. She crushes. She mixes. Her grandmother's packet sits in her pack — a small cloth pouch, neatly sealed, given to her by her grandmother from a client. She takes it out and opens it. The dried herbs inside are the same as they were when she found them — sage, chamomile, lavender, something she does not recognize. Something her grandmother did not name.
+She works. She measures. She crushes. She mixes. Her grandmother's packet sits in her pack — a small cloth pouch, neatly sealed, given to her by Mrs. Calloway. She takes it out and opens it. The dried herbs inside are the same as they were when she found them — sage, chamomile, lavender, something she does not recognize. Something her grandmother did not name.
 
 She does not know what to use it for. But she knows what her grandmother would say: The body knows what it needs. Your job is to listen.
 
