@@ -140,7 +140,7 @@ Victor looks at them all — David's confused frown, Perseus's searching stare, 
 
 "How?" Victor asks.
 
-Perseus leans back. His eyes narrow. "I don't know. I can't explain it. But... you look like you slept. Actually slept." He pauses. David shifts. Victor catches himself. Perseus finishes. "You look lighter. That's all."
+Perseus leans back. His eyes narrow. "I don't know. I can't explain it. But... you look like you slept. Actually slept." He meets Victor's gaze. "You look lighter. That's all."
 
 Josiah speaks quietly from the corner. "The ceremony."
 
