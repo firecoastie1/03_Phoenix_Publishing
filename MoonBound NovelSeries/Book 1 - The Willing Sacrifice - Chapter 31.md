@@ -38,7 +38,7 @@ Gage stares at him. Something flickers in his eyes. Surprise, maybe, or the fain
 
 Gage studies him for a long moment. The silence stretches. The wounded groan. The wind moves across the plain, carrying the smell of smoke and something sharper. Something metallic, like old blood dried into the soil.
 
-Finally, Gage turns to his warriors. "We cannot leave him on this plain." He pauses. The young wolf beside him has not taken his eyes off the hollowed body.
+Finally, Gage turns to his warriors. He is about to give an order. But the young wolf beside him has not taken his eyes off the hollowed body.
 
 One of his warriors steps forward. A young wolf, barely old enough to shave, eyes wide with shock. "Alpha, he is one of ours. We cannot leave him here."
 
@@ -76,7 +76,7 @@ She does not feel the battle. Not fully. Not after the detonation that shook her
 
 She feels Victor shift. The way he felt before. Violent, fierce, alive. But then. Slowly. She feels him land. Not physically. Emotionally. She feels the weight of what he is carrying. Not the fight. The aftermath.
 
-She is packing herbs into baskets when it hits her. A wave of cold that has nothing to do with the healing tent's temperature. Her hands stop moving. Her breath catches. She can feel Victor's mind. Not his thoughts. He has not opened the full channel to her yet, not the way he will when they are together in the quarters, not the way the ceremony allows when their skin touches and the bond goes from thread to bridge. But she can feel the shape of his emotion. Heavy. Dark. Resolute.
+She is packing herbs into baskets when it hits her. A wave of cold that has nothing to do with the healing tent's temperature. Her hands stop moving. Her breath catches. She feels him through the bond. Not his thoughts. Not the way they are when they are together. Not the way the ceremony opens everything wide. But she feels the shape of his emotion. Heavy. Dark. Resolute.
 
 She sets the basket down. Walks to the door. Looks south toward the border.
 
@@ -84,17 +84,17 @@ She sets the basket down. Walks to the door. Looks south toward the border.
 
 She does not wait for permission. She does not wait to be summoned. She grabs her satchel. The one with the dried lavender, the salve mixture, the small packet of chamomile that Victor likes because it smells like her grandmother's kitchen. And she walks.
 
-The compound is quiet. The healing tent has just been through its own crisis. A dozen wounded shifters, all of them battered, none of them dead. The young omega named Emila is at the front desk, rolling bandages, her dark eyes tired but steady.
+The compound is quiet. The healing tent has just been through its own crisis. A dozen wounded shifters, all of them battered, none of them dead. Becca LaBlanc sits at the front desk, rolling bandages. She is late teens, Samuel's younger sister, an omega-in-training who normally never sits still. Today her dark eyes are tired, her movements careful, her hands steady even though she looks like she hasn't slept in days.
 
-"Amelia," Emila says. Not surprised. Not disapproving. Just present. "You are going to find him."
+"Amelia," Becca says. Not surprised. Not disapproving. Just present. "You are going to find him."
 
 It is not a question. Amelia nods. "Can you watch the tent?"
 
-Emila rolls the last bandage tight. "I have been watching it for three hours. I can watch it for ten more minutes. Go."
+Becca rolls the last bandage tight. "I have been watching it for three hours. I can watch it for ten more minutes. Go."
 
 Amelia does not hesitate. She steps outside. The air is cold. Not just temperature, but something deeper, something that presses against her skin like the memory of a storm. She can feel the pack in a different way than usual. Not the bond. The pack itself. The collective energy, the tension, the exhaustion. They just fought something none of them understood. And they won. But it did not feel like a win.
 
-She walks through the compound. Past the training yards, past the barracks, past the kitchen. She takes the short route through the herb garden, the one that cuts behind the war room and leads to Victor's quarters on the second floor. She has only been up there once, the night of the ceremony, but she remembers it clearly: the empty bed, the empty desk, the window that overlooks the valley, the way Victor opened the door and said *It's yours too* and meant it like a vow.
+She walks through the compound. Past the training yards, past the barracks, past the kitchen. She takes the short route through the herb garden, the one that cuts behind the war room and leads to the second-floor quarters. The ones they share. She knows the stairs by heart, knows which one creaks, knows the hallway by the sliver of light under the door.
 
 She climbs the stairs. Two at a time. Her heart is racing. Not from the climb. From the bond.
 
@@ -124,7 +124,7 @@ His jaw tightens. "I told you not to worry."
 
 He stares at her for a long moment. Then he steps back. "Come in."
 
-She walks inside. The quarters are exactly as she left them. The empty bed still empty except for the blanket folded at the foot, the desk still cluttered with papers and maps and half-finished reports, the window open a crack to let in the night air. But now it feels different. Not empty anymore. Not a shrine. A space. A room that two people occupy.
+She walks inside. The quarters are warm. Her clothes are thrown over the chair next to Victor's. Her satchel sits on the desk beside his maps. The window is open a crack to let in the night air. It feels different than the night of the ceremony. Not a shrine anymore. A home.
 
 She sets her satchel on the desk. Turns to face him.
 
