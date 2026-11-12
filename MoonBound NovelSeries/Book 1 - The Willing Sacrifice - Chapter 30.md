@@ -12,7 +12,7 @@ Victor straightens. His voice is rough. Shaking. "It is happening. The Hollow Ki
 
 Perseus is already moving. "The scouts?"
 
-Victor closes his eyes. The bond is a wire pulled taut, vibrating with a pain so sharp it makes his teeth ache. He feels something die. Not his scouts — something else. Something ancient and terrible. And beneath that, a second thread — his scouts — screaming.
+Victor closes his eyes. The bond sears through him — a pain so sharp it makes his teeth ache. He feels something die. Not his scouts — something else. Something ancient and terrible. And beneath that, another pain — his scouts — screaming.
 
 "Get the pack," Victor says. His voice is iron. "I am going to the border."
 
