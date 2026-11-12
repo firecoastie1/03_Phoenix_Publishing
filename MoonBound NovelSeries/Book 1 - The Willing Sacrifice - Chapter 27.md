@@ -62,13 +62,13 @@ He follows. He doesn't hold back. He doesn't fight it. He drives into her one la
 
 She collapses against him, her face buried in his neck, her body pressed flush against his. His cock still inside her, softening, but still connected, still touching. Her breathing is ragged. The bond is quiet — not silent, like a storm that has passed.
 
-He holds her. Lets her rest. And for the first time in three years, stays in bed without dreaming of being alone.
+He holds her. Lets her wake.
 
 ---
 
 AMELIA
 
-She wakes to sunlight.
+She opens her eyes to sunlight.
 
 It is a pale, thin thing, late autumn light, the kind that barely clings to the world. It spills through the window in a narrow golden strip, cutting across the sheets, across the space between them.
 
@@ -88,19 +88,19 @@ And the body knows. It knows the weight of him. The heat of him. The way his see
 
 She is his. Not by fate. Not by decree. By choice. By flesh. By blood. By everything.
 
-She shifts. Her hand finds his jaw. His stubble scrapes against her fingertips. His breathing is slow and even. He is asleep. The bond carries the steady rhythm of his heart. Steady. Warm. Full.
+She shifts. Her hand finds his jaw. His stubble scrapes against her fingertips. His breathing is slow and even. He is right there, his heartbeat steady and warm through her palm.
 
 She thinks about the healing tent. About the herbs. About whatever comes next.
 
 She gets out of bed. Bare feet on the cold floor. The ache between her thighs flares — a soft, sweet reminder of what just happened. She smiles. Tiny. Private.
 
-She dresses. Quietly. He doesn't wake. She pauses at the door. Looks back at him, sleeping, peaceful, his hair messy, his face softer than she has ever seen it, his mouth slightly open, his body relaxed for the first time in her memory.
+She dresses. Quietly. He doesn't stop her. She pauses at the door. Looks back at him — awake, watching her, his hair messy, his face softer than she has ever seen it.
 
 She touches the crescent moon tattoo on her wrist. It is warm. Hot, actually. She pulls her hand away. The bond hums between them. Warm. Steady. Open.
 
 "I'll be back," she whispers.
 
-She leaves the room. Closes the door behind her. The bond hums in her chest. The room is quiet. The bed is warm. The sheets still hold the shape of them both.
+She leaves the room. Closes the door behind her. The bond hums in her chest. The room is quiet behind her.
 
 ---
 
@@ -108,7 +108,7 @@ She leaves the room. Closes the door behind her. The bond hums in her chest. The
 
 VICTOR
 
-He takes the stairs down slowly. The compound wakes around him — a low murmur of voices, footsteps on wooden floors, the clink of plates and cups. He walks through the main hall toward the war room. He expects the usual morning: Perseus with a stack of reports, David pacing, Emila with a tray of tea, Josiah sitting quietly in the corner with his eyes closed.
+He waits until the door clicks shut. Waits a moment. Then he gets out of bed, pulls on a shirt, and goes downstairs. The compound wakes around him — a low murmur of voices, footsteps on wooden floors, the clink of plates and cups. He walks through the main hall toward the war room. He expects the usual morning: Perseus with a stack of reports, David pacing, Emila with a tray of tea, Josiah sitting quietly in the corner with his eyes closed.
 
 But the moment he steps into the corridor, he feels it.
 
