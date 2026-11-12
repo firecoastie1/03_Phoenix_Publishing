@@ -118,7 +118,7 @@ It is subtle. Barely noticeable. But it is there — a ripple in the air, a pres
 
 He keeps walking. But the feeling grows. It is like walking into a current. People glance up as he passes. A warrior by the supply room door looks at him and nods. A healer carrying a tray of herbs stops mid-step and watches him pass with a small, puzzled expression. An inner council member — Samir — looks at him with something like surprise.
 
-He reaches the war room. He pushes the door open.
+He reaches the war room and pushes the door open.
 
 David is there. Already pacing. Already red-faced. Perseus is at the table, head bent over a map. Josiah sits in the corner, eyes closed. Emila is by the stove, stirring a pot of tea.
 
