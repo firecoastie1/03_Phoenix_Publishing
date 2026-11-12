@@ -100,6 +100,6 @@ He looks back at Victor one last time. "If the Hollow King pushes again, I will 
 
 Then he turns and walks away. The Hanley warriors follow. They leave the ridge. The silence settles.
 
-Victor presses his hand to his chest. It is warm. Hot. He feels the bond in his chest — a living weight, the memory of his cock buried deep in her, the way her body yielded around him, the heat of her skin still burning on his — and Amelia is there. Not with words. Not with images. Just the steady, warm, unshakable certainty that she is with him. That she always will be.
+Victor presses his hand to his chest. It is warm. Hot. He feels the bond in his chest — a living weight, and Amelia is there. Not with words. Not with images. Just the steady, warm, unshakable certainty that she is with him. That she always will be.
 
 The Hollow King has returned. And for the first time, the enemy is seen.
