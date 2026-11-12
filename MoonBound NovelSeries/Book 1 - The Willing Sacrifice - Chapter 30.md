@@ -72,34 +72,34 @@ Behind him, two dozen Hanley warriors follow.
 
 The tide turns.
 
-The beasts are driven back. Pushed. The fog thins. The first beast dissolves into smoke. The second. The third. But the fourth — the fourth does not dissolve. It turns toward a Hanley scout, a young warrior named Elias Voss, and bites into his shoulder.
-
-The boy screams. His body convulses. His eyes go black.
-
-Gage roars. He throws himself at the beast, rakes its back with claws, and sends it fleeing into the fog. The fog breaks. The darkness recedes. The plain is quiet except for the screams of the wounded.
+The beasts are driven back. Pushed. The fog thins. The first beast dissolves into smoke. The second. The third. The fourth lunges at a Hanley warrior, but Gage is faster. He throws himself at it, claws raking its back, teeth tearing through shadow. It screams — a sound like metal grinding on bone — and dissolves. The fog breaks. The darkness recedes. The plain is quiet except for the groans of the wounded.
 
 Victor shifts back. Human. Bleeding. Breathing hard.
 
-The scouts are battered but alive. The Hanley scout Elias Voss is on his knees, bleeding from the shoulder, eyes still black. He is not dying. He is being hollowed.
+His scouts are battered but alive. A Hanley warrior lies on his back, clutching his shoulder, eyes unfocused. He's not dying. He's hollowed — touched by the beast's cold. His body goes still.
 
-Gage approaches. He is a man again now. Blood on his face. Fury in his eyes. He looks at the hollowed scout. He looks at Victor.
+Gage approaches. He is a man again now. Blood on his face. Fury in his eyes. He looks at the hollowed warrior. He looks at Victor. His voice is low. Fierce. But it is not directed at Victor. It is directed at the fog. At the darkness. At the thing that just killed one of his own.
 
-"Your weakness brought this to my border," Gage says. His voice is low. Fierce. "Your love made you soft. And now one of my men pays for it."
+"The Hollow King," Gage says. He turns his gaze to Victor. "He is real."
 
-Victor looks at him. There is no anger. No fear. Just the cold, hard certainty of an Alpha who has nothing left to prove.
+Victor meets his eyes. "He is. And he is not done."
 
-"He will live," Victor says.
+Gage holds his gaze for a long moment. The pack knows what the Hollow King is — Victor told them in the gathering, and the Hanley warriors were there too. But seeing it, fighting it, feeling its cold — that is different from hearing about it.
 
-"Will he?" Gage spits. "Or is he already dead? Hollowed by your darkness. Tainted by your bond."
+"Your scouts," Gage says. "They are still alive?"
 
-David steps forward. His voice is a growl. "Back off, Gage."
+"Yes."
 
-"Stay out of this, David." Gage meets David's gaze without flinching. "You know he is right. Look at him. Look at what he has become. This was always going to end in blood."
+Gage nods. Once. "Then we have work to do. The Hollow King strikes at the border. He is testing us. Testing both of us." He meets Victor's gaze. "I will not let him take more of my pack."
+
+David steps forward. His voice is a growl. "Be careful, Gage."
+
+"I am always careful," Gage says. He turns to his warriors. "Fall back. We move north."
+
+He looks back at Victor one last time. "If the Hollow King pushes again, I will know." He pauses. "So will you."
+
+Then he turns and walks away. The Hanley warriors follow. They leave the ridge. The silence settles.
 
 Victor touches the crescent moon tattoo on his wrist. It is warm. Hot. He feels the bond in his chest — a living weight, the memory of his cock buried deep in her, the way her body yielded around him, the heat of her skin still burning on his — and Amelia is there. Not with words. Not with images. Just the steady, warm, unshakable certainty that she is with him. That she always will be.
 
-"He will live," Victor says again. "And I will make sure of it."
-
-He turns. Walks toward Elias Voss. The scouts follow. The Hanley warriors watch. The ridge is silent.
-
-The Hollow King has returned. And he has left his mark.
+The Hollow King has returned. And for the first time, the enemy is seen.
