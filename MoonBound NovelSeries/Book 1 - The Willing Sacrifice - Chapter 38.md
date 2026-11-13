@@ -204,13 +204,7 @@ He does. Shirt over his head. Buttoned and torn. She grabs his belt. Unbuckles. 
 
 "I need you," she says. Her voice is broken. Desperate. "I need you inside me. Now."
 
-He flips her onto the bed. On top of him. He rolls them. She is on her back. He is above her. Looking down. His cock at her entrance. She is already wet. Slippery. He pushes in. One inch. Two. Her nails dig into his shoulders. Her breath catches. Her eyes close.
-
-"Okay?" he asks.
-
-"Yes. Keep going."
-
-He pulls back. Drives in. All the way. Her body stretches around him. Takes him. The heat is overwhelming. She gasps. Her back arches. Her thighs tighten around his waist. Her nails tear into his skin. He groans. A low, broken sound. His forehead drops to hers. His hands grip her hips. His fingers dig into flesh.
+He flips her onto the bed. On top of him. He rolls them. She is on her back. He is above her. Looking down. His cock at her entrance. She is already wet. Slippery. He pushes in. One inch. Two. Her nails dig into his shoulders. Her breath catches. Her eyes close. He pulls back. Drives in. All the way. Her body stretches around him. Takes him. The heat is overwhelming. She gasps. Her back arches. Her thighs tighten around his waist. Her nails tear into his skin. He groans. A low, broken sound. His forehead drops to hers. His hands grip her hips. His fingers dig into flesh.
 
 "You feel incredible, Amelia. Every inch of you. I have never felt anything like this."
 
