@@ -66,7 +66,7 @@
 || 31 | ✅ Written | Aftermath — Hollow King battle leaves both packs shaken, forces uneasy alliance. Victor admits fault to Gage, Gage respects his strength, notices pack unity. Amelia senses battle through bond, goes to Victor. Intimate scene — kiss, bond transparency. Victor knows alliance is temporary. |
 || 32 | ✅ Written | The Choice — Victor's Aurela vision, learns all-shifter bonds needed, explicit intimacy scene. |
 || 33 | ✅ Written | The Vulnerability — Hollow King night attack, Victor protects through bond, explicit intimacy, Amelia's strength. |
-|| 34 | Pending | |
+|| 34 | ✅ Written | The Assault — Hollow King full assault, pack barely survives, Amelia heals, Victor fights, explicit post-battle intimacy, peaceful sleep. |
 || 35 | Pending | |
 || 36 | Pending | |
 || 37 | Pending | |
@@ -76,12 +76,12 @@
 
 ## Current Status
 |- **Date:** 2026-11-12
-||- **Chapters Written:** 33 of 40 (Ch 1–33)
-||- **Recent Work:** Ch 26 (Moonlit Rite ceremony), Ch 27 (post-ceremony intimacy, timeline/POV fixes, Mrs. Calloway), Ch 28 (Hanley threat, Perseus intelligence, scouts), Ch 29 (David/Victor confrontation), Ch 30 (border battle, Hollow King beast, Amelia feels shift through bond), Ch 31 (uneasy Hanley/Blackwood alliance, Victor admits fault, Amelia senses battle through bond, intimate quarters scene), Ch 32 (Victor's Aurela vision, explicit intimacy), Ch 33 (Hollow King night attack, bond protection, explicit intimacy, Amelia's strength). All commits pushed to main.
+||- **Chapters Written:** 34 of 40 (Ch 1–34)
+||- **Recent Work:** Ch 26 (Moonlit Rite ceremony), Ch 27 (post-ceremony intimacy, timeline/POV fixes, Mrs. Calloway), Ch 28 (Hanley threat, Perseus intelligence, scouts), Ch 29 (David/Victor confrontation), Ch 30 (border battle, Hollow King beast, Amelia feels shift through bond), Ch 31 (uneasy Hanley/Blackwood alliance, Victor admits fault, Amelia senses battle through bond, intimate quarters scene), Ch 32 (Victor's Aurela vision, explicit intimacy), Ch 33 (Hollow King night attack, bond protection, explicit intimacy, Amelia's strength), Ch 34 (full Hollow King assault, pack barely survives, explicit post-battle intimacy, peaceful sleep). All commits pushed to main.
 |- **Ceremony Framework:** Complete — two-stage bond system (Formation → Moonlit Rite) documented across:
   - series-bible.md: New "Moonlit Rite (Mate Bond System)" section
   - Ch 10.md: Josiah's dialogue updated to two-stage explanation (thread vs bridge)
   - Ch 14.md: Emila's two-stage explanation, 3-pace boundary enforced, touch limited to warmth/pulse
   - Beat Sheet.md: Ch15/Ch23/Ch26/Ch30 beats updated; Relationship Milestones table revised
 |- **Intimacy Rules Confirmed:** Pre-ceremony = kissing/passion/romantic closeness OK, but no full intercourse until post-ceremony (Ch26). First full sex scene lands at ceremony completion.
-|- **Next:** Chapter 34 — The Assault
+|- **Next:** Chapter 35 — The Hollow King's Gambit
