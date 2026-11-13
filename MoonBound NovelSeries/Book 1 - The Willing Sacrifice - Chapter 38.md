@@ -212,7 +212,7 @@ He flips her onto the bed. On top of him. He rolls them. She is on her back. He 
 
 He pulls back. Drives in. All the way. Her body stretches around him. Takes him. The heat is overwhelming. She gasps. Her back arches. Her thighs tighten around his waist. Her nails tear into his skin. He groans. A low, broken sound. His forehead drops to hers. His hands grip her hips. His fingers dig into flesh.
 
-"You are so tight. So perfect. Amelia. You have no idea."
+"You feel incredible, Amelia. Every inch of you. I have never felt anything like this."
 
 She opens her eyes. Gray meets gray. "Move. Please. Move."
 
