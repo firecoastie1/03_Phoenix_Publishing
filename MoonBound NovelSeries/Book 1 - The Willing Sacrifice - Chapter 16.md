@@ -26,7 +26,7 @@ Victor ducked under the tent flap and went inside. Amelia followed close behind.
 
 "I know." Amelia's fingers tightened on the floor. "His body is moving. But the person inside is gone. All I can find is breath and pulse and no one home."
 
-Victor felt the thread between them tighten, warmth, awareness, the quiet hum of a connection that did not yet open, did not yet give. He could feel her steadiness. It grounded him. He stepped closer, stood behind her, let his hand rest on her shoulder. She leaned back into him, just for a second, just enough.
+Victor felt the thread between them tighten, warmth, awareness, the quiet hum of a connection that was still a thread. He could feel her steadiness. It grounded him. He stepped closer, stood behind her, let his hand rest on her shoulder. She leaned back into him, just for a second, just enough.
 
 Then the sound stopped.
 
@@ -109,6 +109,8 @@ The room settled. Not perfectly. Not with unanimous agreement. But with enough u
 Josiah leaned forward. "Victor has spoken. The pack does not hide. The pack does not retreat. We investigate. We prepare. We hold the line. And we do not forget that the Hollow King feeds on fear. Fear makes him stronger. Unity makes us stronger. Do not let him win that battle before the first arrow is shot."
 
 The pack nodded. Some louder than others. But it was enough.
+
+Victor nodded back once. "Dismissed." He turned and left the war room, Perseus falling into step beside him as the pack began to break.
 
 ---
 
