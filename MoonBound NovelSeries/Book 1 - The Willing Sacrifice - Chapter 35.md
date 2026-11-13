@@ -30,11 +30,9 @@ He smiles. Small. Real. "I know."
 
 He reaches for her hand. His fingers are warm. Dry. His pulse is steady against her skin. She feels it through the bond — a low, steady hum. His presence. Warm. Certain. Alive.
 
-She squeezes his hand. "Go to sleep. I'll be fine."
+She squeezes his hand. "I'm fine, Victor."
 
-"I'm not leaving."
-
-"You don't have to."
+"I'm staying."
 
 He sits beside her. Closer now. His shoulder touches hers. The fabric of her shirt against his bare skin. She can feel his warmth radiating through her. The bond hums between them — steady, warm, open. Like a fire that has been lit and will not go out.
 
