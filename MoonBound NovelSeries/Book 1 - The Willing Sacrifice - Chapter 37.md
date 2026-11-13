@@ -70,7 +70,7 @@ He walks into the corridor. The compound is a wreck. The wards held, but the imp
 
 Victor steps into the chaos. His Alpha presence cuts through the noise. Voices drop. Eyes turn toward him. He walks through the compound like a general surveying a battlefield, assessing, calculating, making decisions.
 
-Perseus is in the healing tent. Surrounded by wounded. Seven dead, as the beat sheet said. He saw the battle through the bond. He knows what happened. His face is grim. He nods at Victor. No words needed.
+Perseus is in the healing tent. Surrounded by wounded. Seven dead. He saw the battle through the bond. He knows what happened. His face is grim. He nods at Victor. No words needed.
 
 David is pacing. Angry. Relieved. Terrified. All at once. "The wards held. I felt it. I felt the barrier and it — " He stops. Shakes his head. "You did it. You actually did it."
 
