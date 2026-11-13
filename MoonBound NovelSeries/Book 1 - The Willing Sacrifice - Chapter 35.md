@@ -34,7 +34,7 @@ She squeezes his hand. "I'm fine, Victor."
 
 "I'm staying."
 
-He sits beside her. Closer now. His shoulder touches hers. The fabric of her shirt against his bare skin. She can feel his warmth radiating through her. The bond hums between them — steady, warm, open. Like a fire that has been lit and will not go out.
+He sits beside her. Closer now. His shoulder touches hers. The fabric of her shirt against his bare skin. She can feel his warmth radiating through her.
 
 She leans into him. Rests her head on his shoulder. His arm comes around her. Heavy. Secure. She closes her eyes. Breathes in his scent — smoke and leather and something wild. Something that is only him.
 
@@ -120,7 +120,7 @@ She closes her eyes. Breathing hard. Her hands grip his shirt. Fingers twisting 
 
 "Exactly like that."
 
-She looks at him. Really looks at him. He's shaking. Not visibly. But she can feel it through the bond — a vibration. Low. Terrifying. He just pushed back a Void-Eater's mind whisper through the bond, and his hands are still trembling.
+She looks at him. Really looks at him. He's shaking. Not visibly. He just pushed back a Void-Eater's mind whisper through the bond, and his hands are still trembling.
 
 "You okay?" she says.
 
@@ -140,7 +140,7 @@ He closes his eyes. Nods. Once. When he opens them, the vulnerability is gone. R
 
 "Tonight, I stay awake," he says. "You sleep. If he comes back, I'll be ready."
 
-She doesn't argue. She knows he's right. She can't sleep — not after that. Not with the Hollow King's whispers still echoing in her ears. So she stays awake. Beside him. Her head on his chest. His arm around her. The bond humming between them — steady, warm, open.
+She doesn't argue. She knows he's right. She can't sleep — not after that. Not with the Hollow King's whispers still echoing in her ears. So she stays awake. Beside him. Her head on his chest. His arm around her.
 
 She drifts back off to sleep.
 
@@ -153,8 +153,6 @@ He stays awake.
 Amelia's breathing evens out within minutes. Her body goes limp against his chest. Her fingers uncurl from his shirt. Her face relaxes, and she drifts back off to sleep.
 
 The bond hums between them. Warm. Steady. But beneath the warmth — something else. Something cold. The Hollow King's whisper is still there. Faint. Fading. But present. Like a scar on the bond. A wound that has not fully closed.
-
-He can feel it — the Hollow King's presence on the bond itself. Inside the connection between him and Amelia. He doesn't attack bodies. He attacks minds.
 
 He knows he cannot keep this up all night. He needs to sleep eventually. But if the Hollow King comes back, he needs to be ready. He needs to hold the door shut. Again. And again. Until dawn.
 
@@ -272,8 +270,6 @@ She sits up. Pulls her knees to her chest. Looks at her hands. They are still ti
 
 The Hollow King can attack her fear. He can attack her doubt. He can attack her loneliness. But he cannot attack her choice. She chose Victor. Not because the bond made her. Not because the Moon Goddess willed it. Because she chose him. And that choice is hers. Nobody can take it from her. Not the Hollow King. Not Aurela. Not anyone.
 
-The bond hums between them. Steady. Strained. Warm.
-
 She closes her eyes. Breathes. And waits for Victor to come back.
 
 ---
@@ -340,7 +336,7 @@ Victor crosses the room. Sits beside her. Close. "I was not gone."
 
 "I know." Her voice is a whisper. "But I believed it. For a second. For a terrible, terrible second, I believed it."
 
-He reaches for her hand. She lets him. Fingers lacing with his. The bond hums between them — warm, strained, steady.
+He reaches for her hand. She lets him. Fingers lacing with his.
 
 "I am not gone," he says. "I am here. I am alive. And I am not letting go."
 
@@ -352,9 +348,9 @@ He understands. The Hollow King attacked through the bond. He reached for her fe
 
 "Me?" he says.
 
-"Me," she says. "Now."
+"You," she says. "Now."
 
-He pulls her against him. Her body against his. Her head on his chest. His arm around her waist. Her leg over his. The bond hums between them — warm, strained, steady. He presses his forehead to hers. Closes his eyes.
+He pulls her against him. Her body against his. Her head on his chest. His arm around her waist. Her leg over his. He presses his forehead to hers. Closes his eyes.
 
 "Stay," she says.
 
