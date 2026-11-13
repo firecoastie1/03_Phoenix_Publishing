@@ -173,3 +173,92 @@ Something that will change everything.
 She just needs the right moment.
 
 And it will come soon.
+
+---
+
+VICTOR
+
+He walks her back to their quarters. Her hand is in his. Her fingers are trembling. Her body is heavy. Bone-tired. He can feel it through the bond — a grinding exhaustion that runs deep in her bones. The barrier took something out of her. He knows it. He felt it when she channeled. He felt her strength. He also felt the cost.
+
+She stumbles. He catches her. Holds her steady.
+
+"I am fine," she says.
+
+"You are not fine." He opens the door. Pulls her inside. Closes it behind them.
+
+She looks at him. Gray eyes wet. Tired. Her face is pale. Her lips are chapped. Her hair is a mess. She is the most beautiful thing he has ever seen.
+
+He pulls her against him. Her body fits against his like it was made for it. Because it was. The bond hums between them. Warm. Strong. Alive.
+
+She makes a sound. A small, broken sound. Her hands find his chest. Fingers gripping fabric. "Victor. I need — I need to — "
+
+"I know," he says. "I know."
+
+He backs her against the wall. His mouth on hers. Desperate. Hungry. She kisses him back. Hard. Urgent. Her hands in his hair. Fingers gripping. Pulling him closer. He groans. A low, broken sound. His hands find her waist. Her hips. Pulling her body flush against his. His cock is hard. Thick. Pulsing. Already aching.
+
+She presses against him. He can feel it. Hard. Thick. Through their clothes. She feels it too. She gasps. Breaks the kiss. Breathless. "Clothes. Off. Now."
+
+He does. Shirt over his head. Buttoned and torn. She grabs his belt. Unbuckles. Zipper down. Hands inside. Pulling his pants and underwear down. He kicks them off. His cock springs free. Hard. Veined. Wet at the tip. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk.
+
+"Amelia — "
+
+"I need you," she says. Her voice is broken. Desperate. "I need you inside me. Now."
+
+He flips her onto the bed. On top of him. He rolls them. She is on her back. He is above her. Looking down. His cock at her entrance. She is already wet. Slippery. He pushes in. One inch. Two. Her nails dig into his shoulders. Her breath catches. Her eyes close.
+
+"Okay?" he asks.
+
+"Yes. Keep going."
+
+He pulls back. Drives in. All the way. Her body stretches around him. Takes him. The heat is overwhelming. She gasps. Her back arches. Her thighs tighten around his waist. Her nails tear into his skin. He groans. A low, broken sound. His forehead drops to hers. His hands grip her hips. His fingers dig into flesh.
+
+"You are so tight. So perfect. Amelia. You have no idea."
+
+She opens her eyes. Gray meets gray. "Move. Please. Move."
+
+He does. Pulls back. Drives in. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his back. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
+
+She pushes back against him. Hard. Fast. Her hips meet his with every stroke. The bed shakes beneath them. Her breath comes in gasps. Her thighs tremble. Her walls clamp down around his cock. He pulls back. Drives in harder. His hips slam against hers. Her nails tear into his shoulders. Her body shakes. Shudders. Spasms.
+
+She comes. A long, broken sound. Her walls clamp down around his cock. Squeeze. Milk. Her back arches off the bed. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring. Her body shakes. Shudders. Spasms.
+
+He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His body locks. Shakes. Groans.
+
+He collapses on top of her. His weight presses her into the mattress. His breath comes in ragged bursts against her neck. His cock is still inside her. Still twitching. Still warm. Her arms wrap around his back. Her fingers trace the marks her nails left on his shoulders.
+
+He holds her. Long. Tight. Like he is memorizing the shape of her in his arms. And when he finally lets go, he rolls to his side. Pulls her against him. Her head on his chest. His arm around her waist. His leg tangled with hers.
+
+She does not speak. She just breathes. Her body is heavy against his. Warm. Alive. The bond hums between them. Warm. Strong. Unbroken.
+
+He kisses her forehead. Once. Twice. "Stay," he says.
+
+"I am here," she says. "I am not going anywhere."
+
+He closes his eyes. Breathes.
+
+For a long moment, there is only the sound of their breathing. The hum of the bond. The warmth of her body against his.
+
+And then she speaks. Quiet. Hesitant. "Victor."
+
+He opens his eyes. Looks at her. "What is it?"
+
+She turns her face away. Looks at the ceiling. Her fingers twist in the sheets. "I need to tell you something. The thing from earlier."
+
+He sits up. Looks at her. Really looks at her. Her face is pale. Tired. Her eyes are wet. "You can tell me anything."
+
+She takes a breath. Holds it. Let it out slowly. "I am — " She stops. Swallows. Blinks. Swallows again. "I am going to be sick."
+
+She pushes herself up. Runs to the side of the bed. Bends over. Is sick. A wave of nausea she cannot stop. That hits without warning. That makes her shake. That makes her gasp. Her body convulses. Her hands grip the sheets. Her breath comes in short, sharp bursts.
+
+Victor is beside her in seconds. His hand on her back. Rubbing circles. Slow. Soothing. "I have you," he says. "I have you. Breathe. You are fine."
+
+She breathes. Slowly. Carefully. The wave passes. She leans back against his chest. Her head on his shoulder. Her body shaking. Her face pale.
+
+He pulls her back to the bed. Cleans her face with a damp cloth. Brings her water. Holds the glass to her lips. She drinks. Slowly. Carefully. The nausea has faded. But the exhaustion is still there. Bone-deep. Grinding.
+
+"Victor," she says quietly. Her voice is barely a whisper. "I need to tell you something."
+
+He holds her hand. Squeezes. "I am listening."
+
+She looks at him. Gray eyes wet. Tired. Honest. "I am pregnant."
+

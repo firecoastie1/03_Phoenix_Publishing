@@ -70,7 +70,7 @@
 ||| 35 | ✅ Written + Revised | Hollow King's mind attack through bond, Amelia fights back, intimacy as defense, post-sex aftermath. |
 ||| 36 | ✅ Written + Revised | Victor channels bond as living conduit, barrier creation, Hollow King repelled. |
 ||| 37 | ✅ Written + Revised | Morning aftermath, one hollowed warrior Victor refuses to put down, the bond reaches even into hollow. |
-||| 38 | ✅ Written | Pack recognition — David apologizes, Perseus acknowledges bond's power, Emila welcomes Amelia, pack united. |
+||| 38 | ✅ Written + Revised | Pack recognition — David apologizes, Perseus acknowledges bond's power, Emila welcomes Amelia, pack united. High-heat intimate scene post-meeting, pregnancy reveal (nausea, exhaustion, "I am pregnant"). |
 ||| 37 | Pending | |
 || 38 | Pending | |
 || 39 | Pending | |
