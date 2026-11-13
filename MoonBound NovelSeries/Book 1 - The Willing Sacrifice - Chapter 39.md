@@ -4,11 +4,11 @@
 
 AMELIA
 
-She wakes first. Morning light filters through the curtains. Dust motes float in the air. The room is quiet. Victor is behind her, his arm wrapped around her waist, his face buried in her hair. His breathing is even. Slow. Deep. She can feel his heartbeat against her back through the bond — steady, warm, alive.
+She wakes first. Morning light filters through the curtains. Dust motes float in the air. The room is quiet. Victor is behind her, his arm wrapped around her waist, his face buried in her hair. His breathing is even. Slow. Deep. She can feel his heartbeat against her back through the bond, steady, warm, alive.
 
 She does not move. She does not want to break this. She wants to memorize it. The weight of his arm. The heat of his body. The way he holds her like she is something precious. Something worth protecting. Something worth keeping.
 
-She has spent her whole life alone. In a small cottage. With a cat and herbs and quiet. She never thought anyone would look at her the way Victor looks at her. She never thought someone like him — an Alpha, a warrior, a shifter — would hold her the way he does. Like she is enough.
+She has spent her whole life alone. In a small cottage. With a cat and herbs and quiet. She never thought anyone would look at her the way Victor looks at her. She never thought someone like him, an Alpha, a warrior, a shifter, would hold her the way he does. Like she is enough.
 
 The bond hums between them. It has been humming all night. Not loud. Not demanding. Just there. A quiet presence in the background of their sleep. She has never felt anything like it. It is not just a connection. It is a home.
 
@@ -34,7 +34,7 @@ The bond between them flares. It is not magic. It is not the goddess. It is not 
 
 And it is not the bond that brings him closer. It is not the goddess. It is him. It is his choice.
 
-She kisses him. He kisses her back. The sheets fall away. Bodies press together. They look at each other — see everything. The fear. The hope. The love. The exhaustion. Then she says it again. "I love you."
+She kisses him. He kisses her back. The sheets fall away. Bodies press together. They look at each other, see everything. The fear. The hope. The love. The exhaustion. Then she says it again. "I love you."
 
 He groans. Hands on her hips. Pulls her down. Pushes inside her. Slow. Deep. Until there is no space between them.
 
@@ -56,13 +56,13 @@ And then she feels it.
 
 The bond. Not warmth. Not a hum. Something else. Something deeper. She has spent her whole life with walls around herself. Keeping people out. Protecting herself. And now — now he is handing her the keys.
 
-She feels it in his mind. Not words. Not images. Feelings. Fear for the pack. Doubt about himself. The weight of being Alpha. The fear of failing everyone he loves. The exhaustion of carrying it all alone. And beneath all of it — love. For her. For the pack. For a future he does not know if he deserves.
+She feels it in his mind. Not words. Not images. Feelings. Fear for the pack. Doubt about himself. The weight of being Alpha. The fear of failing everyone he loves. The exhaustion of carrying it all alone. And beneath all of it, love. For her. For the pack. For a future he does not know if he deserves.
 
 It crashes into her like a wave. She gasps. Tears prick her eyes. She has never felt anything like it. It is too much. It is everything.
 
 She lets him feel her back. Without thinking. Without planning. She lets him see it all. The loneliness before him. The certainty after him. The way she touches her moon tattoo when she is sad. The way she cannot sleep without hearing his voice in her head. The way she has loved him since the moment he looked at her like she mattered.
 
-He stops breathing. His arms tighten around her. His grip is desperate. Clinging. She can feel him breaking open — the walls coming down piece by piece, letting her in, letting her see the man behind the Alpha.
+He stops breathing. His arms tighten around her. His grip is desperate. Clinging. She can feel him breaking open, the walls coming down piece by piece, letting her in, letting her see the man behind the Alpha.
 
 When the wave passes, he is still holding her. Still breathing. But his grip is different. Looser. Relaxed. He is no longer fighting himself. He is no longer fighting her. He is just — here. With her. Present.
 
@@ -132,11 +132,11 @@ Something that does not need to be carried alone.
 
 AMELIA
 
-She falls back asleep in his arms. His body is warm against hers. His heartbeat steady against her back. The bond hums between them — quiet. Comfortable. Like a fire in a cold room.
+She falls back asleep in his arms. His body is warm against hers. His heartbeat steady against her back. The bond hums between them, quiet, comfortable. Like a fire in a cold room.
 
 She dreams. Not of the Hollow King. Not of battles. Of something else. Something small. Something new. A heartbeat. Not hers. Not his. Neither of theirs. But both of theirs.
 
-She does not know what it means. Not yet. But she feels it — a thread of hope, thin and fragile, stretching into the future.
+She does not know what it means. Not yet. But she feels it, a thread of hope, thin and fragile, stretching into the future.
 
 And she holds onto it.
 
