@@ -6,9 +6,9 @@ AMELIA
 
 Weeks have passed. The pack is rebuilding. The barrier is strong. The Hollow King is gone — not defeated, but pushed back across the Veil. The Blackwood Compound has never felt more alive.
 
-Victor and Amelia are bonded, fully and completely. The bond between them is warm and steady — like a fire that will not go out. It hums in the background of their days, a quiet presence that has become as natural as breathing.
+Victor and Amelia are bonded, fully and completely.
 
-They are in the compound's kitchen in the early morning. She is making tea. He is sharpening his knives. Neither of them is talking, but the bond between them is warm and steady. He reaches across the table and takes her hand. She reaches back. The bond hums, and they both smile — not because they have to, but because they want to.
+They are in the compound's kitchen in the early morning. She is making tea. He is sharpening his knives. Neither of them is talking. He reaches across the table and takes her hand. She reaches back. They both smile — not because they have to, but because they want to.
 
 This is what they fought for.
 
@@ -20,13 +20,13 @@ Victor stills. "What is it?"
 
 She takes a breath. Looks at him. "I'm pregnant."
 
-The silence stretches. The knives on the table catch the morning light. The bond between them — warm, steady, unbreakable — flares wide open, spilling over with everything she's been feeling for weeks: the nausea, the fatigue, the fear, the hope, the love, the terrifying, beautiful certainty that something new is growing inside her.
+The silence stretches. The knives on the table catch the morning light. She takes a breath and tells him everything she has been carrying for weeks: the nausea, the fatigue, the fear, the hope, the love, the terrifying, beautiful certainty that something new is growing inside her.
 
-And Victor — Victor feels it all. Every tremor in the bond. Every spike of fear. Every quiet, terrified joy. His eyes go wide. His hand closes over hers on the table.
+And Victor — Victor feels it all. The weight of it in her voice. The tremor in her hands. Every spike of fear. Every quiet, terrified joy. His eyes go wide. His hand closes over hers on the table.
 
 "I told you," she says. "A little while ago."
 
-Victor stares at her. His mouth opens. Closes. Opens again. For the Alpha who never hesitates, who never stammers, who plans every scenario and calculates every outcome — he has nothing. No words. No strategy. Just his hand over hers and the bond breaking open with something so big he can't contain it.
+Victor stares at her. His mouth opens. Closes. Opens again. For the Alpha who never hesitates, who never stammers, who plans every scenario and calculates every outcome — he has nothing. No words. No strategy. Just his hand over hers.
 
 "A baby," he says.
 
@@ -36,7 +36,7 @@ He looks at her. Really looks at her. Not with the Alpha's eyes. Not with the ma
 
 She wraps her arms around his neck. "You're happy?"
 
-He closes his eyes. The bond hums between them, warm and steady and wider than ever. "I am. I am. I am."
+He closes his eyes. "I am. I am. I am."
 
 She rests her head on his shoulder and breathes. "We're going to be parents."
 
@@ -58,7 +58,7 @@ A pup.
 
 Their pup.
 
-He feels the bond between them — warm, steady, unbreakable — and for the first time in his life, Victor understands what it means to have a future. Not just survival. Not just holding the line. A future.
+He feels the weight of what is about to happen — warm, real, unbreakable — and for the first time in his life, Victor understands what it means to have a future. Not just survival. Not just holding the line. A future.
 
 He looks at her. Amelia. His mate. The woman who walked into shifter territory with nothing but a bag of herbs and a crescent moon tattoo on her wrist. The woman who healed his warriors when no one else would. The woman who stood beside him when the Hollow King came. The woman who never let him go.
 
@@ -66,7 +66,7 @@ A baby.
 
 His baby.
 
-The weight of it presses on him — not heavy, but real. Solid. Present. He feels it in his chest. In the bond. In the way his hand closes around hers without thinking. He is going to be a father.
+The weight of it presses on him — not heavy, but real. Solid. Present. He feels it in his chest. In the way his hand closes around hers without thinking. He is going to be a father.
 
 And he is not afraid.
 
@@ -104,15 +104,15 @@ Victor nods. "I will go."
 
 Perseus stares at him. "You? The Alpha of the Blackwood Pack? You want to walk across hostile territory to meet strangers?"
 
-Victor smiles. "The bond taught me something. Connection is stronger than fear. If we want to stop the Hollow King — really stop him — we need more than wolves. We need a coalition. All six types. All six bonds."
+Victor smiles. "I've learned something. Connection is stronger than fear. If we want to stop the Hollow King — really stop him — we need more than wolves. We need a coalition. All six types. All six mates."
 
 Perseus considers this. Nods slowly. "When do we leave?"
 
 "Tomorrow."
 
-Perseus leaves. Victor stays in the war room. Looks at the map. South. To the panther pack. To the next bond. To the next bridge.
+Perseus leaves. Victor stays in the war room. Looks at the map. South. To the panther pack. To the next mate. To the next bridge.
 
-He is not afraid. He has his mate. He has his pack. He has the bond.
+He is not afraid. He has his mate. He has his pack.
 
 And he knows this is just the beginning.
 
@@ -134,7 +134,7 @@ He takes her hand. Squeezes. "Ready."
 
 She smiles. "Good."
 
-She kisses him. Slow. Soft. Sure. No bonds. No magic. No goddess. Just them. Two people who have fought for each other. Who have chosen each other. Who have seen each other at their most vulnerable and have not looked away.
+She kisses him. Slow. Soft. Sure. No magic. No goddess. Just them. Two people who have fought for each other. Who have chosen each other. Who have seen each other at their most vulnerable and have not looked away.
 
 She steps back. Looks at her stomach. At the life growing inside her.
 
