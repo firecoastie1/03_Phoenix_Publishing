@@ -34,7 +34,7 @@ He does not move. His arm stays around her waist. His breathing stays slow. He i
 
 He closes his eyes. Nods once. "I am here."
 
-"Victor, you need to — " She touches his arm. His skin is warm. Alive. Real. "Josiah is going to want to know what happened last night. The pack is going to want to know what happened. You need to — "
+"Victor, you need to — " She touches his arm. "Josiah is going to want to know what happened last night. The pack is going to want to know what happened. You need to — "
 
 He opens his eyes. Looks at her. Gray eyes steady. Tired. But steady. "I will go when I am ready."
 
