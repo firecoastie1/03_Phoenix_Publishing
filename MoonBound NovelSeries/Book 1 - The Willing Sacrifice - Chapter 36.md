@@ -24,7 +24,7 @@ She gasps. Her knees buckle. Victor catches her.
 
 "Choose what?"
 
-He looks at her. Gray eyes hard. "Stay inside and let the pack feel the full weight of his assault, or come outside and fight him where he can reach us both through the bond. He's forcing me to sacrifice one of us to save the other. And the answer is obvious. I'd rather take the hit than let him touch her."
+He looks at her. Gray eyes hard. "Stay inside and let the pack feel the full weight of his assault, or come outside and fight him where he can reach us both through the bond. He's forcing me to sacrifice one of us to save the other. And the answer is obvious. I'd rather take the hit than let him touch you."
 
 She grabs his arms. "No. You don't have to choose. There's a third option."
 
