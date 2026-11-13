@@ -368,7 +368,7 @@ She leans forward. Mouth on his. Tongue in his mouth. Desperate. Hungry. Her bod
 
 He flips her onto her back. On top of him. His mouth finds her breast. Opens. Sucks the nipple into his mouth. His tongue circles it. Sucks harder. She throws her head back. Groans. Her hands grip his shoulders. Nails digging into flesh.
 
-He pushes her tunic off. Her breasts spill free. He kisses each one. Sucks each nipple. His hands push her panties down. She kicks them off. He is hard. Thick. Veined. Pulsing. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
+He pushes her tunic off. She kicks her panties down and off. He is hard. Thick. Veined. Pulsing. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
 
 "Please," he says. His voice is broken. Desperate.
 
