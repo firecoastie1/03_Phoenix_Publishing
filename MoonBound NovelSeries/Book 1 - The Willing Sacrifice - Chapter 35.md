@@ -392,7 +392,7 @@ She opens her eyes. Gray meets gray. He groans. A low, broken sound. His thrusts
 
 "I am close," she says. "Victor..."
 
-"Come for me," he says. "Come and let me feel it."
+"Come for me," he says. "Come and let me hear you."
 
 She does. Her body convulses. Her walls clamp down around his cock. She screams. A long, broken sound. Her back arches off the bed. Her nails tear into his shoulders. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring. Her body shakes. Shudders. Spasms.
 
