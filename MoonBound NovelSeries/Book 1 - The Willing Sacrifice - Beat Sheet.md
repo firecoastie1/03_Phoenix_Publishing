@@ -362,7 +362,7 @@ The pack is united. Not just in the face of the Hollow King, but in the face of 
 **Character beat:** Amelia is accepted by the pack. She's no longer an outsider — she's a part of the family.
 
 ### Chapter 39 — The Love
-**Beat:** Victor and Amelia are alone. The adrenaline has faded. The exhaustion sets in. And in the quiet, they face the truth: they love each other. Not because the bond made them. Not because the Moon Goddess willed it. But because they chose it. Because they fought for it. Because they saw each other at your most vulnerable and didn't look away.
+**Beat:** Victor and Amelia are alone. The adrenaline has faded. The exhaustion sets in. And in the quiet, they face the truth: they love each other. Not because the bond made them. Not because the Moon Goddess willed it. But because they chose it. Because they fought for it. Because they saw each other at their most vulnerable and didn't look away.
 
 Victor: "I don't know if I can do this. Being an Alpha, being your mate, being the Alpha who's your mate. It's a lot."
 
@@ -370,7 +370,7 @@ Amelia: "Then don't do it alone."
 
 They kiss. And this time, it's not the bond that brings them together — it's them.
 
-**Mate bond beat:** They lie down together, exhausted and spent. Victor pulls Amelia against him, her back to his chest, and wraps his arm around her waist. The bond hums between them, warm and steady. But Victor does something he hasn't done before — he *surrenders* the bond. Not fully, not yet, but he lets the walls down. He lets Amelia see everything: his fear for the pack, his love for her, his hope for a future that doesn't involve dying alone in the dark. And Amelia — without saying a word — lets him feel everything she carries: her loneliness before him, her certainty after him, her willingness to stand beside him no matter what comes next. They don't need words. The bond is enough. And for the first time, they let it be.
+**Mate bond beat:** They lie down together, exhausted and spent. Victor pulls Amelia against him, her back to his chest, and wraps his arm around her waist. The bond hums between them, warm and steady. But Victor does something he hasn't done before — he *surrenders* the bond. Not fully, not yet, but he lets the walls down. He lets Amelia see everything: his fear for the pack, his love for her, his hope for a future that doesn't involve dying alone in the dark. And Amelia — without saying a word — lets him feel everything she carries: her loneliness before him, her certainty after him, her willingness to stand beside him no matter what comes next, her secret, the one she's been carrying since the battle. They don't need words. The bond is enough. And for the first time, they let it be.
 
 **Relationship beat:** Love is acknowledged. Not as magic, but as choice.
 
@@ -384,6 +384,40 @@ Victor looks north. The Veil is still thin. The Hollow King is still out there. 
 And he knows this is just the beginning.
 
 **Mate bond beat:** The epilogue closes with a quiet domestic scene: Victor and Amelia in the compound's kitchen in the early morning. She's making tea. He's sharpening his knives. Neither of them is talking, but the bond between them is warm and steady — like a fire that will not go out. He reaches across the table and takes her hand. She reaches back. The bond hums, and they both smile, not because they have to, but because they want to. This is what they fought for. This is what the bond was always about.
+
+Then Amelia sets down her mug and places her hand over his. The smile on her face is different now — softer, a little uncertain, like she's been carrying something and is finally ready to set it down.
+
+"I have something to tell you," she says.
+
+Victor stills. "What is it?"
+
+She takes a breath. Looks at him. "I'm pregnant."
+
+The silence stretches. The knives on the table catch the morning light. The bond between them — warm, steady, unbreakable — flares wide open, spilling over with everything she's been feeling for weeks: the nausea, the fatigue, the fear, the hope, the love, the *terrifying, beautiful certainty* that something new is growing inside her. And Victor — Victor feels it all. Every tremor in the bond. Every spike of fear. Every quiet, terrified joy. His eyes go wide. His hand closes over hers on the table.
+
+"Again," she says. Her voice is barely above a whisper. "I told you. A little while ago."
+
+Victor stares at her. His mouth opens. Closes. Opens again. For the Alpha who never hesitates, who never stammers, who plans every scenario and calculates every outcome — he has nothing. No words. No strategy. Just his hand over hers and the bond breaking open with something so big he can't contain it.
+
+"A baby," he says.
+
+She nods. "A baby."
+
+He looks at her. Really looks at her. Not with the Alpha's eyes. Not with the mate's bond. With his own. And then he pulls her out of her chair, into his arms, and she laughs — surprised, bright, real — and he spins her once, twice, and sets her down and presses his forehead to hers and whispers, "A baby."
+
+She wraps her arms around his neck. "You're happy?"
+
+He closes his eyes. The bond hums between them, warm and steady and wider than ever. "I am. I am. I am."
+
+She rests her head on his shoulder and breathes. "We're going to be parents."
+
+"We're going to be parents."
+
+He holds her. Long. Tight. Like he's memorizing the shape of her in his arms. And when he finally lets go, he pulls out his chair, sits across from her, takes her hand again, and says the quietest thing either of them has ever said:
+
+"Our pup."
+
+She smiles. The kind of smile that starts in the chest and spreads outward, slow and certain and full of everything they're afraid to hope for but can't stop believing in. "Ours."
 
 **Series progression hook:** Book 2 — Perseus and the panther pack.
 
