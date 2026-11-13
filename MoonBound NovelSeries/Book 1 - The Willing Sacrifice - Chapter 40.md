@@ -4,15 +4,15 @@
 
 AMELIA
 
-Weeks have passed. The pack is rebuilding. The barrier is strong. The Hollow King is gone — not defeated, but pushed back across the Veil. The Blackwood Compound has never felt more alive.
+Weeks have passed. The pack is rebuilding. The barrier is strong. The Hollow King is gone, not defeated, but pushed back across the Veil. The Blackwood Compound has never felt more alive.
 
 Victor and Amelia are bonded, fully and completely.
 
-They are in the compound's kitchen in the early morning. She is making tea. He is sharpening his knives. Neither of them is talking. He reaches across the table and takes her hand. She reaches back. They both smile — not because they have to, but because they want to.
+They are in the compound's kitchen in the early morning. She is making tea. He is sharpening his knives. Neither of them is talking. He reaches across the table and takes her hand. She reaches back. They both smile, not because they have to, but because they want to.
 
 This is what they fought for.
 
-She sets down her mug. Places her hand over his. The smile on her face is different now — softer, a little uncertain, like she has been carrying something and is finally ready to set it down.
+She sets down her mug. Places her hand over his. The smile on her face is different now, softer, a little uncertain, like she has been carrying something and is finally ready to set it down.
 
 "I have something to tell you," she says.
 
@@ -26,13 +26,13 @@ And Victor — Victor feels it all. The weight of it in her voice. The tremor in
 
 "I told you," she says. "A little while ago."
 
-Victor stares at her. His mouth opens. Closes. Opens again. For the Alpha who never hesitates, who never stammers, who plans every scenario and calculates every outcome — he has nothing. No words. No strategy. Just his hand over hers.
+Victor stares at her. His mouth opens. Closes. Opens again. For the Alpha who never hesitates, who never stammers, who plans every scenario and calculates every outcome, he has nothing. No words. No strategy. Just his hand over hers.
 
 "A baby," he says.
 
 She nods. "A baby."
 
-He looks at her. Really looks at her. Not with the Alpha's eyes. Not with the mate's bond. With his own. And then he pulls her out of her chair, into his arms, and she laughs — surprised, bright, real — and he spins her once, twice, and sets her down and presses his forehead to hers and whispers, "A baby."
+He looks at her. Really looks at her. Not with the Alpha's eyes. Not with the mate's bond. With his own. And then he pulls her out of her chair, into his arms, and she laughs, surprised, bright, real, and he spins her once, twice, and sets her down and presses his forehead to hers and whispers, "A baby."
 
 She wraps her arms around his neck. "You're happy?"
 
@@ -52,13 +52,13 @@ She smiles. The kind of smile that starts in the chest and spreads outward, slow
 
 VICTOR
 
-He sits across from her. Her hand in his. The morning light falls across the table. Dust motes float in the air. The compound is alive outside — pack members training, children running, dogs barking. The sounds of a living, breathing pack.
+He sits across from her. Her hand in his. The morning light falls across the table. Dust motes float in the air. The compound is alive outside, pack members training, children running, dogs barking. The sounds of a living, breathing pack.
 
 A pup.
 
 Their pup.
 
-He feels the weight of what is about to happen — warm, real, unbreakable — and for the first time in his life, Victor understands what it means to have a future. Not just survival. Not just holding the line. A future.
+He feels the weight of what is about to happen, warm, real, unbreakable, and for the first time in his life, Victor understands what it means to have a future. Not just survival. Not just holding the line. A future.
 
 He looks at her. Amelia. His mate. The woman who walked into shifter territory with nothing but a bag of herbs and a crescent moon tattoo on her wrist. The woman who healed his warriors when no one else would. The woman who stood beside him when the Hollow King came. The woman who never let him go.
 
@@ -66,7 +66,7 @@ A baby.
 
 His baby.
 
-The weight of it presses on him — not heavy, but real. Solid. Present. He feels it in his chest. In the way his hand closes around hers without thinking. He is going to be a father.
+The weight of it presses on him, not heavy, but real. Solid. Present. He feels it in his chest. In the way his hand closes around hers without thinking. He is going to be a father.
 
 And he is not afraid.
 
@@ -74,7 +74,7 @@ And he is not afraid.
 
 AMELIA
 
-Weeks later, the pack is in better shape. The barrier holds. The Hollow King has not returned. The Blackwood compound is busy — pack members training, healers tending to injuries, children playing in the courtyard. Life is returning to normal. A new kind of normal, but a normal nonetheless.
+Weeks later, the pack is in better shape. The barrier holds. The Hollow King has not returned. The Blackwood compound is busy, pack members training, healers tending to injuries, children playing in the courtyard. Life is returning to normal. A new kind of normal, but a normal nonetheless.
 
 Perseus comes to the compound gate with a message from the southern border. He finds Victor in the war room, looking over maps and patrol routes. Perseus hands him the letter without a word.
 
@@ -98,13 +98,13 @@ Victor does not say anything for a long moment. Then he turns back to Perseus.
 
 "Did Gage see them?"
 
-Perseus nods. "Hanley confirmed it. A small group of panthers — maybe thirty. They've been moving through the southern territories for months. Gage wants to reach out. He thinks they might be worth talking to."
+Perseus nods. "Hanley confirmed it. A small group of panthers, maybe thirty. They've been moving through the southern territories for months. Gage wants to reach out. He thinks they might be worth talking to."
 
 Victor nods. "I will go."
 
 Perseus stares at him. "You? The Alpha of the Blackwood Pack? You want to walk across hostile territory to meet strangers?"
 
-Victor smiles. "I've learned something. Connection is stronger than fear. If we want to stop the Hollow King — really stop him — we need more than wolves. We need a coalition. All six types. All six mates."
+Victor smiles. "I've learned something. Connection is stronger than fear. If we want to stop the Hollow King, really stop him, we need more than wolves. We need a coalition. All six types. All six mates."
 
 Perseus considers this. Nods slowly. "When do we leave?"
 
