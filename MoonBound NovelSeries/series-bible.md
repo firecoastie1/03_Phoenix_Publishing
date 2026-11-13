@@ -1,5 +1,5 @@
 # Moonbound — Series Bible
-*Last updated: 2026-11-04 — All character names, cross-pack characters, Hollow King true name (Alaric), and series direction finalized*
+*Last updated: 2026-11-13 — Book 1 complete (Ch 1–40). Book 2 setup locked in (Perseus × Lyra / Panther pack). Series direction finalized.*
 
 **Series Title:** MOONBOUND  
 **Series Name Pattern:** Single-word evocative. Book titles follow "[Verb] By The [Role]" pattern.  
