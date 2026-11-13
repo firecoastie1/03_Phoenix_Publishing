@@ -122,11 +122,13 @@ He reaches out. Places his hand on Marco's shoulder. Feels the skin. Warm. Alive
 
 But Victor refuses. He refuses to put him down. Refuses to let the Hollow King win again.
 
-He holds Marco's hand.
+He holds Marco's hand. Holds on. Pushes through the emptiness with everything he has — through the Mate Bond, the bridge he built with Amelia, the connection that held the barrier.
+
+It should not work. Marco is hollowed. The Hollow King emptied his mind. But the Mate Bond is stronger. It bridges. It connects. It reaches.
+
+And it answers.
 
 The bond hums between them. Warm. Steady. Alive.
-
-It should not be there. Marco is hollowed. The Hollow King emptied his mind. But the bond — the Mate Bond — is stronger than the Void King's power. It bridges. It connects. It reaches. And Victor is reaching. Through the bond. Through Marco's empty shell. And the bond answers.
 
 It hums.
 
