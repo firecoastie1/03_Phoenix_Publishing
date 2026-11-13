@@ -40,7 +40,7 @@ He groans. Hands on her hips. Pulls her down. Pushes inside her. Slow. Deep. Unt
 
 She gasps. Hands on his shoulders. He groans. Forehead drops to hers.
 
-"Harder, please."
+"Harder," she says. "Please."
 
 He does. Rhythm steady. Relentless. Her legs tighten around his waist. Her nails leave marks on his back. She pushes back. Hard. Fast. Her breath comes in gasps. Her thighs tremble.
 
