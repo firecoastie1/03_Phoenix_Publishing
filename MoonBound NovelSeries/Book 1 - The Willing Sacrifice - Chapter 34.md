@@ -6,7 +6,7 @@ The ward alarm sounds before she hears the beast.
 
 A deep, resonant boom — like thunder rolling through the compound walls. It shakes the floor beneath her feet. It vibrates in her chest. The healing tent goes into chaos. Omegas scramble. Warriors shout. Pack members rush toward the walls.
 
-Amelia does not move at first. She grips the edge of the table. Her knuckles are white. Her breath comes in short, sharp bursts. She feels the ward break through the bond. Not a physical sensation. A pressure. A darkness. Something vast pressing against the perimeter of the pack's protection, tearing through it like paper.
+Amelia does not move at first. She grips the edge of the table. Her knuckles are white. Her breath comes in short, sharp bursts. She feels the ward break through the bond. A pressure. A darkness. Something vast pressing against the perimeter of the pack's protection, tearing through it like paper.
 
 The Hollow King.
 
@@ -246,7 +246,7 @@ He is naked. Blood smeared across his chest and shoulders. His left eye is swoll
 
 He looks at her.
 
-The bond flares wide open. Not a physical sensation. Not a thought. Just his presence. Raw. Unfiltered. Unyielding. He is there. He is alive. He is hers.
+The bond flares wide open. Raw. Unfiltered. Unyielding. He is there. He is alive. He is hers.
 
 She does not move. She cannot. She is too tired to move. Too empty to speak. But she sees him. She sees him standing in the doorway, broken and bloodied and absolutely certain.
 
@@ -332,7 +332,7 @@ He lifts his head. Watches her. Her eyes are closed. Her lips are parted. Her ch
 
 "Look at me," he says.
 
-She opens her eyes. Amber meets brown. The bond flares wide open between them. Not physical. Not thought. Just pure, raw emotion. Her desire floods into him. His need floods into her. It wraps around them like a blanket. Like a force field. Like everything.
+She opens her eyes. Amber meets brown. The bond flares wide open between them. Pure, raw emotion. Her desire floods into him. His need floods into her. It wraps around them like a blanket. Like a force field. Like everything.
 
 He groans. A low, broken sound. His thrusts grow faster. Deeper. Her body meets his with every stroke. Her legs tighten around his waist. Her nails dig into his back. Her breath comes in sharp, broken bursts. The pressure builds. Higher. Tighter. Closer.
 
