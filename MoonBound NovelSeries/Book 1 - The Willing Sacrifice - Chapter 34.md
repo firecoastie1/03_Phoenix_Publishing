@@ -332,7 +332,7 @@ He lifts his head. Watches her. Her eyes are closed. Her lips are parted. Her ch
 
 "Look at me," he says.
 
-She opens her eyes. Amber meets brown. The bond flares wide open between them. Pure, raw emotion. Her desire floods into him. His need floods into her. It wraps around them like a blanket. Like a force field. Like everything.
+She opens her eyes. Amber meets brown. The bond flares wide open between them. Pure, raw emotion. Her desire floods into him. His need floods into her. It wraps around them like a blanket.
 
 He groans. A low, broken sound. His thrusts grow faster. Deeper. Her body meets his with every stroke. Her legs tighten around his waist. Her nails dig into his back. Her breath comes in sharp, broken bursts. The pressure builds. Higher. Tighter. Closer.
 
