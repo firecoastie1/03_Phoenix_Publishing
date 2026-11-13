@@ -72,7 +72,7 @@
 ||| 37 | ✅ Written + Revised | Morning aftermath, one hollowed warrior Victor refuses to put down, the bond reaches even into hollow. |
 |||| 38 | ✅ Written + Revised | Pack recognition — David apologizes, Perseus acknowledges bond's power, Emila welcomes Amelia, pack united. High-heat intimate scene post-meeting. Nausea and exhaustion foreshadow pregnancy. |
 |||| 39 | ✅ Written | Morning after — love acknowledged, Victor surrenders bond to Amelia, high-heat intimacy, nausea and fatigue lead to pregnancy suspicion (not yet confirmed). |
-||| 40 | Pending |
+|||| 40 | ✅ Written | Epilogue — domestic scene, pregnancy reveal ("I'm pregnant"), Victor's reaction, "Our pup," Book 2 hook: Perseus reports panther pack on southern border, Victor prepares to leave.
 
 ## Current Status
 ||- **Date:** 2026-11-13
