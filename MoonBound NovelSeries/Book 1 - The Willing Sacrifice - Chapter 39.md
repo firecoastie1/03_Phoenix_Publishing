@@ -34,31 +34,23 @@ The bond between them flares. It is not magic. It is not the goddess. It is not 
 
 And it is not the bond that brings him closer. It is not the goddess. It is him. It is his choice.
 
-She kisses him. He kisses her back. Hands find each other. Bodies press together. The sheets fall away. Skin meets skin. Heat meets heat. She straddles him. Her knees on either side of his hips. Her hands on his chest. His on her waist.
+She kisses him. He kisses her back. The sheets fall away. Bodies press together. They look at each other — see everything. The fear. The hope. The love. The exhaustion. Then she says it again. "I love you."
 
-They look at each other. Really look. See everything. The fear. The hope. The love. The exhaustion from three days without sleep. The battle wounds on his shoulders. The smear of blood on her forearm. The way her hair is a mess. The way his eyes are wet.
+He groans. Hands on her hips. Pulls her down. Pushes inside her. Slow. Deep. Until there is no space between them.
 
-"I love you," she says again.
+She gasps. Hands on his shoulders. He groans. Forehead drops to hers.
 
-He groans. A low, broken sound. His hands find her hips. Pull her down. Their bodies meet. Bone on bone. Heat on heat. He is hard. Thick. Aching. She is wet. Ready. He pushes inside her. Slowly. Carefully. Until he is all the way in. Until she is wrapped around him. Until there is no space between them.
+"Move," she says. "Please."
 
-She gasps. Her head falls back. Her hands grip his shoulders. He groans. His forehead drops to hers. His hands grip her hips. His fingers dig into flesh.
+He does. Rhythm steady. Relentless. Her legs tighten around his waist. Her nails leave marks on his back. She pushes back. Hard. Fast. Her breath comes in gasps. Her thighs tremble.
 
-"You feel incredible," he says.
+She comes. A long, broken sound. Her back arches. Her thighs clamp around his waist. Her walls milk him. Squeeze. Pulsing.
 
-She opens her eyes. Gray meets gray. "Move. Please. Please."
+He holds on. Barely. Thrusts once. Twice. Three times. And breaks. Hips slam. Cock pulses inside her. Breath catches. Body locks. Groans.
 
-He does. Pulls back. Drives in. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his back. He hits deep inside her. The pressure builds. Low. Aching. Spreading.
+He collapses on top of her. Weight presses her into the mattress. Breath ragged against her neck. She wraps her arms around his back. Fingers trace the marks her nails left on his shoulders.
 
-She pushes back against him. Hard. Fast. Her hips meet his with every stroke. The bed shakes beneath them. Her breath comes in gasps. Her thighs tremble. He pulls back. Drives in harder. His hips slam against hers. Her nails tear into his shoulders. Her body shakes. Shudders.
-
-She comes. A long, broken sound. Her back arches off the bed. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring. Her walls milk his cock. Squeeze. Pulsing.
-
-He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His body locks. Shakes. Groans.
-
-He collapses on top of her. His weight presses her into the mattress. His breath comes in ragged bursts against her neck. She wraps her arms around his back. Her fingers trace the marks her nails left on his shoulders.
-
-He rolls to his side. Pulls her against him. Her head on his chest. His arm around her waist. His leg tangled with hers. He does not speak. He just holds her. Holds her tight. Holds her like she is the only thing in the world.
+He rolls to his side. Pulls her against him. Her head on his chest. Arm around her waist. Leg tangled with hers. He does not speak. Just holds her.
 
 And then she feels it.
 
