@@ -8,7 +8,7 @@ Not pain. Not exactly. A pulling. A tearing. Like something is being drawn out o
 
 She sits up. Gasps. Her hands grip the sheets. Her chest burns.
 
-The bond pulls again. Harder. She grips the sheets. Knuckles white.
+The bond pulls again. Harder. Her chest tightens.
 
 Victor stirs. "Amelia?"
 
