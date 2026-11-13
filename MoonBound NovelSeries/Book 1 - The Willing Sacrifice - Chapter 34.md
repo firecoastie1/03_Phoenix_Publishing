@@ -324,7 +324,7 @@ He pushes. Deeper. His hips snap forward. The rest of him slides in. Her body st
 
 He groans. A low, broken sound. His forehead drops to hers. His hands grip her hips. His fingers dig into flesh. "You are so tight. So perfect. Amelia. You have no idea."
 
-"Victor," she says. Her voice is breathless. Broken. "Move. Please. Move."
+"Victor," she says. Her voice is breathless. Broken. "Faster, please."
 
 He pulls back. Slow. Deliberate. His cock slides out almost all the way. Then drives back in. The impact rocks her. Her breath catches. Her nails dig into his shoulders. He pulls back. Drives in again. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his shoulders. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
 
