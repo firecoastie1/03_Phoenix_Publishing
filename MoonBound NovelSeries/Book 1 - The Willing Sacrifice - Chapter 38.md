@@ -138,7 +138,7 @@ The meeting ends. Pack members drift away. Whispers follow her. Respectful. Curi
 
 Victor stays at the head of the table. Josiah is speaking with Perseus quietly. David is talking to Marco's family — Marco's mother, his younger sister. They are grieving. But they are also grateful. Victor did not put him down. He held his hand. He refused to let the Hollow King win. They saw that. They felt it.
 
-Amelia sits in the corner. Her head is on the table. Her eyes are closed. Her body is heavy. Bone-tired. Exhausted. She has been pushing through for two days. The barrier took something out of her. The nausea is getting worse. She can feel it building in her chest. A tightness. A queasiness that makes her want to be sick.
+Amelia sits in the corner. Her head is on the table. Her eyes are closed. Bone-tired. Exhausted. She has been pushing through for two days. The barrier took something out of her. The nausea is getting worse. She can feel it building in her chest. A tightness. A queasiness that makes her want to be sick.
 
 She tells herself it will pass. It always passes.
 
@@ -178,7 +178,7 @@ And it will come soon.
 
 VICTOR
 
-He walks her back to their quarters. Her hand is in his. Her fingers are trembling. Her body is heavy. Bone-tired. He can feel it through the bond — a grinding exhaustion that runs deep in her bones. The barrier took something out of her. He knows it. He felt it when she channeled. He felt her strength. He also felt the cost.
+He walks her back to their quarters. Her hand is in his. Her fingers are trembling. Bone-tired. He can feel it through the bond — a grinding exhaustion that runs deep in her bones. The barrier took something out of her. He knows it. He felt it when she channeled. He felt her strength. He also felt the cost.
 
 She stumbles. He catches her. Holds her steady.
 
@@ -222,7 +222,7 @@ He collapses on top of her. His weight presses her into the mattress. His breath
 
 He holds her. Long. Tight. Like he is memorizing the shape of her in his arms. And when he finally lets go, he rolls to his side. Pulls her against him. Her head on his chest. His arm around her waist. His leg tangled with hers.
 
-She does not speak. She just breathes. Heavy in his arms. Warm. Alive. The bond hums between them. Warm. Strong. Unbroken.
+She does not speak. She just breathes. Warm in his arms. Alive. The bond hums between them. Warm. Strong. Unbroken.
 
 He kisses her forehead. Once. Twice. "Stay," he says.
 
