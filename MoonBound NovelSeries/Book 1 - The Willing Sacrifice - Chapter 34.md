@@ -340,7 +340,7 @@ He groans. A low, broken sound. His thrusts grow faster. Deeper. Her body meets 
 
 "Come and let me feel it," he says.
 
-She does. Her body convulses. Her walls clamp down around his cock. Her inner muscles ripple and pulse. She screams. A long, broken sound. Her back arches off the bed. Her nails tear into his shoulders. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring. Her body shakes. Shudders. Spasms.
+She does. Her body convulses. Her walls clamp down around his cock. She screams. Her nails dig into his shoulders. Her thighs clamp around his waist. She shakes. Shudders. Spasms.
 
 He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His eyes squeeze shut. His body locks. Shakes. Groans.
 
