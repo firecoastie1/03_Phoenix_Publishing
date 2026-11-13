@@ -12,7 +12,7 @@ The Hollow King.
 
 Not a scout. Not a beast sent to test. This is the assault that should not have come yet. The coalition is not ready. There is only one bond holding the perimeter. The Hollow King is attacking before the web is complete. And they are barely holding.
 
-Her heart hammers against her ribs. The bond to Victor is wide open and steady — warm, certain, his presence anchored at the center of it. He is on the wall. She can feel him through the bond. Not his voice. Not his thoughts. His presence. Solid. Certain. An Alpha leading his pack into war.
+Her heart hammers against her ribs. The bond to Victor is wide open and steady — warm, certain, his presence anchored at the center of it. He is on the wall. She can feel him through it. Solid. Certain. An Alpha leading his pack into war.
 
 She lets that anchor her. Then she moves.
 
