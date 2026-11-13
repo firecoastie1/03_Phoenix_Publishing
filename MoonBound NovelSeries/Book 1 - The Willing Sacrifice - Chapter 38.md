@@ -214,7 +214,7 @@ He does. Pulls back. Drives in. The rhythm is steady. Relentless. Each thrust is
 
 She pushes back against him. Hard. Fast. Her hips meet his with every stroke. The bed shakes beneath them. Her breath comes in gasps. Her thighs tremble. Her walls clamp down around his cock. He pulls back. Drives in harder. His hips slam against hers. Her nails tear into his shoulders. Her body shakes. Shudders. Spasms.
 
-She comes. A long, broken sound. Her walls clamp down around his cock. Squeeze. Milk. Her back arches off the bed. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring. Her body shakes. Shudders. Spasms.
+She comes. A long, broken sound. A convulsion of pleasure. Her back arches off the bed. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring.
 
 He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His body locks. Shakes. Groans.
 
