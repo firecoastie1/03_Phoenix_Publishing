@@ -329,7 +329,7 @@ The beast is driven back. But the cost is enormous. Seven dead. Dozens wounded. 
 
 **Dark element:** Full-scale battle. Visceral, intense, emotionally charged. The pack is losing — badly. They win only because Victor does not yield and Amelia does not stop healing.
 
-**Character beat:** The assault proves what Victor already suspected — he cannot hold back the Hollow King alone. The pack is barely surviving because they have only one bond. This is the catalyst that drives him to reach out to other shifter types. Not diplomatically. Desperately.
+**Character beat:** The assault proves what Victor already suspected — he cannot hold back the Hollow King alone. The pack is barely surviving because they have only one bond. This is the catalyst that drives him to reach out to other shifter types. Not purely diplomatic. Not purely desperate. Both. He needs them. But he also knows he must earn their trust.
 
 ### Chapter 35 — The Hollow King's Gambit
 **Beat:** The Hollow King doesn't attack Victor directly. He goes for the bond. He whispers to Amelia in Victor's voice — telling her that Victor is gone, that he's hollowed, that she's alone. He tries to break the bond from the outside, using his Mind Whisper to exploit the bond's vulnerability.
