@@ -240,7 +240,7 @@ He sits up. Looks at her. Really looks at her. Her face is pale. Tired. Her eyes
 
 She takes a breath. Holds it. Let it out slowly. "I am — " She stops. Swallows. Blinks. Swallows again. "I am going to be sick."
 
-She pushes herself up. Runs to the side of the bed. Bends over. Is sick.
+She pushes herself up. Runs to the side of the bed. Bends over. Gets sick.
 
 Victor is beside her in seconds. His hand on her back. Rubbing circles. Slow. Soothing. "I have you," he says. "I have you. Breathe. You are fine."
 
