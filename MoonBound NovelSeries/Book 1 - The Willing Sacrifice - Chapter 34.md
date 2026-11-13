@@ -350,7 +350,7 @@ AMELIA
 
 He collapses on top of her. His weight presses her into the mattress. His breath comes in ragged bursts against her neck. His cock is still inside her. Still twitching. Still warm. Her arms wrap around his back. Her fingers trace the marks her nails left on his shoulders. He rolls to his side. Pulls her with him. Her head rests on his chest. Her leg drapes over his. His arm wraps around her waist. They breathe together. He drops his forehead against hers. Closes his eyes. His breathing evens out. His body relaxes against hers. The bond hums warm and steady. His presence. Her presence. Solid. Certain. Unbroken.
 
-She does not let go. She holds him. Holds him close. Holds him against her chest. His head rests on her shoulder. Her fingers card through his hair. His breath is warm against her skin. His body is heavy. Warm. Alive.
+She does not let go. She holds him. Her fingers card through his hair. His breath is warm against her skin. His body heavy. Warm. Alive.
 
 The compound is quiet outside. The battle is over. The Hollow King has been driven back. The pack survives.
 
