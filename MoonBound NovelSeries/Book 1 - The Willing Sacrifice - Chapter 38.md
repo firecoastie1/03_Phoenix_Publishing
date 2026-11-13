@@ -134,7 +134,7 @@ By choice.
 
 AMELIA
 
-The meeting ends. Pack members drift away. Whispers follow her. Respectful. Curious. Some still cannot believe a human did what they just did. But they believe now. They saw it through the bond. They felt the barrier. They know it was real.
+The meeting ends. Pack members drift away. Whispers follow her. Respectful. Curious. Some are still processing what they felt through the bond. But they believe now. They felt the barrier. They know it was real.
 
 Victor stays at the head of the table. Josiah is speaking with Perseus quietly. David is talking to Marco's family — Marco's mother, his younger sister. They are grieving. But they are also grateful. Victor did not put him down. He held his hand. He refused to let the Hollow King win. They saw that. They felt it.
 
