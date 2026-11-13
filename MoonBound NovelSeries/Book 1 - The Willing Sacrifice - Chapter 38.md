@@ -208,7 +208,7 @@ He flips her onto the bed. On top of him. He rolls them. She is on her back. He 
 
 "You feel incredible, Amelia. Every inch of you. I have never felt anything like this."
 
-She opens her eyes. Gray meets gray. "Move. Please. Move."
+She opens her eyes. Gray meets gray. "Faster, please."
 
 He does. Pulls back. Drives in. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his back. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
 
