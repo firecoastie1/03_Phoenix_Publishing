@@ -130,7 +130,7 @@ She touches his face. Thumbs pressing against his cheekbones. His skin is cold. 
 
 "You don't have to hold the door," she says. "Let me help."
 
-He looks at her. Gray eyes wide. Vulnerable. A look she has never seen on an Alpha.
+He looks at her. Gray eyes wide. Vulnerable. A look she has never seen on him.
 
 "I can't risk it," he says.
 
