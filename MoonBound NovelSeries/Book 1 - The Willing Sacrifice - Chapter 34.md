@@ -20,11 +20,11 @@ Emila is at the far end of the tent, already working on a wounded warrior. His a
 
 "I'm here," Amelia says. She grabs a basket. Rips open the drawer. Bandages. Herbs. Salve. A knife. She grabs the knife too.
 
-Emila looks up. Her eyes are wide. But she does not falter. "I need you to hold this one. He is fighting it. His leg is gone. He will not let us cauterize it without a struggle."
+Emila looks up. Her eyes are wide. But she does not falter. "I need you to hold this one. She is fighting it. Her leg is gone. She will not let us cauterize it without a struggle."
 
-"I've got him."
+"I've got her."
 
-Amelia crosses the tent. Grabs the warrior's good shoulder. Pins him down. The warrior — a young omega named Tessa — thrashes against her. Her eyes are wide. Terror. Pain. The wound is bad. The flesh around it is gray. Dark. The Hollow King's touch is on it. It will spread. It will hollow.
+Amelia crosses the tent. Grabs the warrior's good shoulder. Pins her down. The warrior — a young omega named Tessa — thrashes against her. Her eyes are wide. Terror. Pain. The wound is bad. The flesh around it is gray. Dark. The Hollow King's touch is on it. It will spread. It will hollow.
 
 "Amelia," Tessa says. Her voice is trembling. "I can feel it. It's — it's getting in."
 
