@@ -26,11 +26,11 @@ When he pulls back, he does not let go of her. His arm stays around her waist. H
 
 He studies her face. "What is it?"
 
-She hesitates. Her fingers tighten in his hair. "I need you to know that whatever it is, it does not change anything. You do not have to — I do not expect — "
+She hesitates. Her fingers tighten in his hair. "I need you to know that whatever it is, it does not change anything."
 
 He cuts her off with a kiss. Longer this time. Deeper. His hand moves from her waist to her back. Pulls her closer. When he pulls away, he is breathing harder.
 
-"Say it," he says. "Just say it."
+"You do not have to — I do not expect — " he says. "Just say it."
 
 She takes a breath. Looks at him. Gray meets gray. "I love you."
 
