@@ -398,15 +398,7 @@ She does. Her body convulses. Her walls clamp down around his cock. She screams.
 
 He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His body locks. Shakes. Groans.
 
-He collapses against her. His weight heavy, his breath against her skin. He is still inside her. Still hard. Still pulsing. Her arms wrap around his back. Her fingers trace the marks her nails left on his shoulders.
-
-"I have you," she says. "I have you. I am here."
-
-He lifts his head. Looks at her. His gray eyes are soft. Uncertain. "Stay with me."
-
-"I am not going anywhere," she says. "I am here. I am not going."
-
-He drops his forehead against hers. Closes his eyes. His breathing evens out. His body relaxes against hers. The bond hums warm and steady between them. His presence. Her presence. Solid. Certain. Unbroken.
+He presses his face into her hair. She holds him. His arms wrap around her waist, pulling her flush against him. They breathe together, heartbeats slow from frantic to steady. He drops his forehead against hers. Closes his eyes. His breathing evens out. His body relaxes against hers. The bond hums warm and steady between them. His presence. Her presence. Solid. Certain. Unbroken.
 
 She does not let go. She holds him. Holds him close. Holds him against her chest. His head rests on her shoulder. Her fingers card through his hair. His breath is warm against her skin. His body is heavy. Warm. Alive.
 
