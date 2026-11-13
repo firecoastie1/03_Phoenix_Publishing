@@ -16,7 +16,7 @@ Victor stirs. "Amelia?"
 
 He sits up. Gray eyes wide. Alert. Sleep gone in an instant. "I can feel it too."
 
-The bond jerks. She feels a presence on the other side of the pack wards — vast, dark, cold. The Hollow King. Not inside the compound. Not inside the room. Outside the wards. Testing. Breaching. Pressing against the boundary with his whole weight.
+The bond jerks. She feels a presence on the other side of the pack wards, vast, dark, cold. The Hollow King. Not inside the compound. Not inside the room. Outside the wards. Testing. Breaching. Pressing against the boundary with his whole weight.
 
 She gasps. Her knees buckle. Victor catches her.
 
@@ -30,15 +30,15 @@ She grabs his arms. "No. You don't have to choose. There's a third option."
 
 He looks at her. "There isn't."
 
-"There is. The ceremony. The Moon Goddess. Josiah said the bond is strongest when it's honest. When it's open. When there are no walls." She breathes. Thinks. The bond keeps pulling. The Hollow King is outside. She can feel him — ancient, cold, hungry. A void wearing a shape. "What if we don't hold it back? What if we let it out? The bond itself. Through both of us. Not as a door you hold shut. As a wall."
+"There is. The ceremony. The Moon Goddess. Josiah said the bond is strongest when it's honest. When it's open. When there are no walls." She breathes. Thinks. The bond keeps pulling. The Hollow King is outside. She can feel him, ancient, cold, hungry. A void wearing a shape. "What if we don't hold it back? What if we let it out? The bond itself. Through both of us. Not as a door you hold shut. As a wall."
 
-He stares at her. For a long moment, he doesn't speak. The bond pulls again. She can hear the Hollow King now — a whisper of wind, of static, of something that almost sounds like laughter. He is patient. He is strong. He is waiting for Victor to step outside the wards.
+He stares at her. For a long moment, he doesn't speak. The bond pulls again. She can hear the Hollow King now, a whisper of wind, of static, of something that almost sounds like laughter. He is patient. He is strong. He is waiting for Victor to step outside the wards.
 
 "The Mate Bond can create a barrier?" Victor says. Slowly. "Not just connect two people? Actually — " He stops. Shakes his head. "I don't know. Josiah has never — "
 
-"Then make it work," she says. Simple. Direct. "You said it yourself. You have to choose. Stay inside or go outside. But if you channel the bond through yourself — make yourself a conduit — and I do the same from inside the bond — maybe we don't have to choose."
+"Then make it work," she says. Simple. Direct. "You said it yourself. You have to choose. Stay inside or go outside. But if you channel the bond through yourself, make yourself a conduit, and I do the same from inside the bond, maybe we don't have to choose."
 
-He looks at her. Really looks at her. His jaw is tight. His eyes are wide. She has given him an option he did not expect. An option that costs something — probably everything — but does not sacrifice her.
+He looks at her. Really looks at her. His jaw is tight. His eyes are wide. She has given him an option he did not expect. An option that costs something, probably everything, but does not sacrifice her.
 
 "If I do this," he says carefully, "I cannot control how much power flows through me. I don't know if I can survive it."
 
@@ -48,7 +48,7 @@ He grips her arms. Squeezes. "Amelia. Please. Let me — "
 
 "No." She pulls his hands to her face. Presses her palms against his cheeks. "We do this together. Both of us. Or not at all."
 
-The bond pulls again. The Hollow King is still there. Still testing. Still waiting. But the pull is changing. He can feel it — the presence outside is shifting. Focusing. Preparing to strike. He knows Victor is waking up. He knows Victor is choosing.
+The bond pulls again. The Hollow King is still there. Still testing. Still waiting. But the pull is changing, the presence outside is shifting. Focusing. Preparing to strike. He knows Victor is waking up. He knows Victor is choosing.
 
 And he will be ready.
 
@@ -64,11 +64,11 @@ VICTOR
 
 He steps into the center of the room. Amelia follows. Barefoot. Dark hair tangled. Eyes wide but steady. Gray. Certain. Ready.
 
-The bond hums between them. Warm. Strong. But beneath the warmth — something else. Something waiting. Something that has never been asked to do this before. The Mate Bond was designed to connect. To bind. To bridge. It was never designed to protect. To shield. To sacrifice.
+The bond hums between them. Warm. Strong. But beneath the warmth, something else. Something waiting. Something that has never been asked to do this before. The Mate Bond was designed to connect. To bind. To bridge. It was never designed to protect. To shield. To sacrifice.
 
 But it has to be now.
 
-He closes his eyes. Places his palms flat against his chest. Feels the bond humming beneath his skin. Feels Amelia on the other side — solid, warm, present. The pull of the Hollow King is outside the wards. He can feel it through the bond — a cold draft, a pressure, a hunger. The creature is testing the boundary. Finding cracks. Preparing to push through.
+He closes his eyes. Places his palms flat against his chest. Feels the bond humming beneath his skin. Feels Amelia on the other side, solid, warm, present. The pull of the Hollow King is outside the wards. He can feel it through the bond, a cold draft, a pressure, a hunger. The creature is testing the boundary. Finding cracks. Preparing to push through.
 
 He cannot stop it by holding the door shut. He has learned that. He has spent every night since the ceremony bracing against the pull, holding the door closed, but the Hollow King is patient. The Hollow King is strong. He will keep coming. And every time, Victor will have to hold harder. Until he cannot hold anymore.
 
@@ -82,11 +82,11 @@ The bond floods through him. Not as a bridge. Not as a thread. As a river. A tor
 
 "I'm here," she says. "I'm here. You're not alone."
 
-She touches his forehead to hers. Her hands find his shoulders. Her eyes lock onto his. The bond connects them — not just the space between, but the space through. Inside. She is not on the other side anymore. She is inside the bond. With him. In it. Pulling. Pushing. Channeling.
+She touches his forehead to hers. Her hands find his shoulders. Her eyes lock onto his. The bond connects them, not just the space between, but the space through. Inside. She is not on the other side anymore. She is inside the bond. With him. In it. Pulling. Pushing. Channeling.
 
 And the transformation begins.
 
-It is not a wolf shift. Not a human shift. Something in between. His bones do not crack. His muscles do not expand. But something changes. Deeper. The bond flows through him and his skin begins to glow — a faint, silver light beneath the surface, rippling like water. His eyes open. His irises are no longer gray. They are silver. Glowing. Bright. Unnatural.
+It is not a wolf shift. Not a human shift. Something in between. His bones do not crack. His muscles do not expand. But something changes. Deeper. The bond flows through him and his skin begins to glow, a faint, silver light beneath the surface, rippling like water. His eyes open. His irises are no longer gray. They are silver. Glowing. Bright. Unnatural.
 
 Amelia gasps. "Victor."
 
@@ -96,7 +96,7 @@ He is shifting. But not into a wolf. Into something else. Something older. Somet
 
 He makes it.
 
-The silver light spreads. From his chest to his arms, his legs, his face. It pulses with his heartbeat. Each beat sends a wave of light through his body, through the bond, through Amelia. She feels it — a warmth so intense it almost burns. But it does not hurt. It hurts. Yes. The pain is real. His body is being stretched, opened, remade. His bones hum. His muscles spasm. His skin ripples with light. But he does not stop. He cannot stop. He has made his choice.
+The silver light spreads. From his chest to his arms, his legs, his face. It pulses with his heartbeat. Each beat sends a wave of light through his body, through the bond, through Amelia. She feels it, a warmth so intense it almost burns. But it does not hurt. It hurts. Yes. The pain is real. His body is being stretched, opened, remade. His bones hum. His muscles spasm. His skin ripples with light. But he does not stop. He cannot stop. He has made his choice.
 
 Amelia feels it all. Through the bond. She is not just watching. She is inside it. She feels the silver light flowing through him. She feels the pain. She feels the strength. She feels the sacrifice. He is putting himself between the Hollow King and everyone he loves. He is making himself a living shield. And he is doing it for her. For the pack. For the Moon Goddess. For the bond itself.
 
@@ -104,19 +104,19 @@ She does not let go.
 
 She channels back.
 
-Her own power flows through the bond — not like his. Not silver. Not light. She is human. Her power is smaller. Different. Warmer. Softer. But no less real. It is the warmth of choice. Of love. Of stubborn, fierce refusal to lose the person standing in front of her. It pours through the bond into him. Fuels him. Strengthens him. She is not a warrior. She is not a shifter. She is not magic. But she is here. Present. Connected. And she is not letting go.
+Her own power flows through the bond, not like his. Not silver. Not light. She is human. Her power is smaller. Different. Warmer. Softer. But no less real. It is the warmth of choice. Of love. Of stubborn, fierce refusal to lose the person standing in front of her. It pours through the bond into him. Fuels him. Strengthens him. She is not a warrior. She is not a shifter. She is not magic. But she is here. Present. Connected. And she is not letting go.
 
 ---
 
 The Hollow King strikes.
 
-He feels it through the bond — a wave of darkness, a pressure so intense it nearly knocks him to his knees. The creature is outside the wards. He can feel him pressing against the boundary. The wards shudder. Cracks form. The Hollow King is strong. Stronger than Victor expected. Stronger than Josiah predicted. He is pushing through. Breaking through. The wards will not hold.
+He feels it through the bond, a wave of darkness, a pressure so intense it nearly knocks him to his knees. The creature is outside the wards. He can feel him pressing against the boundary. The wards shudder. Cracks form. The Hollow King is strong. Stronger than Victor expected. Stronger than Josiah predicted. He is pushing through. Breaking through. The wards will not hold.
 
 But Victor does not need the wards to hold.
 
 He opens the door.
 
-The darkness hits him. The Hollow King's presence — vast, cold, ancient — slams into the barrier they have created. Victor and Amelia stand shoulder to shoulder in the center of the room. His eyes are silver. His skin glows. His hands are raised, palms outward, channeling the bond. Amelia stands beside him. Her eyes are closed. Her hands are pressed to his chest. Her breathing is steady. Her voice is a whisper. Not words. Just his name.
+The darkness hits him. The Hollow King's presence, vast, cold, ancient, slams into the barrier they have created. Victor and Amelia stand shoulder to shoulder in the center of the room. His eyes are silver. His skin glows. His hands are raised, palms outward, channeling the bond. Amelia stands beside him. Her eyes are closed. Her hands are pressed to his chest. Her breathing is steady. Her voice is a whisper. Not words. Just his name.
 
 Victor. Victor. Victor.
 
@@ -126,7 +126,7 @@ The Hollow King strikes. The darkness crashes against the silver barrier like a 
 
 The barrier holds.
 
-The Hollow King's darkness recoils. For a moment, there is silence. Then the creature screams. A sound that echoes through the ward — not a physical scream. A psychic one. A shriek of rage and pain and something else. Something Victor cannot name. But he knows it. He felt it before. In the war room. In Josiah's eyes. In the pack's fear.
+The Hollow King's darkness recoils. For a moment, there is silence. Then the creature screams, a sound that echoes through the ward, not a physical scream. A psychic one. A shriek of rage and pain and something else. Something Victor cannot name. But he knows it. He felt it before. In the war room. In Josiah's eyes. In the pack's fear.
 
 It is fear. The Hollow King is afraid.
 
@@ -140,7 +140,7 @@ The Hollow King's darkness retreats. The creature pulls back from the wards. Fro
 
 The creature flees.
 
-Victor feels it — the presence disappearing. The pressure lifting. The cold fading. The bond settling. Warm. Steady. Whole. Stronger than ever.
+Victor feels it, the presence disappearing. The pressure lifting. The cold fading. The bond settling. Warm. Steady. Whole. Stronger than ever.
 
 He drops to his knees. The silver light fades from his skin. His eyes return to gray. His body is shaking. His hands tremble. His breath comes in gasps. He is exhausted. Drained. But alive.
 
@@ -166,6 +166,6 @@ Victor closes his eyes. Nods once. Slowly. His hands find her wrists. His grip i
 
 She leans her forehead against his. Closes her eyes. Breathes. The bond hums between them. Warm. Strong. Unbroken.
 
-And for the first time since the Hollow King arrived, Amelia believes — truly believes — that they can win this war.
+And for the first time since the Hollow King arrived, Amelia believes, truly believes, that they can win this war.
 
 Together.
