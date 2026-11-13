@@ -44,7 +44,7 @@ She gasps. Hands on his shoulders. He groans. Forehead drops to hers.
 
 He does. Rhythm steady. Relentless. Her legs tighten around his waist. Her nails leave marks on his back. She pushes back. Hard. Fast. Her breath comes in gasps. Her thighs tremble.
 
-She comes. A long, broken sound. Her back arches. Her thighs clamp around his waist. Her walls milk him. Squeeze. Pulsing.
+A long broken scream escapes her. Her back arches. Her thighs clamp tight around his waist and her walls milk him, squeezing and pulsing as she comes down off her orgasm.
 
 He holds on. Barely. Thrusts once. Twice. Three times. And breaks. Hips slam. Cock pulses inside her. Breath catches. Body locks. Groans.
 
