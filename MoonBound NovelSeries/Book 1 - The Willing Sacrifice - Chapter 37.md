@@ -96,9 +96,9 @@ Victor closes his eyes. The hollowed warrior. One is hollowed. This is what Josi
 
 "Who is it?"
 
-Emila hesitates. "Kael. Kael Rourke. He is — " She stops. Swallows. "He was a good warrior. Your friend. From before."
+Emila hesitates. "Marco. Marco Hayes. He is — " She stops. Swallows. "He was a good warrior. Your friend. From before."
 
-Victor's chest tightens. Kael. He remembers Kael. From the old days. Before Victor became Alpha. Before the war. A warrior who fought beside him. Laughed with him. Trusted him.
+Victor's chest tightens. Marco. He remembers Marco. From the old days. Before Victor became Alpha. Before the war. A warrior who fought beside him. Laughed with him. Trusted him.
 
 "Show me," he says.
 
@@ -110,35 +110,35 @@ Or the hollowed.
 
 He opens the door.
 
-Kael is lying on a cot. His eyes are open. Empty. His chest rises and falls. Steady. Mechanical. His hands are limp at his sides. His face is peaceful. Wrongly peaceful.
+Marco is lying on a cot. His eyes are open. Empty. His chest rises and falls. Steady. Mechanical. His hands are limp at his sides. His face is peaceful. Wrongly peaceful.
 
-Victor approaches. Slowly. Carefully. He kneels beside the cot. Looks at Kael's face. The face of a friend. A warrior. A man who gave everything to protect the pack.
+Victor approaches. Slowly. Carefully. He kneels beside the cot. Looks at Marco's face. The face of a friend. A warrior. A man who gave everything to protect the pack.
 
 Now his mind is gone.
 
-"I am here," Victor says softly. "I am here, Kael. I am not letting go."
+"I am here," Victor says softly. "I am here, Marco. I am not letting go."
 
-He reaches out. Places his hand on Kael's shoulder. Feels the skin. Warm. Alive. But the bond — the bond is empty. No pulse. No presence. Just a shell. A vessel. The Hollow King took it all.
+He reaches out. Places his hand on Marco's shoulder. Feels the skin. Warm. Alive. But the bond — the bond is empty. No pulse. No presence. Just a shell. A vessel. The Hollow King took it all.
 
 But Victor refuses. He refuses to put him down. Refuses to let the Hollow King win again.
 
-He holds Kael's hand.
+He holds Marco's hand.
 
 The bond hums between them. Warm. Steady. Alive.
 
-It should not be there. Kael is hollowed. The Hollow King emptied his mind. But the bond — the Mate Bond — is stronger than the Void King's power. It bridges. It connects. It reaches. And Victor is reaching. Through the bond. Through Kael's empty shell. And the bond answers.
+It should not be there. Marco is hollowed. The Hollow King emptied his mind. But the bond — the Mate Bond — is stronger than the Void King's power. It bridges. It connects. It reaches. And Victor is reaching. Through the bond. Through Marco's empty shell. And the bond answers.
 
 It hums.
 
 Warm. Steady. Alive.
 
-Victor closes his eyes. Breathes. Holds Kael's hand.
+He closes his eyes. Breathes. Holds Marco's hand.
 
 And knows — absolutely knows — that this is just the beginning. The Hollow King will return. He will keep coming. And every time, Victor will have to hold harder. Hold longer. Until he cannot hold anymore.
 
 But he will hold.
 
-For the pack. For the bond. For Kael.
+For the pack. For the bond. For Marco.
 
 For Amelia.
 
