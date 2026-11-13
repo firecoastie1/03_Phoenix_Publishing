@@ -306,7 +306,7 @@ He groans. A low, guttural sound. His hands grip her hips. Fingers digging into 
 
 She takes him to the back of her throat. Her nose presses against his abdomen. His fingers tighten on her hips. She pulls back. Smiles. Drops her hand. Stands.
 
-His mouth finds her breast. Opens. Sucks the nipple into his mouth. His tongue circles it. Sucks harder. She throws her head back. Groans. Her hands grip the bed. The mattress shakes beneath them. He kisses her breast. Sucks the other nipple. His hands push her onto her back.
+His mouth finds her breast. Opens. Sucks the nipple into his mouth. His tongue circles it. Sucks harder. She throws her head back. Groans. Her hands grip the bed. The mattress shakes beneath them. He kisses her breast. Sucks the other nipple. His hands gently push her onto her back.
 
 She is on the bed. He is above her. Knees bracketing her hips. His cock is pressed between her thighs. She wraps her legs around his waist. Her feet hook behind his back. Her ass grinds against him. His cock slips between her legs. The head presses against her slit. She is wet. Soaked. He groans.
 
