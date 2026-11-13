@@ -336,7 +336,7 @@ Amelia is sitting on the bed. Knees to her chest. Eyes on the door. Her face is 
 
 "He said you were hollowed. That you were gone. That I was alone."
 
-Victor crosses the room. Sits beside her. Close. Not touching. Not yet. "I was not gone."
+Victor crosses the room. Sits beside her. Close. "I was not gone."
 
 "I know." Her voice is a whisper. "But I believed it. For a second. For a terrible, terrible second, I believed it."
 
@@ -344,7 +344,7 @@ He reaches for her hand. She lets him. Fingers lacing with his. The bond hums be
 
 "I am not gone," he says. "I am here. I am alive. And I am not letting go."
 
-She looks at him. Eyes wet. Not crying. Not quite. But close. Her jaw is set. Her breath is even. She is holding herself together.
+She looks at him. Eyes wet. Her jaw is set. Her breath is even. She is holding herself together.
 
 "I need you," she says. Simple. Direct. Honest. "I need to feel you. Here. Now. Real. Not a whisper. Not a dream. You."
 
