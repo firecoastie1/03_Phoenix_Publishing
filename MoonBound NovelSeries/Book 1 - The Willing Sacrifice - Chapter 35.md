@@ -202,7 +202,7 @@ She presses her face into Victor's chest. Breathing him in. The bond hums. She p
 
 "Stay," she whispers.
 
-"I'm not going anywhere." His voice is thick with sleep. He shifts. Pulls her closer. Her back to his chest. His chest against her back. His arm around her waist. His leg tangled with hers.
+"I'm not going anywhere." His voice is thick with sleep. He shifts. Pulls her closer.
 
 She closes her eyes. But she does not sleep. She listens to his heartbeat. Feels the bond humming between them. And waits for dawn.
 
