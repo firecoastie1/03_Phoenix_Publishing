@@ -130,10 +130,6 @@ And it answers.
 
 The bond hums between them. Warm. Steady. Alive.
 
-It hums.
-
-Warm. Steady. Alive.
-
 He closes his eyes. Breathes. Holds Marco's hand.
 
 And knows — absolutely knows — that this is just the beginning. The Hollow King will return. He will keep coming. And every time, Victor will have to hold harder. Hold longer. Until he cannot hold anymore.
