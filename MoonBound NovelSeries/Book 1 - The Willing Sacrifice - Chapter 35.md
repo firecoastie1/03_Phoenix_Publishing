@@ -390,7 +390,7 @@ He lifts his head. Watches her. Her eyes are closed. Her lips are parted. Her ch
 
 She opens her eyes. Gray meets gray. He groans. A low, broken sound. His thrusts grow faster. Deeper. Her body meets his with every stroke. Her legs tighten around his waist. Her nails dig into his back. Her breath comes in sharp, broken bursts. The pressure builds. Higher. Tighter. Closer.
 
-"I am close," she says. "Victor. I am close."
+"I am close," she says. "Victor..."
 
 "Come for me," he says. "Come and let me feel it."
 
