@@ -88,37 +88,17 @@ He sits up. Watches her. She looks pale. Tired. But there is something else in h
 
 "Okay," he says. "Tell me."
 
-She looks at him. Gray eyes wet. Honest. "I am going to be sick."
+She looks at him. Gray eyes wet. Honest. "It is about us."
 
-He blinks. "What?"
+He stills. "What is it?"
 
-She stands up. Walks to the side of the bed. Bends over. Is sick. A wave of nausea. Quick. Violent. She shakes. Gasps. Her hands grip the sheets. Her breath comes in short bursts.
-
-He is beside her in seconds. His hand on her back. Rubbing circles. Slow. Soothing. "I have you. Breathe. You are fine."
-
-She breathes. Slowly. Carefully. The wave passes. She leans back against his chest. Her head on his shoulder. Her body shaking. Her face pale.
-
-He pulls her back to the bed. Cleans her face with a damp cloth. Brings her water. Holds the glass to her lips. She drinks. Slowly. Carefully.
-
-"When did this start?" he asks.
-
-"I do not know. A few days ago. Maybe longer. I thought it was the battle. The stress. The Hollow King. But it has not gone away. And I am so tired, Victor. So tired all the time. My body aches. My head spins. I feel like I have been running for weeks."
-
-He sits on the edge of the bed. Looks at her. Really looks at her. The paleness. The shadow under her eyes. The way she holds her stomach when she thinks he is not looking.
-
-"Amelia." He reaches out. Touches her arm. "What else is there?"
-
-She looks at him. Hesitates. Her fingers twist in the sheets. "I have been feeling things. Since the battle. The nausea. The exhaustion. The way my body feels different. Heavier. Not in a bad way. Just — changed."
-
-He frowns. Thinks. "Changed how?"
-
-She takes a breath. Holds it. Let it out slowly. Her fingers find his. Squeeze. "I think — I think something has been growing inside me. For a while."
+She takes a breath. Fingers twist in the sheets. "I have been feeling things. Since the battle. My body aches. My head spins. I feel like I have been running for weeks. And I have been — " She stops. Swallows. Blinks. Swallows again. "I think something has been growing inside me. For a while."
 
 He stares at her. The words do not compute. Not yet. They float above his head. Unreachable. Unclear.
 
 "Growing," he says.
 
-She nods. "I do not know what it is. But I think — I think I need to find out."
+She nods. "I do not know what it is. But I think I need to find out."
 
 He holds her hand. Squeezes. "We will find out. Together. Today. I will take you to Josiah. To Emila. To anyone who can help."
 
