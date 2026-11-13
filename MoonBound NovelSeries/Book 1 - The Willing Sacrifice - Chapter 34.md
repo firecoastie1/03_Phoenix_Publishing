@@ -294,13 +294,13 @@ He goes. Turns in her grip. Faces her. His eyes are amber. Dilated. Hungry. He p
 
 He groans. Drops his forehead to her shoulder. "I need to be inside you. Now."
 
-"Give me your pants," she says. "I will get them off."
+She tugs at her tunic. Rips it over her head. Throws it aside. Her breasts spill free. He groans again. Hands finding her hips. Lifting her. Spinning her onto her back.
 
-He stands. Lets her drop his pants and underwear in one rough tug. His cock springs free. Thick. Veined. Pulsing. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
+His cock is hard. Thick. Veined. Pulsing against her belly. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
 
 "Amelia," he says. His voice is broken. "Please."
 
-She bends. Takes the head into her mouth.
+She shifts up on the bed. Takes the head into her mouth.
 
 He groans. A low, guttural sound. His hands grip her hips. Fingers digging into flesh. She takes him deeper. The taste is salt and iron and him. Her hand wraps around the base. Her thumb presses over the head. She pulls back. Takes him deep again. Her mouth moves in slow, deliberate strokes. Her hand milks what her mouth cannot take. Her eyes are locked on his. He is watching her. Amber eyes wide. Unblinking. His jaw is clenched. His chest is heaving.
 
