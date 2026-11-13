@@ -20,11 +20,11 @@ She studies him. He looks normal. His breathing is steady. His eyes are clear. B
 
 "You're tense," she says.
 
-"Long day," he says. He doesn't look at her. Looks at the floor instead. "Perseus and David arguing about border patrols again."
+"Long day." He doesn't look at her. Looks past her instead. "A lot on my plate."
 
-"That doesn't sound like Perseus and David. That sounds like David alone."
+"Heavy," she says.
 
-He smiles. Small. Real. "You know me well."
+He smiles. Small. Real. "I know."
 
 "I'm learning."
 
