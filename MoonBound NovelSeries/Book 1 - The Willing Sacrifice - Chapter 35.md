@@ -370,8 +370,6 @@ He flips her onto her back. On top of him. His mouth finds her breast. Opens. Su
 
 She kicks her panties down and off. He is hard. Thick. Veined. Pulsing. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
 
-"Please," he says. His voice is broken. Desperate.
-
 She lines up. The head presses against her entrance. She is wet. Slippery. He pushes. Inches at a time. The stretch is intense. Burning. She gasps. Her nails dig into his shoulders. Her breath comes in sharp bursts. He pauses. Lets her adjust.
 
 "Okay?" he asks.
