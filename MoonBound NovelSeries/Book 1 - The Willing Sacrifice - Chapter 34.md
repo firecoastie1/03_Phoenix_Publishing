@@ -342,9 +342,13 @@ He groans. A low, broken sound. His thrusts grow faster. Deeper. Her body meets 
 
 She does. Her body convulses. Her walls clamp down around his cock. She screams. Her nails dig into his shoulders. Her thighs clamp around his waist.
 
-He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His eyes squeeze shut. His body locks. Shakes. Groans.
+He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches.
 
-He collapses on top of her. His weight presses her into the mattress. His breath comes in ragged bursts against her neck. His cock is still inside her. Still twitching. Still warm. Her arms wrap around his back. Her fingers trace the marks her nails left on his shoulders.
+---
+
+AMELIA
+
+His eyes squeeze shut. His body locks. Shakes. Groans. He collapses on top of her. His weight presses her into the mattress. His breath comes in ragged bursts against her neck. His cock is still inside her. Still twitching. Still warm. Her arms wrap around his back. Her fingers trace the marks her nails left on his shoulders.
 
 "I have you," she says. "I have you. I am here."
 
