@@ -348,7 +348,7 @@ He holds on. Barely. Her climax pushes him closer to the edge. The pressure in h
 
 AMELIA
 
-His eyes squeeze shut. His body locks. Shakes. Groans. He collapses on top of her. His weight presses her into the mattress. His breath comes in ragged bursts against her neck. His cock is still inside her. Still twitching. Still warm. Her arms wrap around his back. Her fingers trace the marks her nails left on his shoulders.
+He collapses on top of her. His weight presses her into the mattress. His breath comes in ragged bursts against her neck. His cock is still inside her. Still twitching. Still warm. Her arms wrap around his back. Her fingers trace the marks her nails left on his shoulders.
 
 "I have you," she says. "I have you. I am here."
 
