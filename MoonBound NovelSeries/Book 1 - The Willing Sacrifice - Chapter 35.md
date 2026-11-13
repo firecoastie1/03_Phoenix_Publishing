@@ -22,7 +22,7 @@ She studies him. He looks normal. His breathing is steady. His eyes are clear. B
 
 "Long day." He doesn't look at her. Looks past her instead. "A lot on my plate."
 
-"Heavy," she says.
+"Tense," she says.
 
 He smiles. Small. Real. "I know."
 
