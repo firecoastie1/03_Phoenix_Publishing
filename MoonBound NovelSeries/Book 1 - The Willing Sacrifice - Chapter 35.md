@@ -368,7 +368,7 @@ She leans forward. Mouth on his. Tongue in his mouth. Desperate. Hungry. Her bod
 
 He flips her onto her back. On top of him. His mouth finds her breast. Opens. Sucks the nipple into his mouth. His tongue circles it. Sucks harder. She throws her head back. Groans. Her hands grip his shoulders. Nails digging into flesh.
 
-He pushes her tunic off. She kicks her panties down and off. He is hard. Thick. Veined. Pulsing. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
+She kicks her panties down and off. He is hard. Thick. Veined. Pulsing. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
 
 "Please," he says. His voice is broken. Desperate.
 
@@ -390,7 +390,7 @@ He lifts his head. Watches her. Her eyes are closed. Her lips are parted. Her ch
 
 "Look at me," he says.
 
-She opens her eyes. Gray meets gray. The bond flares wide open between them. Pure, raw emotion. Her desire floods into him. His need floods into her. It wraps around them like a blanket.
+She opens her eyes. Gray meets gray. He groans. A low, broken sound. His thrusts grow faster. Deeper.
 
 He groans. A low, broken sound. His thrusts grow faster. Deeper. Her body meets his with every stroke. Her legs tighten around his waist. Her nails dig into his back. Her breath comes in sharp, broken bursts. The pressure builds. Higher. Tighter. Closer.
 
