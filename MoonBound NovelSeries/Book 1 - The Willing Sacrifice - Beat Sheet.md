@@ -321,13 +321,15 @@ But Amelia doesn't run. She sits up, looks at Victor sleeping beside her, and re
 **Character beat:** Amelia's growth. She's no longer the lonely human who wandered into shifter territory. She's a bonded mate, and she's found her strength.
 
 ### Chapter 34 — The Assault
-**Beat:** The Hollow King launches a full assault on the Blackwood compound. This is not a scout. This is not a hunt. This is war.
+**Beat:** The Hollow King launches a full assault on the Blackwood compound. This is not the battle they should be fighting. This is the battle the Hollow King forces on them before the coalition is ready. There is only one bond holding the perimeter. The pack is outmanned and outclassed. The beast tears through the outer wards. The pack breaks. The perimeter buckles. The pack is pushed back, step by step, into the compound.
 
-The beast form tears through the outer wards. Shifters scramble to defend. Victor leads from the front. David fights like a man possessed. Perseus coordinates the defense. Josiah holds the center. Emila tends to the wounded.
+Victor leads from the front. David fights like a man possessed. Perseus coordinates. Josiah holds the inner wards. Emila tends to the wounded. Amelia stays in the healing tent — not because she's weak, but because she's useful. She can heal. She can stabilize. She can keep the pack fighting.
 
-Amelia stays in the healing tent — not because she's weak, but because she's useful. She can heal. She can stabilize. She can keep the pack fighting.
+The beast is driven back. But the cost is enormous. Seven dead. Dozens wounded. Several hollowed. The wards are shattered. The compound is damaged. The pack survives. Barely. Everyone in the compound knows it: this cannot be sustained. One bond is not enough. They need a web.
 
-**Dark element:** Full-scale battle. Visceral, intense, emotionally charged.
+**Dark element:** Full-scale battle. Visceral, intense, emotionally charged. The pack is losing — badly. They win only because Victor does not yield and Amelia does not stop healing.
+
+**Character beat:** The assault proves what Victor already suspected — he cannot hold back the Hollow King alone. The pack is barely surviving because they have only one bond. This is the catalyst that drives him to reach out to other shifter types. Not diplomatically. Desperately.
 
 ### Chapter 35 — The Hollow King's Gambit
 **Beat:** The Hollow King doesn't attack Victor directly. He goes for the bond. He whispers to Amelia in Victor's voice — telling her that Victor is gone, that he's hollowed, that she's alone. He tries to break the bond from the outside, using his Mind Whisper to exploit the bond's vulnerability.
