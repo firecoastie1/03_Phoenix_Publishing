@@ -142,7 +142,7 @@ He closes his eyes. Nods. Once. When he opens them, the vulnerability is gone. R
 
 She doesn't argue. She knows he's right. She can't sleep — not after that. Not with the Hollow King's whispers still echoing in her ears. So she stays awake. Beside him. Her head on his chest. His arm around her. The bond humming between them — steady, warm, open.
 
-They watch the darkness together.
+She drifts back off to sleep.
 
 ---
 
@@ -150,11 +150,11 @@ VICTOR
 
 He stays awake.
 
-Amelia's breathing evens out within minutes. Her body goes limp against his chest. Her fingers uncurl from his shirt. Her face relaxes. She is asleep. He is not.
+Amelia's breathing evens out within minutes. Her body goes limp against his chest. Her fingers uncurl from his shirt. Her face relaxes, and she drifts back off to sleep.
 
 The bond hums between them. Warm. Steady. But beneath the warmth — something else. Something cold. The Hollow King's whisper is still there. Faint. Fading. But present. Like a scar on the bond. A wound that has not fully closed.
 
-He can feel it — the Hollow King's presence on the other side of the bond. Not physical. Not in the room. Not on the territory. On the bond itself. Inside the connection between him and Amelia. The Void-Eater is a predator of the mind. He doesn't attack bodies. He attacks thoughts. Emotions. The spaces between people. The bond is a connection between two minds — and the Hollow King is trying to exploit that connection.
+He can feel it — the Hollow King's presence on the bond itself. Inside the connection between him and Amelia. He doesn't attack bodies. He attacks minds.
 
 He knows he cannot keep this up all night. He needs to sleep eventually. But if the Hollow King comes back, he needs to be ready. He needs to hold the door shut. Again. And again. Until dawn.
 
