@@ -292,7 +292,7 @@ He sits up. Pulls her with him. She straddles him. Her back against his chest. H
 
 He goes. Turns in her grip. Faces her. His eyes are amber. Dilated. Hungry. He pulls her down against him. Their bodies collide. Chest to chest. Hip to hip. Cock against thigh. She wraps her legs around his waist. Her feet hook behind his back. Her ass grinds against his groin. His cock slips between her thighs. She is wet. Dripping wet. He can feel it.
 
-He groans. Drops his forehead to her shoulder. "I need you. I need you inside me. Now."
+He groans. Drops his forehead to her shoulder. "I need to be inside you. Now."
 
 "Give me your pants," she says. "I will get them off."
 
