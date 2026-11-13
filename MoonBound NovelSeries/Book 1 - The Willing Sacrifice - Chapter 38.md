@@ -256,5 +256,5 @@ She looks at him. Gray eyes wet. Tired. Honest. "Later," she says. "Tomorrow."
 
 He studies her face. Nods. Once. "Okay."
 
-She closes her eyes. Rests her head against his chest. He wraps his arms around her. Holds her tight. The bond hums between them. Warm. Steady. Unbroken.
+She closes her eyes. Rests her head against his chest. He wraps his arms around her. Holds her tight.
 
