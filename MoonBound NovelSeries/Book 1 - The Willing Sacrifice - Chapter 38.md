@@ -150,7 +150,7 @@ Victor comes to her. Sits beside her. He does not speak. Just sits. His shoulder
 
 "You are not fine."
 
-She leans into him. Closes her eyes. Breathes. The bond hums between them. Warm. Steady. Alive.
+She leans into him. Closes her eyes. Breathes.
 
 "Victor," she says quietly. "I need to tell you something."
 
@@ -214,7 +214,7 @@ He does. Pulls back. Drives in. The rhythm is steady. Relentless. Each thrust is
 
 She pushes back against him. Hard. Fast. Her hips meet his with every stroke. The bed shakes beneath them. Her breath comes in gasps. Her thighs tremble. Her walls clamp down around his cock. He pulls back. Drives in harder. His hips slam against hers. Her nails tear into his shoulders. Her body shakes. Shudders. Spasms.
 
-She comes. A long, broken sound. A convulsion of pleasure. Her back arches off the bed. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring.
+She comes. A long, broken sound. A convulsion of pleasure. Her back arches off the bed. Her thighs tighten around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring.
 
 He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His body locks. Shakes. Groans.
 
@@ -222,7 +222,7 @@ He collapses on top of her. His weight presses her into the mattress. His breath
 
 He holds her. Long. Tight. Like he is memorizing the shape of her in his arms. And when he finally lets go, he rolls to his side. Pulls her against him. Her head on his chest. His arm around her waist. His leg tangled with hers.
 
-She does not speak. She just breathes. Her body is heavy against his. Warm. Alive. The bond hums between them. Warm. Strong. Unbroken.
+She does not speak. She just breathes. Heavy in his arms. Warm. Alive. The bond hums between them. Warm. Strong. Unbroken.
 
 He kisses her forehead. Once. Twice. "Stay," he says.
 
