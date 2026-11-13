@@ -338,7 +338,7 @@ He groans. A low, broken sound. His thrusts grow faster. Deeper. Her body meets 
 
 "I am close," she says. "Victor. I am close."
 
-"Come for me," he says. "Come and let me feel it. Come for your Alpha."
+"Come and let me feel it," he says.
 
 She does. Her body convulses. Her walls clamp down around his cock. Her inner muscles ripple and pulse. She screams. A long, broken sound. Her back arches off the bed. Her nails tear into his shoulders. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring. Her body shakes. Shudders. Spasms.
 
