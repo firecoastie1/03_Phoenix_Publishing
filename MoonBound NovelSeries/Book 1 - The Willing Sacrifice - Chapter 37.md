@@ -4,13 +4,13 @@ AMELIA
 
 She wakes to quiet.
 
-The room is pale with morning light. Dust hangs in the air. The compound is silent — not the dead silence from before, not the hollow silence of the Hollow King, but the exhausted silence of survivors.
+The room is pale with morning light. Dust hangs in the air. The compound is silent, not the dead silence from before, not the hollow silence of the Hollow King, but the exhausted silence of survivors.
 
 Victor is beside her. Asleep. His breathing is slow. Uneven. His face is pressed into her shoulder. His arm is wrapped around her waist. His hand is curled against her ribs. He looks smaller in sleep. The silver light is gone from his skin. His eyes are gray. Tired. Real. Alive.
 
 She does not move. She does not want to break the moment.
 
-The bond is still humming between them. Warm. Strong. The barrier held. The Hollow King is gone. She can feel it — not through her senses, but through the bond itself. The cold presence that pressed against the wards has receded. The wards are intact. The pack is safe.
+The bond is still humming between them. Warm. Strong. The barrier held. The Hollow King is gone. She can feel it, not through her senses, but through the bond itself. The cold presence that pressed against the wards has receded. The wards are intact. The pack is safe.
 
 But she knows this is not the end.
 
@@ -58,7 +58,7 @@ Stops.
 
 She can hear Victor's voice over the others. Calm. Firm. In command.
 
-But underneath it — something else. Something she recognizes through the bond. Worry. Fear. Concern. Not for himself. For someone else.
+But underneath it, something else. Something she recognizes through the bond. Worry. Fear. Concern. Not for himself. For someone else.
 
 She opens the door.
 
@@ -66,9 +66,9 @@ She opens the door.
 
 VICTOR
 
-He walks into the corridor. The compound is a wreck. The wards held, but the impact left its mark — shattered glass, cracked walls, scorch marks on the floor. Pack members are everywhere. Some are tending wounds. Others are checking damage. Some are standing in groups, faces pale, whispering.
+He walks into the corridor. The compound is a wreck. The wards held, but the impact left its mark, shattered glass, cracked walls, scorch marks on the floor. Pack members are everywhere. Some are tending wounds. Others are checking damage. Some are standing in groups, faces pale, whispering.
 
-Victor steps into the chaos. His Alpha presence cuts through the noise. Voices drop. Eyes turn toward him. He walks through the compound like a general surveying a battlefield — assessing, calculating, making decisions.
+Victor steps into the chaos. His Alpha presence cuts through the noise. Voices drop. Eyes turn toward him. He walks through the compound like a general surveying a battlefield, assessing, calculating, making decisions.
 
 Perseus is in the healing tent. Surrounded by wounded. Seven dead, as the beat sheet said. He saw the battle through the bond. He knows what happened. His face is grim. He nods at Victor. No words needed.
 
@@ -76,13 +76,13 @@ David is pacing. Angry. Relieved. Terrified. All at once. "The wards held. I fel
 
 "I told you," Victor says. Calm. Steady. "We do this together."
 
-David looks at him. Really looks at him. Victor's eyes are silver for a moment — just a flash, a shadow of the light from last night — and then they fade back to gray. But David saw it. He felt it. The barrier was real. The bond was real. And Victor almost died for it.
+David looks at him. Really looks at him. Victor's eyes are silver for a moment, just a flash, a shadow of the light from last night, and then they fade back to gray. But David saw it. He felt it. The barrier was real. The bond was real. And Victor almost died for it.
 
 "Did you?" David asks quietly. "Almost die? I felt the bond. I felt it go wrong. For a second, I thought — " He stops. Shakes his head. "Did you almost die?"
 
 Victor does not answer. Not yet.
 
-Emila approaches. She is tending to wounds — bandaging, cleaning, stitching. Her hands are steady. Her face is calm. But her eyes are tired. She sees Victor. Looks at him. Really looks at him. "You are alive," she says. Simple. Direct.
+Emila approaches. She is tending to wounds, bandaging, cleaning, stitching. Her hands are steady. Her face is calm. But her eyes are tired. She sees Victor. Looks at him. Really looks at him. "You are alive," she says. Simple. Direct.
 
 "I am alive," he says.
 
@@ -92,7 +92,7 @@ Victor goes still. "Where?"
 
 "East wing. Third room. He went down during the assault. We thought he was dead. But he is breathing. Heart is beating. Eyes are empty."
 
-Victor closes his eyes. The hollowed warrior. One is hollowed. This is what Josiah warned about. This is what the Hollow King does — he does not kill. He empties. He leaves bodies breathing and minds gone. Puppets.
+Victor closes his eyes. The hollowed warrior. One is hollowed. This is what Josiah warned about. This is what the Hollow King does, he does not kill. He empties. He leaves bodies breathing and minds gone. Puppets.
 
 "Who is it?"
 
@@ -146,7 +146,7 @@ For Amelia.
 
 AMELIA
 
-She waits outside the healing tent. The voices have died down. The compound is quiet. Morning light filters through the cracks in the walls. The barrier still hums — she can feel it through the bond, a steady, warm, unbroken presence. The Hollow King is gone. For now.
+She waits outside the healing tent. The voices have died down. The compound is quiet. Morning light filters through the cracks in the walls. The barrier still hums, she can feel it through the bond, a steady, warm, unbroken presence. The Hollow King is gone. For now.
 
 Victor comes out of the east wing. His face is tired. Pale. But his eyes are steady. He walks past her without stopping. Heads for the war room.
 
@@ -172,7 +172,7 @@ Josiah's eyes open. He looks at Victor. Really looks at him. "You know what this
 
 "I know."
 
-"The Hollow King targets bonds because they are the only thing he cannot destroy from the outside. He cannot breach a barrier. He cannot break a bond that is strong. So he does the only thing he can — he hollows. He empties. He takes the people you love and turns them into puppets. He uses them against you. Against the pack."
+"The Hollow King targets bonds because they are the only thing he cannot destroy from the outside. He cannot breach a barrier. He cannot break a bond that is strong. So he does the only thing he can, he hollows. He empties. He takes the people you love and turns them into puppets. He uses them against you. Against the pack."
 
 "I know."
 
@@ -198,7 +198,7 @@ He looks at her. Gray eyes tired. But alive.
 
 "Yes," he says. "Home."
 
-They walk out of the war room. Together. The barrier holds. The pack is safe. The Hollow King is gone — for now.
+They walk out of the war room. Together. The barrier holds. The pack is safe. The Hollow King is gone, for now.
 
 But Victor knows this is just the beginning.
 
