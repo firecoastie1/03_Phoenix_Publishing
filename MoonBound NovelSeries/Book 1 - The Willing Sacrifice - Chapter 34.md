@@ -294,7 +294,7 @@ He goes. Turns in her grip. Faces her. His eyes are amber. Dilated. Hungry. He p
 
 He groans. Drops his forehead to her shoulder. "I need to be inside you. Now."
 
-She tugs at her tunic. Rips it over her head. Throws it aside. Her breasts spill free. He groans again. Hands finding her hips. Lifting her. Spinning her onto her back.
+He groans again. Hands finding her hips. Lifting her. Spinning her onto her back.
 
 His cock is hard. Thick. Veined. Pulsing against her belly. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
 
