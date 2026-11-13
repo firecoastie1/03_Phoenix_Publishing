@@ -224,9 +224,7 @@ He holds her. Long. Tight. Like he is memorizing the shape of her in his arms. A
 
 She does not speak. She just breathes. Warm in his arms. Alive. The bond hums between them. Warm. Strong. Unbroken.
 
-He kisses her forehead. Once. Twice. "Stay," he says.
-
-"I am here," she says. "I am not going anywhere."
+He kisses her forehead. Once. Twice.
 
 He closes his eyes. Breathes.
 
