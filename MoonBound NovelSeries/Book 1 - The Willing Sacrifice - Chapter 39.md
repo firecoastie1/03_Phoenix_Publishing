@@ -46,7 +46,7 @@ He does. Rhythm steady. Relentless. Her legs tighten around his waist. Her nails
 
 A long broken scream escapes her. Her back arches. Her thighs clamp tight around his waist and her walls milk him, squeezing and pulsing as she comes down off her orgasm.
 
-He holds on. Barely. Thrusts once. Twice. Three times. And breaks. Hips slam. Cock pulses inside her. Breath catches. Body locks. Groans.
+He holds on. Barely. Thrusting once, twice, three times before he slams in, cock pulsing inside her as she milks him til there's nothing left. His breath catches. Body locks and he lets out an uncontrollable groan of pleasure.
 
 He collapses on top of her. Weight presses her into the mattress. Breath ragged against her neck. She wraps her arms around his back. Fingers trace the marks her nails left on his shoulders.
 
