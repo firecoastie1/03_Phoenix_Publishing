@@ -10,7 +10,7 @@ Victor is laying beside her sleeping soundly. His breathing is slow. Uneven. His
 
 She doesnt want to move and leave this moment.
 
-The bond is still humming between them. Warm. Strong. The barrier held. The Hollow King is gone. She can feel it, not through her senses, but through the bond itself. The cold presence that pressed against the wards has receded. The wards are intact. The pack is safe.
+The bond is still humming between them. It feels warm and strong. The barrier held in place, the Hollow King is gone. She can feel that the cold presence that was pressing against the wards is no longer there and The pack and safe.
 
 But she knows this is not the end.
 
