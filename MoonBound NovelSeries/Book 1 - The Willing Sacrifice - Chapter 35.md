@@ -364,7 +364,7 @@ He sits up. Helps her. She pulls her shirt over her head. Throws it aside. Her b
 
 She leans forward, takes his mouth, tongue tangling with his, desperate, hungry, her body grinding slowly against his, her ass against his cock. He's hard as a rock, pulsing and so thick.
 
-He flips her onto her back. On top of him. His mouth finds her breast. Opens. Sucks the nipple into his mouth. His tongue circles it. Sucks harder. She throws her head back. Groans. Her hands grip his shoulders. Nails digging into flesh.
+He flips her on her back and gently puts her on him. His mouth hungrily finds her breast. He sucks her nipple in circling it while sucking harder. She throws her head back and lets out a needy groan. Her hands grab his shoulders, nails digging in.
 
 She kicks her panties down and off. He is hard. Thick. Veined. Pulsing. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
 
