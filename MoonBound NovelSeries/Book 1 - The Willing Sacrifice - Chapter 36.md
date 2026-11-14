@@ -34,7 +34,7 @@ He looks at her. "No, there isn't."
 
 He stares at her. For a long moment, he doesn't speak. The bond pulls again. She can hear the Hollow King now, It almost sounds like the whisper in the wind, or of static. Maybe even laughter. He is patient. He is strong. He is waiting for Victor to step outside the wards.
 
-"The Mate Bond can create a barrier?" Victor says. Slowly. "Not just connect two people? Actually — " He stops. Shakes his head. "I don't know. Josiah has never — "
+"The Mate Bond can create a barrier?" Victor says. He takes a moment, thinking it over, dragging it out. "Not just connect two people?" Shaking his head. "I don't know. Josiah has never — "
 
 "Then make it work," she says. Simple. Direct. "You said it yourself. You have to choose. Stay inside or go outside. But if you channel the bond through yourself, make yourself a conduit, and I do the same from inside the bond, maybe we don't have to choose."
 
