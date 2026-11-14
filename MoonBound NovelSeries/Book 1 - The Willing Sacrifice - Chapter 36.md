@@ -150,7 +150,7 @@ She stays on her knees beside him. Her hands still on his face. Her thumbs traci
 
 But alive.
 
-The barrier held. The Hollow King is gone. The wards are intact. The pack is safe.
+The barrier held, The Hollow King is gone and the wards are intact. More importantly, the pact is safe.
 
 Victor closes his eyes. Nods once. Slowly. His hands find her wrists. His grip is weak. Trembling. But present. Solid. Real.
 
