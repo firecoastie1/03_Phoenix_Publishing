@@ -90,7 +90,7 @@ Amelia gasps. "Victor."
 
 His voice comes out in a different tone that is not human, and not wolf. Its a frequency that feels like it vibrates in her chest, maybe even in her bones, in the bond itself. Its not really a word, more like a feeling. a command or declaration.
 
-He is shifting. But not into a wolf. Into something else. Something older. Something the Mate Bond was meant to create but never had to. A vessel. A conduit. A living channel for the bond's power. The Moon Goddess did not design him to do this. But she gave him the bond. And the bond gave him the choice.
+He is shifting, But not into a wolf, into something else, something much older. Something the Mate Bond was meant to create but has never really had to. He's shifting into a vessel, a conduit. A living channel for the bond's power. The Moon Goddess did not design him to do this. But she gave him the bond. And the bond gave him the choice.
 
 He makes it.
 
