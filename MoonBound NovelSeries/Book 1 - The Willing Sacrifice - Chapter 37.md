@@ -16,7 +16,7 @@ But she knows this is not the end.
 
 She closes her eyes. Breathes. Feels Victor's heartbeat against her back. Steady. Slow. Alive.
 
-The compound begins to stir. Voices in the corridors. Footsteps. Whispers. Pack members checking on each other. Assessing damage. Tending wounds. The morning after a battle.
+The compound begins to stir. Voices can be heard in the corridors. Footsteps and whispers are heard as pack members are checking on each other. They are assessing the damage, tending to wounds, all reminding her that this is the morning after the battle.
 
 She stays still until she cannot.
 
