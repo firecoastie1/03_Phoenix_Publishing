@@ -40,7 +40,7 @@ He stares at her. For a long moment, he doesn't speak. The bond pulls again. She
 
 He looks at her. Really looks at her. His jaw is tight. His eyes are wide. She has given him an option he did not expect. An option that costs something, probably everything, but does not sacrifice her.
 
-"If I do this," he says carefully, "I cannot control how much power flows through me. I don't know if I can survive it."
+"If I do this," he says carefully, "I cannot control how much power flows through me. I don't know if I will be able to survive it."
 
 "You don't know if I can survive it either," she says. "I'm human."
 
