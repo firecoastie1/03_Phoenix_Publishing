@@ -152,7 +152,7 @@ He stays awake. There is no way he feels he will get rest tonight.
 
 Amelia's breathing starts to even out within minutes. Her body starts to relax against his chest. Her fingers slowly uncurl from his shirt and her face relaxes, then she drifts peacefully off to sleep.
 
-The bond hums between them. Warm. Steady. But beneath the warmth — something else. Something cold. The Hollow King's whisper is still there. Faint. Fading. But present. Like a scar on the bond. A wound that has not fully closed.
+The bond is a steady hum that is warm, but beneath that is something else. Something that feels cold. There is still a whisper of the Hollow King there. Its fading slowly but it is still making itself known.
 
 He knows he cannot keep this up all night. But he doesn't see any other way. But if the Hollow King comes back, he needs to be ready. He needs to hold the door shut. Again. And again. Until dawn.
 
