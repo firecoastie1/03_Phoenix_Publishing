@@ -48,7 +48,7 @@ Victor sits up. Immediately. The exhaustion is gone. Replaced by the Alpha. His 
 
 "Stay here." He kisses her forehead and says. "I will be back."
 
-He gets up. Dressed in seconds. Leaves the room.
+He gets up, gets dressed quickly, and is out the door in seconds.
 
 She lies in bed. Listens. The voices in the corridors are getting louder. Voices she does not recognize. Pack members she has not met. Some are shouting. Some are crying. Some are ordering.
 
