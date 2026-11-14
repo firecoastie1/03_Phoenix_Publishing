@@ -366,7 +366,7 @@ She leans forward, takes his mouth, tongue tangling with his, desperate, hungry,
 
 He flips her on her back and gently puts her on him. His mouth hungrily finds her breast. He sucks her nipple in circling it while sucking harder. She throws her head back and lets out a needy groan. Her hands grab his shoulders, nails digging in.
 
-She kicks her panties down and off. He is hard. Thick. Veined. Pulsing. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
+She kicks off her panties desperate for him. He's so hard and thick, and pulsing and so wet. She wraps her fingers around him and strokes it once and then again. She hears his breath catch and feels his hips jerk as she strokes it again, feeling it twitch in her hand.
 
 She lines up. The head presses against her entrance. She is wet. Slippery. He pushes. Inches at a time. The stretch is intense. Burning. She gasps. Her nails dig into his shoulders. Her breath comes in sharp bursts. He pauses. Lets her adjust.
 
