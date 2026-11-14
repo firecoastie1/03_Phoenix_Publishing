@@ -38,7 +38,7 @@ He closes his eyes. Nods once. "I am here."
 
 He opens his eyes. His gray eyes are steady but tired. "I will go when I am ready."
 
-She nods. Does not push. He just channeled a Mate Bond through his own body, became a living shield, and held a barrier against the Hollow King's full assault. He is exhausted. She lets him rest.
+She nods. Does not push. He just channeled a Mate Bond through his own body, became a living shield, and held a barrier against the Hollow King's full assault. He is exhausted. So she lets him rest.
 
 But the compound is waking up. Voices are getting louder. Someone is shouting. Not in panic. In urgency.
 
