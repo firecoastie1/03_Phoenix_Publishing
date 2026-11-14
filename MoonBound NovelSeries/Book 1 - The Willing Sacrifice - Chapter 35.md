@@ -358,9 +358,7 @@ He pulls her against him. Her body against his. Her head on his chest. His arm a
 
 She kisses him, desperate to show him how much he means to her, hands tugging gently in his hair. Then gripping on to his shirt, pulling him closer as he kisses her back with the same hunger. His hands gripping her waist, pulling her to him.
 
-They move to the bed. Falling back, she climbs on top up straddling him with knees on each side of his hips. Her hands are on his chest, pushing and rubbing,
-
-"Clothes off," she says. "All of it. I need you bare."
+They move to the bed. Falling back, she climbs on top up straddling him with knees on each side of his hips. Her hands are on his chest, pushing and rubbing. "Clothes off," she says. "All of it. I need you bare."
 
 He sits up. Helps her. She pulls her shirt over her head. Throws it aside. Her breasts spill free. He looks at her. Gray eyes dark. Pupils blown wide. His hands find her breasts. Cupping them. Squeezing. Thumbs pressing over her nipples.
 
