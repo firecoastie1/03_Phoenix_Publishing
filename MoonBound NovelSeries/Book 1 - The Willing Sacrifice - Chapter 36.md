@@ -36,7 +36,7 @@ He stares at her. For a long moment, he doesn't speak. The bond pulls again. She
 
 "The Mate Bond can create a barrier?" Victor says. He takes a moment, thinking it over. "Not just connect two people?" Shaking his head. "I don't know. Josiah has never — "
 
-"Then make it work," she says. "You said it yourself. You have to choose. Stay inside or go outside. But if you channel the bond through yourself, make yourself a conduit, and I do the same from inside the bond, maybe we don't have to choose."
+"Then make it work," she says. "You said it yourself. You have to choose. Stay inside or go outside. But if you channel the bond through yourself, make yourself a conduit, and I do the same from inside the bond, maybe we won't have to choose."
 
 He looks at her. Really looks at her. His jaw is tight. His eyes are wide. She has given him an option he did not expect. An option that costs something, probably everything, but does not sacrifice her.
 
