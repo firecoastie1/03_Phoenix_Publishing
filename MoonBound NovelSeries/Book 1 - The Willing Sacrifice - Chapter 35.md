@@ -90,7 +90,7 @@ Not Victor's voice. Not Victor's face. The bond itself. Steady. Warm. Certain. I
 
 She grabs it. Clutches it with everything she has. And holds on.
 
-The darkness screams. The vines dissolve. The forest vanishes. She is gasping on the bed. Heart hammering. Sweat soaking her shirt. Victor standing above her. Real Victor. Gray eyes wide. Mouth open. Hand reaching for her face.
+The darkness screams. The vines dissolve. She is gasping for air on the bed. Her heart is hammering out of her chest. Sweat has drenched her shirt. The forest vanishes. Victor standing above her. Real Victor. Gray eyes wide. Mouth open. Hand reaching for her face.
 
 "Amelia. Amelia. Look at me."
 
