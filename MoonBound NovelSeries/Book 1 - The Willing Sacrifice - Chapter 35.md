@@ -180,7 +180,7 @@ The thought surprises him. He doesn't get proud. He gets angry. He gets frustrat
 
 He drops his forehead against hers. Closes his eyes. Breathes her in. Her scent is mixed with sweat and fear and sleep — but underneath it all, the same soft, warm smell she always has. Something like honey and herbs and morning light.
 
-The bond hums. Warm. Steady. He can still feel the Hollow King on the other side — faint, like a cold draft in a warm room. He braces against it. Holds the door shut. Waits for dawn.
+The bond hums. He can still feel the Hollow King on the other side — faint, like a cold draft in a warm room. He braces against it. Holds the door shut. Waits for dawn.
 
 ---
 
