@@ -54,7 +54,7 @@ And he will be ready.
 
 "I believe in you," she says.
 
-He closes his eyes. Nods. Once. When he opens them, the fear is gone. Replaced by something harder. Something certain. "Then stay with me."
+He closes his eyes and nods. When he opens them there is no evidence of fear in them. There is something else, something harder, something more certain. Then he says. "Stay with me."
 
 "I'm not going anywhere."
 
