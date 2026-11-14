@@ -28,7 +28,7 @@ He looks at her. Gray eyes hard. "Stay inside and let the pack feel the full wei
 
 She grabs his arms. "No. You don't have to choose. There's a third option."
 
-He looks at her. "There isn't."
+He looks at her. "No, there isn't."
 
 "There is. The ceremony. The Moon Goddess. Josiah said the bond is strongest when it's honest. When it's open. When there are no walls." She breathes. Thinks. The bond keeps pulling. The Hollow King is outside. She can feel him, ancient, cold, hungry. A void wearing a shape. "What if we don't hold it back? What if we let it out? The bond itself. Through both of us. Not as a door you hold shut. As a wall."
 
