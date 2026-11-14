@@ -48,7 +48,7 @@ He grabs her arms, squeezing gently. "Amelia. Please. Let me — "
 
 "No." She pulls his hands to her face. Places her palms against his cheeks, caressing his face. "We do this together. Both of us. Or not at all."
 
-The bond pulls again. The Hollow King is still there. Still testing. Still waiting. But the pull is changing, the presence outside is shifting. Focusing. Preparing to strike. He knows Victor is waking up. He knows Victor is choosing.
+The bond pulls at them again. They know that the Hollow King is still out there. Still waiting. But the pull is now changing. There is a shift outside like things are coming into focus and preparing to strike. He knows Victor is waking up. He knows Victor is choosing.
 
 And he will be ready.
 
