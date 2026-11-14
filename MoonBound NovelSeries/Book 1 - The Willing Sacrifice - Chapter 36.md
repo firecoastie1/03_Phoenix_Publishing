@@ -62,7 +62,7 @@ He closes his eyes. Nods. Once. When he opens them, the fear is gone. Replaced b
 
 VICTOR
 
-He steps into the center of the room. Amelia follows. Barefoot. Dark hair tangled. Eyes wide but steady. Gray. Certain. Ready.
+He steps into the center of the room. Amelia follows him. She has no shoes on and her dark hair is in tangles but her eyes are steady and certain.
 
 The bond hums between them. Warm. Strong. But beneath the warmth, something else. Something waiting. Something that has never been asked to do this before. The Mate Bond was designed to connect. To bind. To bridge. It was never designed to protect. To shield. To sacrifice.
 
