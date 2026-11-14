@@ -84,7 +84,7 @@ She touches his forehead to hers. Her hands find his shoulders. Her eyes lock on
 
 And the transformation begins.
 
-It is not a wolf shift. Not a human shift. Something in between. His bones do not crack. His muscles do not expand. But something changes. Deeper. The bond flows through him and his skin begins to glow, a faint, silver light beneath the surface, rippling like water. His eyes open. His irises are no longer gray. They are silver. Glowing. Bright. Unnatural.
+It is not a wolf shift, its not even a human shift. It is something somewhere in between. His bones do not crack, muscles don't expand. But there is something that is much deeper that changes. The bond flows through him and his skin begins to glow in a faint silver light. It looks like it is rippling like water. His eyes then open and they are no longer his deep gray, they are silver and glowing. unnaturally bright.
 
 Amelia gasps. "Victor."
 
