@@ -8,7 +8,7 @@ She wakes to Victor's voice.
 
 It comes from the doorway. Soft. Tender. Exactly the way he says her name when he thinks she's asleep.
 
-She turns. He stands there in the dim light from the hallway. Shirtless. Hair messy from sleep. Eyes gray and warm.
+She turns expecting him to be closer than he is but sees him shirtless, looking as if he hasn't slept all night.
 
 "You're awake," he says.
 
@@ -16,7 +16,7 @@ She turns. He stands there in the dim light from the hallway. Shirtless. Hair me
 
 "Nothing. I just wanted to check on you." He steps into the room. Bare feet on the floorboards. Silent. He sits on the edge of the bed. Close.
 
-She studies him. He looks normal. His breathing is steady. His eyes are clear. But there's something in his posture — a tension she doesn't recognize. Shoulders tight. Jaw clenched. The way he holds himself still when he's trying not to move.
+She looks at him closely, not believing there isn't anything wrong. Even though he looks calm, his breathing isn't off. There is just something about the way he is standing...
 
 "You're tense," she says.
 
