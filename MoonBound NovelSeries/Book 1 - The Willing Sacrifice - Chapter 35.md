@@ -148,7 +148,7 @@ She drifts back off to sleep.
 
 VICTOR
 
-He stays awake.
+He stays awake. There is no way he feels he will get rest tonight.
 
 Amelia's breathing evens out within minutes. Her body goes limp against his chest. Her fingers uncurl from his shirt. Her face relaxes, and she drifts back off to sleep.
 
