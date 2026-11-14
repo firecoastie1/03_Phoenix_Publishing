@@ -40,7 +40,7 @@ She leans into him. Rests her head on his shoulder. His arm comes around her. He
 
 His hand moves on her back. Slow circles. Rhythmic. Soothing.
 
-She should be asleep. She should be drifting into the easy sleep she gets when he's near. But something is wrong. Something is off. She can't name it. Not yet.
+She should be asleep. She should be drifting into the easy sleep she gets when he's near. But she knows that something is going to happen. And happen soon.
 
 The room is quiet. Too quiet. No sounds from the compound outside. No crickets. No wind. No distant pack sounds. Just silence. A silence so complete it feels like pressure against her ears.
 
