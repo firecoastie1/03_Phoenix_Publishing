@@ -4,7 +4,7 @@ AMELIA
 
 She wakes up to a peacefully quiet room.
 
-The room is pale with morning light. Dust hangs in the air. The compound is silent, not the dead silence from before, not the hollow silence of the Hollow King, but the exhausted silence of survivors.
+The room has a soft morning light from the sun. You can see the dust hanging in the air. The compound is silent, almost too silent. The remanence of the Hollow King and the survivors.
 
 Victor is beside her. Asleep. His breathing is slow. Uneven. His face is pressed into her shoulder. His arm is wrapped around her waist. His hand is curled against her ribs. He looks smaller in sleep. The silver light is gone from his skin. His eyes are gray. Tired. Real. Alive.
 
