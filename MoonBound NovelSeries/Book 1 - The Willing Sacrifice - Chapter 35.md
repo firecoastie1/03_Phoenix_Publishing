@@ -380,7 +380,7 @@ He groans, a low deep groan, he drops his forehead, his hand grab her hips and h
 
 "Victor," she says. Her voice is breathless. Broken. "Harder. Please. Harder."
 
-He pulls back. Slow. Deliberate. His cock slides out almost all the way. Then drives back in. The impact rocks her. Her breath catches. Her nails dig into his shoulders. He pulls back. Drives in again. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his shoulders. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
+He pulls back slowly, almost all the way out, and then slams back in. The impact rocks her. Her breath catches. Her nails dig into his shoulders. He pulls back. Drives in again. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his shoulders. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
 
 He lifts his head. Watches her. Her eyes are closed. Her lips are parted. Her chest heaves. Her skin is flushed. Her hair is spread across the pillow. Every muscle in her body is locked. Taut. Ready. He drives in harder. Faster. His hips slam against hers. The bed shakes beneath them. Her breath comes in gasps. Her thighs tremble. Her walls clamp down around his cock.
 
