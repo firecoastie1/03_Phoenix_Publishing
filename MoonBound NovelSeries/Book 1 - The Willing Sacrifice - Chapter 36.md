@@ -140,7 +140,7 @@ Amelia drops beside him. Her hands find his face. Her thumbs press against his c
 
 "You did it," she says.
 
-He looks at her. Gray eyes wet. Tired. But alive. "We did it."
+He looks at her with wet, grey tired eyes. But he's alive. and says. "We did it"
 
 ---
 
