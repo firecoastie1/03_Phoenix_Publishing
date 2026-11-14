@@ -46,7 +46,7 @@ Victor sits up. Immediately. The exhaustion is gone. Replaced by the Alpha. His 
 
 "Victor — "
 
-"Stay here." He kisses her forehead. Once. Quick. "I will be back."
+"Stay here." He kisses her forehead and says. "I will be back."
 
 He gets up. Dressed in seconds. Leaves the room.
 
