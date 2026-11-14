@@ -128,15 +128,9 @@ The Hollow King's darkness recoils. For a moment, there is silence. Then the cre
 
 It is fear. The Hollow King is afraid.
 
-Victor pushes harder. His body screams. The silver light burns. His bones hum. His veins ache. But he does not stop. He channels the bond through himself. All of it. Every ounce of power, every thread of connection, every moment of trust and love and choice. He puts it all into the barrier. He becomes the shield. He becomes the wall.
+Victor pushes harder through the bond. Amelia stands beside him. The barrier holds.
 
-And Amelia stands beside him. Not as a warrior. Not as a shifter. As his mate. As his anchor. As the person who chose him. Who held on when the darkness tried to take him. Who whispered his name when the barrier held and the Hollow King screamed.
-
-The barrier holds.
-
-The Hollow King's darkness retreats. The creature pulls back from the wards. From the barrier. From the impossible wall of silver light that should not exist. A Mate Bond. Between a lone wolf and a human. Between two people who chose each other. Between love and fear and stubborn, fierce refusal.
-
-The creature flees.
+The Hollow King's darkness retreats. The creature flees.
 
 Victor feels it, the presence disappearing. The pressure lifting. The cold fading. The bond settling. Warm. Steady. Whole. Stronger than ever.
 
