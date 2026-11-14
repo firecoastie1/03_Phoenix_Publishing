@@ -362,7 +362,7 @@ They move to the bed. Falling back, she climbs on top up straddling him with kne
 
 He sits up. Helps her. She pulls her shirt over her head. Throws it aside. Her breasts spill free. He looks at her. Gray eyes dark. Pupils blown wide. His hands find her breasts. Cupping them. Squeezing. Thumbs pressing over her nipples.
 
-She leans forward. Mouth on his. Tongue in his mouth. Desperate. Hungry. Her body grinding against his. Her ass against his cock. Hard. Thick. Pulsing.
+She leans forward, mouth on his. Tongue tangling with his, desperate, Hungry. Her body grinding against his. Her ass against his cock. Hard. Thick. Pulsing.
 
 He flips her onto her back. On top of him. His mouth finds her breast. Opens. Sucks the nipple into his mouth. His tongue circles it. Sucks harder. She throws her head back. Groans. Her hands grip his shoulders. Nails digging into flesh.
 
