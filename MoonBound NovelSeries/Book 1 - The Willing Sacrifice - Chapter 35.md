@@ -374,7 +374,7 @@ She can't take it anymore and lines his cock up to her entrance, desperate. The 
 
 "Yes. Keep going."
 
-He pushes. Deeper. His hips snap forward. The rest of him slides in. Her body stretches around him. She gasps. Her head falls back. Her eyes close. Her breath comes in short, sharp bursts. He is buried to the hilt. His cock is stretched to its limit. Her walls clamp down around him. The heat is overwhelming.
+He pushes in deeper and deeper as his hips move forward. The rest of him slides in. Her body stretches around him. She gasps as she takes him. Her head falls back and she lets out a moan of satisfaction, Her body excepts all of him down to the hilt. He stretches her to the limit and her walls clamp down around him the feeling overwhelming.
 
 He groans. A low, broken sound. His forehead drops to hers. His hands grip her hips. His fingers dig into flesh. "You are so tight. So perfect. Amelia. You have no idea."
 
