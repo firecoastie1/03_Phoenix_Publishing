@@ -42,7 +42,7 @@ She nods. Does not push. He just channeled a Mate Bond through his own body, bec
 
 But the compound is waking up. Voices are getting louder. Someone is shouting. Not in panic. In urgency.
 
-Victor sits up. Immediately. The exhaustion is gone. Replaced by the Alpha. His jaw is set. His eyes are focused. He looks at her. "Stay here."
+Victor sits up all of a sudden. No longer looking exhausted. In its place is the Alpha everyone knows him to be. His jaw is set. His eyes are focused. He looks at her. "Stay here."
 
 "Victor — "
 
