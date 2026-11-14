@@ -80,7 +80,7 @@ The bond flows through him like a river or a flood. It pours into his chest thro
 
 "I'm here," she says. "I'm here. You're not alone."
 
-She touches his forehead to hers. Her hands find his shoulders. Her eyes lock onto his. The bond connects them, not just the space between, but the space through. Inside. She is not on the other side anymore. She is inside the bond. With him. In it. Pulling. Pushing. Channeling.
+She touches his forehead to hers. Her hands find his shoulders. Her eyes lock onto his. The bond connects them, not just the space between, but the space through. Inside. She can feel that she is not on the other side anymore. She is actually inside of the bond. She is with Victor, pulling and pushing and channeling.
 
 And the transformation begins.
 
