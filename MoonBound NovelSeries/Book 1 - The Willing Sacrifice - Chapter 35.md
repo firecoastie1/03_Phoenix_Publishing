@@ -376,7 +376,7 @@ She can't take it anymore and lines his cock up to her entrance, desperate. The 
 
 He pushes in deeper and deeper as his hips move forward. The rest of him slides in. Her body stretches around him. She gasps as she takes him. Her head falls back and she lets out a moan of satisfaction, Her body excepts all of him down to the hilt. He stretches her to the limit and her walls clamp down around him the feeling overwhelming.
 
-He groans. A low, broken sound. His forehead drops to hers. His hands grip her hips. His fingers dig into flesh. "You are so tight. So perfect. Amelia. You have no idea."
+He groans, a low deep groan, he drops his forehead, his hand grab her hips and his finger dig into her skin. She does not feel any pain, just pure pleasure. "You're so tight. "
 
 "Victor," she says. Her voice is breathless. Broken. "Harder. Please. Harder."
 
