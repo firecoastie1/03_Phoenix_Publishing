@@ -16,13 +16,13 @@ She turns expecting him to be closer than he is but sees him shirtless, looking 
 
 "Nothing. I just wanted to check on you." He steps into the room. Bare feet on the floorboards. Silent. He sits on the edge of the bed. Close.
 
-She looks at him closely, not believing there isn't anything wrong. Even though he looks calm, his breathing isn't off. There is just something about the way he is standing...
+She looks at him closely, not believing there isn't anything wrong. Even though he looks calm, his breathing isn't off. There is just something about the way he is standing — shoulders tight, jaw clenched. The way he holds himself still when he's trying not to move.
 
 "You're tense," she says.
 
 "Long day." He doesn't look at her. Looks past her instead. "A lot on my plate."
 
-"Tense," she says.
+"I'm here," she says. "I'm always here."
 
 He smiles. Small. Real. "I know."
 
