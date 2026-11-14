@@ -32,7 +32,7 @@ He does not move. His arm stays around her waist. His breathing stays slow. He i
 
 "Victor?"
 
-He closes his eyes then he says "I am here."
+He closes his eyes then says "I am here."
 
 "Victor, you need to — " She touches his arm. "Josiah is going to want to know what happened last night. The pack is going to want to know what happened. You need to — "
 
