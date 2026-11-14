@@ -36,7 +36,7 @@ She squeezes his hand. "I'm fine, Victor."
 
 He sits down beside her on the bed. Close enough that his shoulder brushes hers. The feel of her shirt on his bare skin, she can feel the heat radiating through her body.
 
-She leans into him. Rests her head on his shoulder. His arm comes around her. Heavy. Secure. She closes her eyes. Breathes in his scent — smoke and leather and something wild. Something that is only him.
+She leans into him. Rests her head on his shoulder. His arm comes around her. Heavy. Secure. She closes her eyes. Breathes in his scent — smoke and leather and something wild. And something wild that just does something to her. She knows that scent is only for her.
 
 His hand moves on her back. Slow circles. Rhythmic. Soothing.
 
