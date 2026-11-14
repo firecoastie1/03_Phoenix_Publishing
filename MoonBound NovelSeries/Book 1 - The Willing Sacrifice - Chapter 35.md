@@ -154,7 +154,7 @@ Amelia's breathing evens out within minutes. Her body goes limp against his ches
 
 The bond hums between them. Warm. Steady. But beneath the warmth — something else. Something cold. The Hollow King's whisper is still there. Faint. Fading. But present. Like a scar on the bond. A wound that has not fully closed.
 
-He knows he cannot keep this up all night. He needs to sleep eventually. But if the Hollow King comes back, he needs to be ready. He needs to hold the door shut. Again. And again. Until dawn.
+He knows he cannot keep this up all night. But he doesn't see any other way. But if the Hollow King comes back, he needs to be ready. He needs to hold the door shut. Again. And again. Until dawn.
 
 His hand moves on Amelia's back. Slow circles. Rhythmic. Soothing. The same rhythm he used before. He doesn't notice it. It's automatic. Protective. He has been touching her like this since the first time he held her. Before the bond. Before the ceremony. Before any of it.
 
