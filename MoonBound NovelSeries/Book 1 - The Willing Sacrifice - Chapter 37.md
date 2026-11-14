@@ -8,7 +8,7 @@ The room has a soft morning light from the sun. You can see the dust hanging in 
 
 Victor is laying beside her sleeping soundly. His breathing is slow. Uneven. His face is pressed into her shoulder. His arm is wrapped around her waist. His hand is curled against her ribs. He looks smaller in sleep. The silver light is gone from his skin. His eyes are gray.
 
-She does not move. She does not want to break the moment.
+She doesnt want to move and leave this moment.
 
 The bond is still humming between them. Warm. Strong. The barrier held. The Hollow King is gone. She can feel it, not through her senses, but through the bond itself. The cold presence that pressed against the wards has receded. The wards are intact. The pack is safe.
 
