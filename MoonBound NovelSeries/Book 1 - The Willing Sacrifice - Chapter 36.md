@@ -74,7 +74,7 @@ He cannot stop it by holding the door shut. He has learned that. He has spent ev
 
 So he stops holding onto the door and just opens it.
 
-The bond floods through him. Not as a bridge. Not as a thread. As a river. A torrent. A flood. It pours into his chest, through his lungs, down his spine, into his hands, his feet, his veins. He gasps. His knees buckle. Amelia catches him. Holds him.
+The bond flows through him like a river or a flood. It pours into his chest through his lungs and down his spine, into his hands and feet, then to his veins and he gasps. He can't take it anymore and his knees buckle but Amelia is there to catch him.
 
 "It's too much," he says. "Amelia. It's — it's too much — "
 
