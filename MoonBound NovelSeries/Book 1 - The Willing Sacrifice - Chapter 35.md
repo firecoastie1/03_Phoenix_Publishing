@@ -168,7 +168,7 @@ He shifts slightly. Amelia stirs. Mumbles. Her hand finds his chest. Fingers pre
 
 He looks at her. In the dim light from the hallway, she looks peaceful. Her lips are slightly parted. Her dark hair is spread across the pillow. Her face is soft. No tension. No fear. Nothing but sleep.
 
-She was terrified. He can still feel it through the bond — her fear, sharp and sudden. And beneath the fear — something else. Something he didn't expect. Not panic. Not flight. Something stronger.
+She was so terrified. He can still feel it through the bond — her fear, sharp and sudden. But beneath that fear is something else. Something he didn't expect. Not panic. Not flight. Something stronger.
 
 She fought back.
 
