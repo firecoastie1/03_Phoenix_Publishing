@@ -52,7 +52,7 @@ He gets up, gets dressed quickly, and is out the door in seconds.
 
 She stays in bed and listens to the voices as they get louder in the corridors. These are voices she does not recognize, pack members she has not met. She hears shouting, and crying. Others are ordering other members around.
 
-She gets up. Dresses quickly. Pulls her hair back. Walks to the door.
+She gets up. Dresses quickly. Pulls her hair back and walks to the door.
 
 Stops.
 
