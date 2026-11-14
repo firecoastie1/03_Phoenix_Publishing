@@ -34,7 +34,7 @@ She squeezes his hand. "I'm fine, Victor."
 
 "I'm staying."
 
-He sits beside her. Closer now. His shoulder touches hers. The fabric of her shirt against his bare skin. She can feel his warmth radiating through her.
+He sits down beside her on the bed. Close enough that his shoulder brushes hers. The feel of her shirt on his bare skin, she can feel the heat radiating through her body.
 
 She leans into him. Rests her head on his shoulder. His arm comes around her. Heavy. Secure. She closes her eyes. Breathes in his scent — smoke and leather and something wild. Something that is only him.
 
