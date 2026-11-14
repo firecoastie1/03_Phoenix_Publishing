@@ -140,7 +140,7 @@ He closes his eyes. Nods. Once. When he opens them, the vulnerability is gone. R
 
 "Tonight, I stay awake," he says. "You sleep. If he comes back, I'll be ready."
 
-She doesn't argue. She knows he's right. She can't sleep — not after that. Not with the Hollow King's whispers still echoing in her ears. So she stays awake. Beside him. Her head on his chest. His arm around her.
+She doesn't argue. She knows he's right. She can't sleep — not after that. Not with the Hollow King's whispers still echoing in her ears. So she stays awake. Beside him. Her head on his chest. His arm around her. The bond between them.
 
 She drifts back off to sleep.
 
