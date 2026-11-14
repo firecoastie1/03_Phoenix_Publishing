@@ -94,7 +94,7 @@ He is shifting. But not into a wolf. Into something else. Something older. Somet
 
 He makes it.
 
-The silver light spreads. From his chest to his arms, his legs, his face. It pulses with his heartbeat. Each beat sends a wave of light through his body, through the bond, through Amelia. She feels it, a warmth so intense it almost burns. But it does burn. The pain is real. His body is being stretched, opened, remade. His bones hum. His muscles spasm. His skin ripples with light. But he does not stop. He cannot stop. He has made his choice.
+The silver light spreads. From his chest to his arms, his legs, his face. It pulses with his heartbeat. Each beat sends a wave of light through his body, through the bond, through Amelia. She feels it, a warmth so intense it almost burns. The pain is real. His body is being stretched, opened, remade. His bones hum. His muscles spasm. His skin ripples with light. But he does not stop. He cannot stop. He has made his choice.
 
 Amelia feels it all. Through the bond. She is not just watching. She is inside it. She feels the silver light flowing through him. She feels the pain. She feels the strength. She feels the sacrifice. He is putting himself between the Hollow King and everyone he loves. He is making himself a living shield. And he is doing it for her. For the pack. For the Moon Goddess. For the bond itself.
 
