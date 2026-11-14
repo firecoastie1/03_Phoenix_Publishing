@@ -16,7 +16,7 @@ Victor stirs. "Amelia?"
 
 He sits up. Gray eyes wide. Alert. Sleep gone in an instant. "I can feel it too."
 
-The bond jerks. She feels a presence on the other side of the pack wards, vast, dark, cold. The Hollow King. Not inside the compound. Not inside the room. Outside the wards. Testing. Breaching. Pressing against the boundary with his whole weight.
+The bond jerks. She can feel a dark and cold presence on the other side of the pack wards. The Hollow King. He's testing them, pressing against the boundary with his whole weight.
 
 She gasps. Her knees buckle. Victor catches her.
 
