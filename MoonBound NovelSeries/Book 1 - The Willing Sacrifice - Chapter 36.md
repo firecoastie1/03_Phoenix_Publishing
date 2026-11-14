@@ -6,7 +6,7 @@ She wakes to the bond screaming.
 
 She isn't feeling really any pain. It feels more like a pull of some sort. Like something is being torn out of her chest and there is no way to stop it. Victor is sleeping peacefully beside her. His breathing is calm and steady. But the bond feels like a rope that is being pulled beyond its breaking point, yanking her forward, away from him, and away from everything.
 
-She sits up. Gasps. Her hands grip the sheets. Her chest burns.
+She sits up out of breath, grasping for the sheets of her bed, her chest feeling like it is on fire.
 
 The bond pulls again. Harder. Her chest tightens.
 
