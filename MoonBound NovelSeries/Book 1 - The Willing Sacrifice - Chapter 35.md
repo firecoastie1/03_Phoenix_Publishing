@@ -398,7 +398,7 @@ He holds on. Barely. Her climax pushes him closer to the edge. The pressure in h
 
 He presses his face into her hair. She holds him. His arms wrap around her waist, pulling her flush against him. They breathe together, heartbeats slow from frantic to steady.
 
-She does not let go. She holds him. Holds him close. Holds him against her chest. His head rests on her shoulder. Her fingers card through his hair. His breath is warm against her skin. His body is heavy. Warm. Alive.
+She does not let go. She holds him. Holds him close. His head rests on her shoulder. Her fingers run through his hair. His breath is warm against her skin.
 
 The compound is quiet outside. The Hollow King's whispers have faded. The bond is stronger now. Stronger than before. The wall is holding.
 
