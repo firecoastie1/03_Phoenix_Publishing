@@ -2,7 +2,7 @@
 
 AMELIA
 
-She wakes to quiet.
+She wakes up to a peacefully quiet room.
 
 The room is pale with morning light. Dust hangs in the air. The compound is silent, not the dead silence from before, not the hollow silence of the Hollow King, but the exhausted silence of survivors.
 
