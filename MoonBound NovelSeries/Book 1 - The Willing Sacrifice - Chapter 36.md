@@ -30,7 +30,7 @@ She grabs his arms. "No. You don't have to choose. There's a third option."
 
 He looks at her. "No, there isn't."
 
-"There is. The ceremony. The Moon Goddess. Josiah said the bond is strongest when it's honest. When it's open. When there are no walls." She breathes. Thinks. The bond keeps pulling. The Hollow King is outside. She can feel him, ancient, cold, hungry. A void wearing a shape. "What if we don't hold it back? What if we let it out? The bond itself. Through both of us. Not as a door you hold shut. As a wall."
+"There is. The ceremony. The Moon Goddess. Josiah said the bond is strongest when it's honest. When it's open. When there are no walls." She breathes. She thinks about it. The bond keeps pulling. The Hollow King is outside. She can feel him, the coldness, the hunger, ancient. He's nothing wearing a shape. "What if we don't hold it back? What if we let it out? The bond itself. Through both of us. Not as a door you hold shut. As a wall."
 
 He stares at her. For a long moment, he doesn't speak. The bond pulls again. She can hear the Hollow King now, a whisper of wind, of static, of something that almost sounds like laughter. He is patient. He is strong. He is waiting for Victor to step outside the wards.
 
