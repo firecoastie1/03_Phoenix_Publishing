@@ -66,7 +66,7 @@ She opens the door.
 
 VICTOR
 
-He walks into the corridor. The compound is a wreck. The wards held, but the impact left its mark, shattered glass, cracked walls, scorch marks on the floor. Pack members are everywhere. Some are tending wounds. Others are checking damage. Some are standing in groups, faces pale, whispering.
+He walks into the corridor. The compound is a wreck. The wards held, but the impact left its mark, shattered glass, cracked walls, scorch marks on the floor. Pack members are everywhere. Some are tending wounds. Others are checking damage. Others are standing in groups, their faces are pale and they are whispering.
 
 Victor steps into the chaos. His Alpha presence cuts through the noise. Voices drop. Eyes turn toward him. He walks through the compound like a general surveying a battlefield, assessing, calculating, making decisions.
 
