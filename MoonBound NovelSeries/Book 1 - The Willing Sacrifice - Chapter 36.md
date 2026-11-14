@@ -114,7 +114,7 @@ But Victor does not need the wards to hold.
 
 He opens the door.
 
-The darkness hits him. The Hollow King's presence, vast, cold, ancient, slams into the barrier they have created. Victor and Amelia stand shoulder to shoulder in the center of the room. His eyes are silver. His skin glows. His hands are raised, palms outward, channeling the bond. Amelia stands beside him. Her eyes are closed. Her hands are pressed to his chest. Her breathing is steady. Her voice is a whisper. Not words. Just his name.
+The darkness hits him. The vast coldness of the Hollow King's presence slams into the barrier they have created. Victor and Amelia stand shoulder to shoulder in the center of the room. His eyes are silver. His skin glows. His hands are raised, palms outward, channeling the bond. Amelia stands beside him. Her eyes are closed. Her hands are pressed to his chest. Her breathing is steady. Her voice is a whisper. Not words. Just his name.
 
 Victor. Victor. Victor.
 
