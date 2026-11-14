@@ -368,7 +368,7 @@ He flips her on her back and gently puts her on him. His mouth hungrily finds he
 
 She kicks off her panties desperate for him. He's so hard and thick, and pulsing and so wet. She wraps her fingers around him and strokes it once and then again. She hears his breath catch and feels his hips jerk as she strokes it again, feeling it twitch in her hand.
 
-She lines up. The head presses against her entrance. She is wet. Slippery. He pushes. Inches at a time. The stretch is intense. Burning. She gasps. Her nails dig into his shoulders. Her breath comes in sharp bursts. He pauses. Lets her adjust.
+She can't take it anymore and lines his cock up to her entrance, desperate. The head presses against her entrance. She is wet. Slippery. He pushes. Inches at a time. The stretch is intense. Burning. She gasps. Her nails dig into his shoulders. Her breath comes in sharp bursts. He pauses. Lets her adjust.
 
 "Okay?" he asks.
 
