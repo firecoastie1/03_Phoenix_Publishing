@@ -4,7 +4,7 @@ AMELIA
 
 She wakes to the bond screaming.
 
-Not pain. Not exactly. A pulling. A tearing. Like something is being drawn out of her chest and she cannot stop it. Her eyes snap open. Her breath catches. Victor is beside her. Still asleep. His face is peaceful. His breathing is steady. But the bond — the bond is a rope being pulled taut, yanking her forward, away from him, away from the bed, away from everything.
+She isn't feeling really any pain. It feels more like a pull of some sort. Like something is being torn out of her chest and there is no way to stop it. Victor is sleeping peacefully beside her. His breathing is calm and steady. But the bond feels like a rope that is being pulled beyond its breaking point, yanking her forward, away from him, and away from everything.
 
 She sits up. Gasps. Her hands grip the sheets. Her chest burns.
 
