@@ -392,7 +392,7 @@ She opens her eyes. Gray meets gray. He groans. A low, broken sound. His thrusts
 
 "Come for me," he says. "Come and let me hear you."
 
-She does. Her body convulses. Her walls clamp down around his cock. She screams. A long, broken sound. Her back arches off the bed. Her nails tear into his shoulders. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring. Her body shakes. Shudders. Spasms.
+She does. Her body convulses. Her walls clamp down around his cock. She screams. A long, broken sound. Her back arches off the bed. Her nails tear into his shoulders. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring. Her body shakes.
 
 He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His body locks. Shakes. Groans.
 
