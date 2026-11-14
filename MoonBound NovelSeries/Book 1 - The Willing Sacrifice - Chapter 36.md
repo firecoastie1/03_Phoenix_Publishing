@@ -120,7 +120,7 @@ Victor. Victor. Victor.
 
 A mantra. A prayer. A heartbeat.
 
-The Hollow King strikes. The darkness crashes against the silver barrier like a wave against a cliff. The impact is immense. Victor's knees buckle. Amelia's grip on his chest tightens. Her fingers dig into his skin. His skin. Glowing. Hot. Alive.
+The Hollow King strikes. The darkness crashes against the silver barrier like a wave against a cliff. The impact is immense. Victor's knees buckle. Amelia's grip on his chest tightens. Her fingers dig into his skin.
 
 The barrier holds.
 
