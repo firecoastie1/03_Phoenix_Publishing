@@ -72,9 +72,7 @@ He closes his eyes. Places his palms flat against his chest. Feels the bond humm
 
 He cannot stop it by holding the door shut. He has learned that. He has spent every night since the ceremony bracing against the pull, holding the door closed, but the Hollow King is patient. The Hollow King is strong. He will keep coming. And every time, Victor will have to hold harder. Until he cannot hold anymore.
 
-So he stops holding.
-
-He opens the door.
+So he stops holding onto the door and just opens it.
 
 The bond floods through him. Not as a bridge. Not as a thread. As a river. A torrent. A flood. It pours into his chest, through his lungs, down his spine, into his hands, his feet, his veins. He gasps. His knees buckle. Amelia catches him. Holds him.
 
