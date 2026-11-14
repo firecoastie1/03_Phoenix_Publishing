@@ -150,7 +150,7 @@ VICTOR
 
 He stays awake. There is no way he feels he will get rest tonight.
 
-Amelia's breathing evens out within minutes. Her body goes limp against his chest. Her fingers uncurl from his shirt. Her face relaxes, and she drifts back off to sleep.
+Amelia's breathing starts to even out within minutes. Her body starts to relax against his chest. Her fingers slowly uncurl from his shirt and her face relaxes, then she drifts peacefully off to sleep.
 
 The bond hums between them. Warm. Steady. But beneath the warmth — something else. Something cold. The Hollow King's whisper is still there. Faint. Fading. But present. Like a scar on the bond. A wound that has not fully closed.
 
