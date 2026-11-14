@@ -102,7 +102,7 @@ She does not let go.
 
 She channels back.
 
-Her own power flows through the bond. but is not like his, no. it isnt silver, or light. She's a human so her power is smaller. It is different, much softer, But real no less. It is warm made of love and of stubborness, and fierce refusal to lose the person standing in front of her. It pours through the bond into him. It fuels him, gives him the strength he needs. She is not a warrior or shifter. She doesn't have magic. But she is here. Present. Connected. And she is not letting go.
+Her own power flows through the bond. but is not like his, no. It isn't silver, or light. She's a human so her power is smaller. It is different, much softer, But real no less. It is warm made of love and of stubborness, and fierce refusal to lose the person standing in front of her. It pours through the bond into him. It fuels him, gives him the strength he needs. She is not a warrior or shifter. She doesn't have magic. But she is here. Present. Connected. And she is not letting go.
 
 ---
 
