@@ -36,7 +36,7 @@ He closes his eyes. Nods once. "I am here."
 
 "Victor, you need to — " She touches his arm. "Josiah is going to want to know what happened last night. The pack is going to want to know what happened. You need to — "
 
-He opens his eyes. Looks at her. Gray eyes steady. Tired. But steady. "I will go when I am ready."
+He opens his eyes. His gray eyes are steady but tired. "I will go when I am ready."
 
 She nods. Does not push. He just channeled a Mate Bond through his own body, became a living shield, and held a barrier against the Hollow King's full assault. He is exhausted. She lets him rest.
 
