@@ -38,7 +38,7 @@ He stares at her. For a long moment, he doesn't speak. The bond pulls again. She
 
 "Then make it work," she says. "You said it yourself. You have to choose. Stay inside or go outside. But if you channel the bond through yourself, make yourself a conduit, and I do the same from inside the bond, maybe we won't have to choose."
 
-He looks at her. Really looks at her. His jaw is tight. His eyes are wide. She has given him an option he did not expect. An option that costs something, probably everything, but does not sacrifice her.
+He looks at her, really looks at her. Jaw tight, with the realization that she has given him an option he did not expect. An option that costs something, probably everything, but does not sacrifice her.
 
 "If I do this," he says carefully, "I cannot control how much power flows through me. I don't know if I will be able to survive it."
 
