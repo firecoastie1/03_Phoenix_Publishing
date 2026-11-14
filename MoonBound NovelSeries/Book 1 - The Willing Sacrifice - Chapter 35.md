@@ -90,7 +90,7 @@ Not Victor's voice. Not Victor's face. The bond itself. Steady. Warm. Certain. I
 
 She grabs it. Clutches it with everything she has. And holds on.
 
-The darkness screams. The vines dissolve. She is gasping for air on the bed. Her heart is hammering out of her chest. Sweat has drenched her shirt. The forest vanishes. Victor standing above her. Real Victor. Gray eyes wide. Mouth open. Hand reaching for her face.
+She wakes up all of a sudden, desperate for air. The darkness screams. The vines dissolve. The forest vanishes. She is on the bed, heart hammering. Sweat soaking her shirt. Victor standing above her. Real Victor. Gray eyes wide. Mouth open. Hand reaching for her face.
 
 "Amelia. Amelia. Look at me."
 
@@ -356,7 +356,7 @@ He pulls her against him. Her body against his. Her head on his chest. His arm a
 
 "I'm not going anywhere."
 
-She kisses him. Not gentle. Not soft. Urgent. Desperate. Hands in his hair. Fingers gripping his shirt. Pulling him closer. He kisses her back. Hard. Hungry. His hands on her waist. Pulling her hips against his.
+She kisses him, desperate to show him how much he means to her, hands tugging gently in his hair. Then gripping on to his shirt, pulling him closer as he kisses her back with the same hunger. His hands gripping her waist, pulling her to him.
 
 They move to the bed. Together. Falling back. She is on top of him immediately. Knees on either side of his hips. Her body straddling his. Her hands pushing at his chest. His skin. Warm. Alive. Real.
 
