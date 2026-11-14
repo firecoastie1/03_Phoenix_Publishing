@@ -44,7 +44,7 @@ He looks at her, really looks at her. Jaw tight, with the realization that she h
 
 "You don't know if I can survive it either," she says. "I'm human."
 
-He grips her arms. Squeezes. "Amelia. Please. Let me — "
+He grabs her arms, squeezing gently. "Amelia. Please. Let me — "
 
 "No." She pulls his hands to her face. Presses her palms against his cheeks. "We do this together. Both of us. Or not at all."
 
