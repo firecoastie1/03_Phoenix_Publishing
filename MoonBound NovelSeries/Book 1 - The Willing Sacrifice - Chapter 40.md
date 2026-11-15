@@ -12,9 +12,9 @@ She watches him from across the table. The way his jaw is set, focused on the st
 
 She reaches across the table. Her hand finds his. He doesn't look up, but his knife stops moving. His fingers turn, just slightly, until they are laced with hers. Warm. Solid. His.
 
-She has been carrying something for weeks. She told herself it was stress. The bond surge from the barrier. The exhaustion of healing a hundred wounded pack members while her own body screamed for rest. She told herself it was nothing. But last night, when she couldn't sleep, when the nausea came again and her hands shook holding her grandmother's mug, she knew.
+She has been carrying something for weeks. She told herself it was stress. The exhaustion of healing a hundred wounded pack members while her own body screamed for rest. She told herself it was nothing. But last night, when she couldn't sleep, when the nausea came again and her hands shook holding her grandmother's mug, she knew.
 
-She takes a breath. Victor's thumb moves over her knuckles. He is watching her now. Not with the Alpha's eyes. Not with the mate's bond. With his own.
+She takes a breath. Victor's thumb moves over her knuckles. He is watching her now. Not the Alpha. With his own.
 
 "I have something to tell you," she says.
 
@@ -34,7 +34,7 @@ She wraps her arms around his neck. "You're happy?"
 
 He closes his eyes. His breath is shaky. "I am. I am. I am."
 
-She rests her head on his shoulder. She can feel the bond humming between them — warm, wide, completely open, spilling over with everything he's feeling: the terror, the joy, the impossibility of it, the way his chest feels too small to hold it all. She pushes back gently: the nausea at dawn, the exhaustion, the fear, the hope, the love, the terrifying, beautiful certainty that something new is growing inside her. He feels it. She feels him feel it. And for a long moment, they just stand there, holding each other, the morning light falling across the kitchen floor.
+She rests her head on his shoulder. She can feel everything he's feeling: the terror, the joy, the impossibility of it, the way his chest feels too small to hold it all. She pushes back gently: the nausea at dawn, the exhaustion, the fear, the hope, the love, the terrifying, beautiful certainty that something new is growing inside her. He feels it. She feels him feel it. And for a long moment, they just stand there, holding each other, the morning light falling across the kitchen floor.
 
 "We're going to be parents," she whispers.
 
