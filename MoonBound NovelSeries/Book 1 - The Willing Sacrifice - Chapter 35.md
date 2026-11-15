@@ -358,7 +358,7 @@ He pulls her against him. Her body against his. Her head on his chest. His arm a
 
 She kisses him, desperate to show him how much he means to her, hands tugging gently in his hair. Then gripping on to his shirt, pulling him closer as he kisses her back with the same hunger. His hands gripping her waist, pulling her to him.
 
-They move to the bed. Falling back, she climbs on top up straddling him with knees on each side of his hips. Her hands are on his chest, pushing and rubbing. "Clothes off," she says. "All of it. I need you bare."
+They move to the bed. Falling back, she climbs on top, straddling him with knees on each side of his hips. Her hands are on his chest, pushing and rubbing. "Clothes off," she says. "All of it. I need you bare."
 
 He sits up. Helps her. She pulls her shirt over her head. Throws it aside. Her breasts spill free. He looks at her. Gray eyes dark. Pupils blown wide. His hands find her breasts. Cupping them. Squeezing. Thumbs pressing over her nipples.
 
@@ -366,7 +366,7 @@ She leans forward, takes his mouth, tongue tangling with his, desperate, hungry,
 
 He flips her on her back and gently puts her on him. His mouth hungrily finds her breast. He sucks her nipple in circling it while sucking harder. She throws her head back and lets out a needy groan. Her hands grab his shoulders, nails digging in.
 
-She kicks off her panties desperate for him. He's so hard and thick, and pulsing and so wet. She wraps her fingers around him and strokes it once and then again. She hears his breath catch and feels his hips jerk as she strokes it again, feeling it twitch in her hand.
+She kicks off her panties, desperate for him. He's so hard and thick, and pulsing and so wet. She wraps her fingers around him and strokes it once and then again. She hears his breath hitch and feels his hips jerk as she strokes it again, feeling it twitch in her hand.
 
 She can't take it anymore and lines his cock up to her entrance, desperate. The head presses against her entrance. She is wet. Slippery. He pushes. Inches at a time. The stretch is intense. Burning. She gasps. Her nails dig into his shoulders. Her breath comes in sharp bursts. He pauses. Lets her adjust.
 
@@ -374,9 +374,9 @@ She can't take it anymore and lines his cock up to her entrance, desperate. The 
 
 "Yes. Keep going."
 
-He pushes in deeper and deeper as his hips move forward. The rest of him slides in. Her body stretches around him. She gasps as she takes him. Her head falls back and she lets out a moan of satisfaction, Her body excepts all of him down to the hilt. He stretches her to the limit and her walls clamp down around him the feeling overwhelming.
+He pushes in deeper and deeper as his hips move forward. The rest of him slides in. Her body stretches around him. She gasps as she takes him. Her head falls back and she lets out a moan of satisfaction, Her body accepts all of him down to the hilt. He stretches her to the limit and her walls clamp down around him the feeling overwhelming.
 
-He groans, a low deep groan, he drops his forehead, his hand grab her hips and his finger dig into her skin. She does not feel any pain, just pure pleasure. "You're so tight. "
+He groans, a low deep groan, drops his forehead to hers, his hands grabbing her hips, his fingers digging into her skin. She does not feel any pain, just pure pleasure. "You're so tight."
 
 "Victor," she says. Her voice is breathless. Broken. "Harder. Please. Harder."
 
