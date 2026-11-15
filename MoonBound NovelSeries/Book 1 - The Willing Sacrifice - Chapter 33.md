@@ -4,21 +4,21 @@ AMELIA
 
 She wakes up sweating.
 
-The room is dark. The window is open a crack. The night air is cold. Victor is warm against her back. His arm is heavy across her waist. His breathing is deep. Even. Steady.
+The room is dark, the window open a crack, the night air cold. Victor is warm against her back, his arm heavy across her waist, his breathing deep, even, steady.
 
 But she has been somewhere else.
 
-A dark place. A cold place. A presence. A weight pressing against her mind like a hand on her chest. He was in her dreams. Not a normal dream. An invasion. He found her sleeping. He found her alone. And he reached in.
+A dark place, a cold place, a presence— a weight pressing against her mind like a hand on her chest. He was in her dreams. Not a normal dream. An invasion. He found her sleeping, found her alone, and he reached in.
 
 She does not know how he did it. The bond should protect her. It should shield her. But the Hollow King does not attack through the bond, he attacks through the dark. He finds the cracks in the world where the Veil is thin, and he slips through.
 
 She has never felt more exposed.
 
-Her heart is racing. Her skin is cold. The bond between her and Victor is humming. Warm, steady, safe. And she clings to it like a lifeline. She feels him shift. Just slightly. A stirring. A sense. She does not know if he is awake or still asleep. But she feels his awareness reaching for her through the bond. Gentle. Instinctive. A question.
+Her heart is racing, her skin is cold. The bond between her and Victor is humming—warm, steady, safe—and she clings to it like a lifeline. She feels him shift, just slightly, a stirring, a sense. She does not know if he is awake or still asleep. But she feels his awareness reaching for her through the bond. Gentle. Instinctive. A question.
 
-She does not answer out loud. She does not wake him. She just lets him feel her. The fear. The relief. The certainty that he is there. That she is safe. That they are safe.
+She does not answer out loud. She does not wake him. She just lets him feel her— the fear, the relief, the certainty that he is there, that she is safe, that they are safe.
 
-She closes her eyes. Listens to his heartbeat. Slow. Steady. The kind of rhythm that says everything is going to be okay.
+She closes her eyes and listens to his heartbeat—slow, steady, the kind of rhythm that says everything is going to be okay.
 
 She almost believes it.
 
@@ -30,11 +30,11 @@ He is asleep. He knows he is asleep. But something is wrong.
 
 The bond screams.
 
-Not like the battle. Not like the detonation in the healing tent. This is different. Softer. Sharper. A thin wire pulled taut across his chest. His breath catches before his eyes open. His hand finds her. Warm. Solid. Real. But the bond is still taut. Still vibrating with something that is not his.
+Not like the battle, not like the detonation in the healing tent. This is different—softer, sharper, a thin wire pulled taut across his chest. His breath catches before his eyes open. His hand finds her—warm, solid, real—but the bond is still taut, still vibrating with something that is not his.
 
 Amelia.
 
-He does not move. Does not speak. He stays asleep in body, but awake in the bond. He feels her fear. Sharp. Sudden. Like a knife sliding between her ribs. And beneath it, something else. Something cold. Something that does not belong to her.
+He does not move or speak. He stays asleep in body, but awake in the bond. He feels her fear—sharp, sudden, like a knife sliding between her ribs—and beneath it, something else. Something cold. Something that does not belong to her.
 
 The Hollow King.
 
@@ -42,9 +42,9 @@ He feels it through the bond the same way she does, not a shape, not a face, not
 
 His jaw tightens. His hand moves. Slow, instinctive. No thought behind it. His arm slides around her waist. Pulls her closer. Her back to his chest. Her head against his shoulder. His chin rests on her hair. His breathing evens out on purpose. Slow. Deep. Calm. A shield built on instinct.
 
-She feels it. The bond shifts. From fear to warmth. From tension to safety. From attack to defense. The bond is their weapon and their shield and right now it is doing both at once.
+She feels it. The bond shifts— from fear to warmth, from tension to safety, from attack to defense. The bond is their weapon and their shield, and right now it is doing both at once.
 
-She breathes. Her body relaxes against his. Her breathing matches his. Slow. Steady. The cold recedes.
+She breathes. Her body relaxes against his, her breathing matching his—slow, steady. The cold recedes.
 
 He does not know how the Hollow King reached her. Does not know how it breached the Veil. But he knows this: it will not happen again. Not while he is breathing. Not while he is Alpha.
 
@@ -56,17 +56,17 @@ But tonight, she is safe.
 
 Tonight, she is here.
 
-Amelia stirs against him. He feels her awake. Her breathing has changed. Shallow. Uneven. The bond is wide open and she is not hiding anything from him. He feels her fear, still sharp at the edges, still carrying the ghost of the Hollow King's cold, and beneath that, something else. Something restless. Something that says she needs to feel real again. He needs her to.
+Amelia stirs against him. He feels her awake. Her breathing has changed—shallow, uneven. The bond is wide open and she is not hiding anything from him. He feels her fear, still sharp at the edges, still carrying the ghost of the Hollow King's cold, and beneath that, something restless—a need to feel real again. He needs her to.
 
-He shifts. Slowly. Carefully. His hand moves from her waist to her shoulder. He presses his mouth to her back. Feels her shiver. Then she turns in his arms. Faces him. Her eyes are dark. Pupils wide. She is not thinking. She is feeling.
+He shifts slowly, carefully. His hand moves from her waist to her shoulder, he presses his mouth to her back, feels her shiver, and then she turns in his arms, faces him, eyes dark, pupils wide, not thinking but feeling.
 
-He knows what she needs. They both do. She slides her hand under his sleep shirt. Her palm meets his skin. Warm. Rough. The bond detonates. She feels him through the bond. His protectiveness. His determination. His need. He feels her back. Her certainty. Her willingness.
+He knows what she needs. They both do. She slides her hand under his sleep shirt, her palm meeting his skin—warm, rough—and the bond detonates. She feels him through it: his protectiveness, his determination, his need. He feels her back, her certainty, her willingness.
 
-He rolls them. She follows. His mouth finds hers. Not gentle. Not slow. Urgent. Desperate. Like he needs to prove something to both of them. She meets him. Mouth against mouth. Hands in his hair. Nails against his back. The bond is a fire and they are both standing in it.
+He rolls them, she follows, and his mouth finds hers— not gentle, not slow, urgent, desperate, like he needs to prove something to both of them. She meets him, mouth against mouth, hands in his hair, nails against his back, the bond a fire and them both standing in it.
 
-He tears his shirt off. She does the same to hers. She pushes her sleep pants down and kicks them off. He pulls his down. She feels him at her entrance. Wide. Hot. Waiting. She pulls him closer. He slides in.
+He tears his shirt off. She does the same to hers, pushes her sleep pants down and kicks them off. He pulls his down. She feels him at her entrance—wide, hot, waiting— pulls him closer, and he slides in.
 
-Deep. All the way. A gasp escapes her. The bond detonates. She feels him inside her and the connection between them explodes outward and she feels everything, and he groans, loud and unfiltered, his face buried in her neck.
+Deep. All the way. A gasp escapes her, the bond detonates, she feels him inside her and the connection between them explodes outward, she feels everything, and he groans, loud and unfiltered, his face buried in her neck.
 
 "Amelia," he says. His voice is breaking. "God. Amelia."
 
@@ -74,11 +74,11 @@ He pulls back. Pushes in. The first thrust is slow. Deliberate. Then she wraps h
 
 She meets him. Stroke for stroke. Hip against hip. Her hands on his shoulders, his back, his hair, anywhere she can reach. Her mouth on his neck. His mouth on her breast. The bond is a current and they are both drowning in it and neither of them wants to be saved. She feels his pleasure building. A tightening at the edge, a pressure in his chest, a heat that is spreading outward from his cock and his heart. She feels it through the bond and she comes apart.
 
-Her body clamps down around him. Tight, tight, tight. And he groans, a long, broken sound, and she feels her own climax reflected back at him through the bond, sharp, bright, devastating, and it pushes him over the edge.
+Her body clamps down around him— tight, tight, tight— and he groans, a long broken sound, and she feels her own climax reflected back at him through the bond, sharp, bright, devastating, pushing him over the edge.
 
-He finishes inside her. His body goes rigid. His breath leaves him in a rush. She feels it. The heat, the release, the surrender. She holds him through every last tremor. When he finally goes still and his breathing evens out, she wraps her arms around him and rests her cheek against his chest.
+He finishes inside her, his body going rigid, his breath leaving him in a rush. She feels it—the heat, the release, the surrender—and holds him through every last tremor. When he finally goes still and his breathing evens out, she wraps her arms around him and rests her cheek against his chest.
 
-The bond hums between them. Warm. Steady. Deeper now. Stronger. Like a fire banked for the night, still glowing, still hot, still ready.
+The bond hums between them—warm, steady, deeper now, stronger— like a fire banked for the night, still glowing, still hot, still ready.
 
 ---
 
@@ -86,11 +86,11 @@ AMELIA
 
 Morning light slips through the window. It is pale. Thin. The kind of light that says the sun is not ready to rise yet.
 
-Victor is still asleep. Still warm. Still holding her.
+Victor is still asleep, still warm, still holding her.
 
 She is not.
 
-She lies there. Eyes open. Brain moving. Processing. Last night was not a normal dream. She knows this. The Hollow King was in it. He was in her mind. He tried to reach her.
+She lies there, eyes open, brain moving, processing. Last night was not a normal dream. She knows this. The Hollow King was in it. He was in her mind. He tried to reach her.
 
 And he did.
 
@@ -102,7 +102,7 @@ She is bonded.
 
 The thought lands in her chest like a stone in still water. She is bonded. She is not alone. She has never been alone in her life, not really, but this is different. This is not proximity. This is connection. The kind of connection that cannot be broken by distance, by fear, by the Hollow King's cold.
 
-She turns in his arms. Faces him. His face is relaxed in sleep. No tension. No worry. Just him. Peaceful. Unburdened. For one moment, one perfect moment, she allows herself to believe that they are going to be okay.
+She turns in his arms, faces him. His face is relaxed in sleep—no tension, no worry, just him, peaceful, unburdened. For one moment, one perfect moment, she allows herself to believe they are going to be okay.
 
 Then the bond flares.
 

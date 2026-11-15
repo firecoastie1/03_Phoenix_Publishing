@@ -358,39 +358,37 @@ He pulls her against him. Her body against his. Her head on his chest. His arm a
 
 
 
-She kisses him, slow at first. Testing. Seeing if he'll dissolve into mist. He kisses her back with a tenderness that cracks something open in her chest. Hands sliding under her shirt, warm palms against bare skin. She tugs her shirt over her head. Throws it aside. He watches her. Eyes soft. Not hungry. Not desperate. Just... her. She reaches for the buttons of his jeans. Slow. Deliberate. Each button. Each movement. Grounding them both.
+She kisses him slowly at first, testing to see if he'll dissolve into mist. He kisses her back with a tenderness that cracks something open in her chest, his hands sliding under her shirt, warm palms against bare skin. She tugs her shirt over her head and throws it aside. He watches her, eyes soft—no hunger, no desperation, just... her. She reaches for the buttons of his jeans, slow and deliberate, each button, each movement, grounding them both.
 
-He sits back against the headboard. Pulls her into his lap. Facing him. Legs wrapping around his waist. Her bare back to his chest. His hands find hers. Press them flat against his chest — over his heart. Feeling the beat. Steady. Real. "Feel that?" he whispers. "That's you. It's always you."
+He sits back against the headboard and pulls her into his lap, her facing him, legs wrapping around his waist, her bare back to his chest. His hands find hers and press them flat against his chest—over his heart, feeling the beat, steady and real. "Feel that?" he whispers. "That's you. It's always you."
 
-She turns in his grip. Faces him. Straddles him. Knees bracketing the bed on either side of his hips. Her hands slide up his chest. Over his shoulders. Down his arms. Then back up, fingers tangling in his hair. Tilting his face to hers. The kiss is deep. Slow. Searching. She's looking for the hollow king's ghost in his mouth. She finds only him. Only Victor. Warm. Present. Alive.
+She turns in his grip and faces him, straddling him, knees bracketing the bed on either side of his hips. Her hands slide up his chest, over his shoulders, down his arms, then back up with fingers tangling in his hair, tilting his face to hers. The kiss is deep, slow, searching—she's looking for the Hollow King's ghost in his mouth, but she finds only him. Only Victor. Warm. Present. Alive.
 
-She reaches between them. Finds him already hard. Already waiting. Wraps her fingers around the base. Strokes once. Slow. Deliberate. His jaw tightens. Eyes close. "Amelia—", he starts. She doesn't let him finish. Lines him up at her entrance. Slowly lowers herself. One inch. Two. The stretch is immediate. Burning. She stops. Bows her head. Rests her forehead against his. Breathing. Letting him in. Letting herself in.
+She reaches between them, finds him already hard and waiting, and wraps her fingers around the base. She strokes once—slow, deliberate—and his jaw tightens, eyes closing. "Amelia—," he starts, but she doesn't let him finish. She lines him up at her entrance and slowly lowers herself, one inch, then two. The stretch is immediate, burning. She stops, bows her head, rests her forehead against his, and breathes—letting him in, letting herself in.
 
 "Keep going," he whispers.
 
-She settles down. All the way. Her body takes him. Her walls clamp around him. His hands find her hips. Not pushing. Just holding. Anchoring. She lifts up. Slow. Deliberate. Then sinks back down. A soft gasp escapes her. He groans. A low, broken sound. But he doesn't rush. He lets her set the pace. One circle. Two. His hands slide up to her waist. Fingers tracing the curve of her ribs. "You feel incredible," he says. "Every inch. Every second."
+She settles down all the way. Her body takes him, walls clamping around him as his hands find her hips—not pushing, just holding, anchoring. She lifts up, slow and deliberate, then sinks back down. A soft gasp escapes her. He groans, a low broken sound, but he doesn't rush, letting her set the pace. One circle. Two. His hands slide up to her waist, fingers tracing the curve of her ribs. "You feel incredible," he says. "Every inch. Every second."
 
-She leans forward. Mouth on his neck. Teeth on his collarbone. "Don't stop," she whispers.
+She leans forward, mouth on his neck, teeth on his collarbone. "Don't stop," she whispers.
 
-He moves. Slow at first. Building. His hands find hers again. Press them to his chest. "Feel that? It's yours. It's always been yours." She feels it. The beat of his heart. Accelerating. Matched to the rhythm of her hips. Her hands grip his shoulders. Nails digging in. Not from pain. From feeling. From the sheer weight of being this close. This real.
+He moves, slow at first, building. His hands find hers again, pressing them to his chest. "Feel that? It's yours. It's always been yours." She feels it—the beat of his heart, accelerating, matched to the rhythm of her hips. Her hands grip his shoulders, nails digging in, not from pain but from feeling, from the sheer weight of being this close. This real.
 
 "Look at me," he says.
 
-She lifts her head. Brown eyes meet amber. The bond flares wide open between them. Not a flood. A floodgate opening. Slow. Inevitable. She feels his love before she feels his words. Feels his pride. His fear. His certainty. And she gives him everything back.
+She lifts her head, brown eyes meeting amber. The bond flares wide open between them—not a flood but a floodgate opening, slow and inevitable. She feels his love before she feels his words, feels his pride, his fear, his certainty, and she gives him everything back.
 
-He groans. The rhythm changes. Faster. Deeper. She meets him. Each thrust is a promise. Each circle is a vow. "I'm close," she breathes. "Victor—". His hands slide up. Cup her face. Thumbs brushing her cheekbones. "Let go," he says. "I've got you. I've always got you."
+He groans and the rhythm changes, faster, deeper. She meets him, each thrust a promise, each circle a vow. "I'm close," she breathes. "Victor—." His hands slide up, cup her face, thumbs brushing her cheekbones. "Let go," he says. "I've got you. I've always got you."
 
-She does. Her body convulses. A soft, broken sound. Her walls clamp around him. Her nails dig into his shoulders. Her thighs tremble. He holds on. Barely. Her warmth pushes him to the edge. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. A low groan. His forehead drops to her shoulder. His body locks. Shakes.
+She does. Her body convulses, a soft broken sound escaping as her walls clamp around him, nails digging into his shoulders, thighs trembling. He holds on barely, her warmth pushing him to the edge. He thrusts once, twice, three times, and breaks. Hips slamming against hers, cock pulsing inside her—hot, thick, spilling into her. A low groan. His forehead drops to her shoulder, his body locking, shaking.
 
-She holds him. Arms wrapping around his neck. Pulling him close. His weight presses into her. Warm. Heavy. Alive. She feels him heartbeat against her chest. Steady now. Slowing. Matching hers. "I'm here," she whispers. "I'm right here."
+She holds him, arms wrapping around his neck, pulling him close as his weight presses into her—warm, heavy, alive. She feels his heartbeat against her chest, steady now, slowing, matching hers. "I'm here," she whispers. "I'm right here."
 
 The compound is quiet outside. The Hollow King's whispers have faded. The bond is stronger now. Stronger than before. The wall is holding.
 
 He presses his face into her hair. She holds him. His arms wrap around her waist, pulling her flush against him. They breathe together, heartbeats slow from frantic to steady.
 
-She does not let go. She holds him. Holds him close. His head rests on her shoulder. Her fingers run through his hair. His breath is warm against her skin.
-
-The compound is quiet outside. The Hollow King's whispers have faded. The bond is stronger now. Stronger than before. The wall is holding.
+She does not let go, holding him close as his head rests on her shoulder, her fingers running through his hair, his breath warm against her skin.
 
 But she knows this is not the end. The Hollow King is still on the other side. Still watching. Still waiting. He will come back. He will keep coming back. And they will keep holding the door shut.
 
