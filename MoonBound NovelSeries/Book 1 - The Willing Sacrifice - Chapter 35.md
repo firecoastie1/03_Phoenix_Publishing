@@ -152,7 +152,7 @@ He stays awake. There is no way he feels he will get rest tonight.
 
 Amelia's breathing starts to even out within minutes. Her body starts to relax against his chest. Her fingers slowly uncurl from his shirt and her face relaxes, then she drifts peacefully off to sleep.
 
-The bond is a steady hum that is warm, but beneath that is something else. Something that feels cold. There is still a whisper of the Hollow King there. Its fading slowly but it is still making itself known.
+The bond is a steady hum that is warm, but beneath that is something else. Something that feels cold.
 
 He knows he cannot keep this up all night. But he doesn't see any other way. But if the Hollow King comes back, he needs to be ready. He needs to hold the door shut. Again. And again. Until dawn.
 
@@ -188,7 +188,7 @@ AMELIA
 
 She wakes before dawn.
 
-The bond is humming between them — warm, steady, open. Victor's arm is still around her. Her head is still on his chest. His heartbeat is steady beneath her ear. Strong. Real. Alive.
+Victor's arm is still around her. Her head is still on his chest. His heartbeat is steady beneath her ear. Strong. Real. Alive.
 
 She is still alone. But she does not feel it.
 
@@ -196,13 +196,13 @@ The Hollow King's whispers have faded. The darkness is gone. The forest is gone.
 
 But something has changed. She can feel the Hollow King on the other side of the bond — faint, cold, watching. Like a shadow at the edge of a room. He is still there. Still trying. Still looking for a crack.
 
-She presses her face into Victor's chest. Breathing him in. The bond hums. She presses harder against him. Her hand finds his. Fingers lacing with his.
+She presses her face into Victor's chest. Breathing him in. She presses harder against him. Her hand finds his. Fingers lacing with his.
 
 "Stay," she whispers.
 
 "I'm not going anywhere." His voice is thick with sleep. He shifts. Pulls her closer.
 
-She closes her eyes. But she does not sleep. She listens to his heartbeat. Feels the bond humming between them. And waits for dawn.
+She closes her eyes. But she does not sleep. She listens to his heartbeat. And waits for dawn.
 
 ---
 
@@ -210,7 +210,7 @@ VICTOR
 
 Dawn comes slowly. Pale light filters through the windows. The compound wakes up. Footsteps in the corridors. Voices in the kitchens. Pack members beginning their day.
 
-Victor does not move. He has been awake since Amelia fell asleep. The Hollow King's whisper has not come back. The bond is steady. The door is shut.
+Victor does not move. He has been awake since Amelia fell asleep. The Hollow King's whisper has not come back. The door is shut.
 
 But he can still feel the cold on the other side. The Hollow King is patient. He will come back. He will keep coming back. And every time, Victor will have to hold the door shut. And the question is: how long can he hold it?
 
@@ -220,7 +220,7 @@ Amelia shifts. Wakes. Her eyes open. Gray light reflecting in them. She looks at
 
 "I told you I would."
 
-She reaches up. Touches his face. Thumbs pressing against his cheekbones. He is tired. She can see it. Dark circles under his eyes. Paleness in his skin. The bond hums — warm, but strained. Like a rope pulled too tight.
+She reaches up. Touches his face. Thumbs pressing against his cheekbones. He is tired. She can see it. Dark circles under his eyes. Paleness in his skin.
 
 "You look terrible," she says.
 
@@ -228,7 +228,7 @@ She reaches up. Touches his face. Thumbs pressing against his cheekbones. He is 
 
 "I'm fine. Scared. But fine."
 
-He nods. The bond hums between them. Steady. But strained. He can feel the Hollow King on the other side — cold, distant, watching. Waiting.
+He nods.
 
 "I need to talk to Josiah," he says. "About the bond. About how to protect it."
 
@@ -242,7 +242,7 @@ She studies him. Gray eyes meeting gray eyes. "You're worried about me."
 
 "I'm worried about us."
 
-She doesn't argue. She knows he's right. She watches him get up. Dress. Leave the room. The bond follows him — warm, strained, steady. She lets it go. Reclines against the pillow. Closes her eyes.
+She doesn't argue. She knows he's right. She watches him get up. Dress. Leave the room. She lets it go. Reclines against the pillow. Closes her eyes.
 
 And waits.
 
@@ -266,7 +266,7 @@ He used that fear against her. And it almost worked.
 
 But it didn't. Not because the bond was strong. Not because Victor was strong. Because she was strong. She grabbed the bond and held on. With everything she had. No training. No preparation. Just instinct. Just love. Just refusal.
 
-She sits up. Pulls her knees to her chest. Looks at her hands. They are still tingling. The bond hums between them — warm, strained, steady. She thinks about what Josiah told her about the bond. About how it grows stronger with intimacy. About how it's not just magic — it's trust. It's choice. It's two people deciding, every day, to stay together.
+She sits up. Pulls her knees to her chest. Looks at her hands. They are still tingling. She thinks about what Josiah told her about the bond. About how it grows stronger with intimacy. About how it's not just magic — it's trust. It's choice. It's two people deciding, every day, to stay together.
 
 The Hollow King can attack her fear. He can attack her doubt. He can attack her loneliness. But he cannot attack her choice. She chose Victor. Not because the bond made her. Not because the Moon Goddess willed it. Because she chose him. And that choice is hers. Nobody can take it from her. Not the Hollow King. Not Aurela. Not anyone.
 
@@ -320,7 +320,7 @@ Victor nods. Leaves the war room.
 
 The corridor is empty. The compound is quiet. Dawn has fully broken. Pack members moving through the halls. Greeting each other. Beginning their day.
 
-Victor walks toward the quarters. Slow. Steady. The bond hums between them — warm, strained, steady. He can feel Amelia waiting. He can feel her fear. Her loneliness. Her strength. The way she fought back. The way she held on.
+Victor walks toward the quarters. Slow. Steady. He can feel Amelia waiting. He can feel her fear. Her loneliness. Her strength. The way she fought back. The way she held on.
 
 He reaches the door. Stops. Takes a breath. Opens it.
 
@@ -410,7 +410,7 @@ Together.
 
 AMELIA
 
-Morning stretches into afternoon. They lie in bed. Not sleeping. Not talking. Just existing. Her head on his chest. His arm around her waist. His leg tangled with hers. The bond humming between them — warm, steady, strong. Stronger than before.
+Morning stretches into afternoon. They lie in bed. Not sleeping. Not talking. Just existing. Her head on his chest. His arm around her waist. His leg tangled with hers.
 
 The Hollow King's whispers have faded. The cold is gone. The bond is whole. No scars. No cracks. Just warmth. Just certainty. Just them.
 
@@ -424,6 +424,6 @@ Love.
 
 Choice.
 
-She closes her eyes. Breathes. Lets the warmth wash over her. The bond hums between them. Warm. Steady. Strong. She drifts into sleep.
+She closes her eyes. Breathes. Lets the warmth wash over her. She drifts into sleep.
 
 Together.
