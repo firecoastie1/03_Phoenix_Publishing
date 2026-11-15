@@ -6765,52 +6765,55 @@ And that is enough.
 
 AMELIA
 
-Weeks have passed. The pack is rebuilding. The barrier is strong. The Hollow King is gone, not defeated, but pushed back across the Veil. The Blackwood Compound has never felt more alive.
+The morning light comes through the kitchen window the same way it always has. Dust in the air. The kettle on the stove. The compound alive outside with the sound of a pack learning how to breathe again. But something has shifted. Ever since the battle, after the barrier was raised, following the Hollow King's retreat across the Veil.
 
-Victor and Amelia are bonded, fully and completely.
+She is making tea. He is sharpening his knives. They are in the kitchen the way they have been every morning for weeks now. Not because they have to be together. Because they want to be.
 
-They are in the compound's kitchen in the early morning. She is making tea. He is sharpening his knives. Neither of them is talking. He reaches across the table and takes her hand. She reaches back. They both smile, not because they have to, but because they want to.
+She watches him from across the table. The way his jaw is set, focused on the steel. The way his shoulders are loose in a way she has never seen before. The way the morning light catches the silver in his hair that wasn't there before the war. She thinks about how close they came to losing all of this. To losing him. And she feels something in her chest tighten.
 
-This is what they fought for.
+She reaches across the table. Her hand finds his. He doesn't look up, but his knife stops moving. His fingers turn, just slightly, until they are laced with hers.
 
-She sets down her mug. Places her hand over his. The smile on her face is different now, softer, a little uncertain, like she has been carrying something and is finally ready to set it down.
+She has been carrying something for weeks. She told herself it was stress. The exhaustion of healing a hundred wounded pack members while her own body screamed for rest. She told herself it was nothing. But last night, when she couldn't sleep, when the nausea came again and her hands shook holding her grandmother's mug, she knew.
+
+She takes a breath. Victor's thumb moves over her knuckles. He is watching her now. Not the Alpha. With his own.
 
 "I have something to tell you," she says.
 
-Victor stills. "What is it?"
+He stops breathing.
 
 She takes a breath. Looks at him. "I'm pregnant."
 
-The silence stretches. The knives on the table catch the morning light. She takes a breath and tells him everything she has been carrying for weeks: the nausea, the fatigue, the fear, the hope, the love, the terrifying, beautiful certainty that something new is growing inside her.
+The knife hits the table. His eyes go wide. He doesn't say anything for a long moment. He just stares at her. At her stomach. At her face. At her. His hand closes over hers so hard she can feel his pulse hammering against her skin.
 
-And Victor — Victor feels it all. The weight of it in her voice. The tremor in her hands. Every spike of fear. Every quiet, terrified joy. His eyes go wide. His hand closes over hers on the table.
-
-"I told you," she says. "A little while ago."
-
-Victor stares at her. His mouth opens. Closes. Opens again. For the Alpha who never hesitates, who never stammers, who plans every scenario and calculates every outcome, he has nothing. No words. No strategy. Just his hand over hers.
-
-"A baby," he says.
+"A baby," he says. His voice is barely a whisper.
 
 She nods. "A baby."
 
-He looks at her. Really looks at her. Not with the Alpha's eyes. Not with the mate's bond. With his own. And then he pulls her out of her chair, into his arms, and she laughs, surprised, bright, real, and he spins her once, twice, and sets her down and presses his forehead to hers and whispers, "A baby."
+He stands up so fast his chair tips over. He doesn't notice. He pulls her out of her chair, into his arms, and she laughs — surprised, bright, real — and he spins her once, twice, and sets her down and presses his forehead to hers and whispers, "A baby."
 
 She wraps her arms around his neck. "You're happy?"
 
-He closes his eyes. "I am. I am. I am."
+He closes his eyes. His breath is shaky. "I am. I am. I am."
 
-She rests her head on his shoulder and breathes. "We're going to be parents."
+She rests her head on his shoulder. She can feel everything he's feeling: the terror, the joy, the impossibility of it, the way his chest feels too small to hold it all. She pushes back gently: the nausea at dawn, the exhaustion, the fear, the hope, the love, the terrifying, beautiful certainty that something new is growing inside her. He feels it. She feels him feel it. And for a long moment, they just stand there, holding each other, the morning light falling across the kitchen floor.
+
+"We're going to be parents," she whispers.
 
 "We're going to be parents."
 
-He holds her. Long. Tight. Like he's memorizing the shape of her in his arms. And when he finally lets go, he pulls out his chair, sits across from her, takes her hand again, and says the quietest thing either of them has ever said:
+He holds her. Long. Tight. Like he's memorizing the shape of her in his arms. And when he finally lets go, he picks up his chair, sets it back in place, sits down, takes her hand again, and says the quietest thing either of them has ever said:
 
 "Our pup."
 
 She smiles. The kind of smile that starts in the chest and spreads outward, slow and certain and full of everything they're afraid to hope for but can't stop believing in. "Ours."
 
----
+He reaches across the table and takes her hand again. Neither of them lets go.
 
+The kettle whistles. Neither of them moves. They just sit there, holding hands, in the kitchen, in the morning, with the sound of a living pack outside and something new growing inside her.
+
+And it is enough.
+
+---
 VICTOR
 
 He sits across from her. Her hand in his. The morning light falls across the table. Dust motes float in the air. The compound is alive outside, pack members training, children running, dogs barking. The sounds of a living, breathing pack.
