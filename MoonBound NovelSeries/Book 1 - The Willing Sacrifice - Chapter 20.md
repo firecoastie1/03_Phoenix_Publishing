@@ -1,5 +1,4 @@
-Chapter 20
-The Research
+# Chapter 20: The Research
 
 AMELIA
 
