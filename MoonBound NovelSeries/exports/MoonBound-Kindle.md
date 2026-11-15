@@ -2,11 +2,11 @@
 
 ## Book One of the Moonbound Series
 
----
+***
 
 *By Saydee-Belle Blake*
 
----
+***
 
 Copyright © 2025 Saydee-Belle Blake
 
@@ -22,7 +22,7 @@ First Edition
 
 **Disclosure:** This book was written with AI assistance, with extensive human editing.
 
----
+***
 
 # Table of Contents
 
@@ -106,7 +106,7 @@ First Edition
 
 [Chapter 40: The Horizon](_chapter_40_)
 
----
+***
 
 
 
@@ -170,7 +170,7 @@ He didn't tell Samuel about that part. The pack didn't need to know their Alpha 
 
 Victor turned his back on the boundary and started the walk home.
 
----
+***
 
 The compound rose from the valley floor like it had grown there, stone and timber, wide windows catching the weak morning light. It sat in a secluded hollow surrounded by mountains on three sides, the valley opening only to the north where the boundary markers stood guard. The Blackwood pack had built it fifty years ago, when Cyrus, Victor's father, the Alpha before him, the man who had earned the position through blood and bond, decided the pack needed a permanent home.
 
@@ -326,7 +326,7 @@ When she left, he sat alone in the great hall as the sun went down and the fire 
 
 And he had never felt more alone.
 
----
+***
 
 The balcony was small, one of the few things in the compound that wasn't designed to impress. It jutted from the second-floor wall, barely wide enough for two people to stand side by side, overlooking the valley and the darkening tree line beyond. Victor had found it by accident three years ago, the night after Cyrus's funeral, when he'd climbed out the window and stood there in the snow until his feet went numb.
 
@@ -364,7 +364,7 @@ She drank her tea. She ate toast. She looked at the window. The trees were still
 
 She told herself it was nothing.
 
----
+***
 
 The clinic wasn't much, a small stone building on the edge of town that looked as if it had been there forever. The sign out front said *Amelia Wren, Herbalist & Healer* in letters her grandmother had painted decades ago, and below that, in smaller script, *By Appointment, or If You're Bleeding, Come Anyway.*
 
@@ -396,7 +396,7 @@ Today she wrote: *Three hunters with strange wounds in one week. All from the no
 
 She closed the notebook. She didn't read it again. She didn't need to. She remembered everything.
 
----
+***
 
 The afternoon stretched. Two more patients, a broken finger, a sunburn. She tended to both. She ate lunch standing over the sink, a bowl of soup that her neighbor had dropped off. She drank water. She looked out the window every ten minutes, even though there was nothing to see. The sun was low, the light was turning gold, and the forest was still holding its breath.
 
@@ -430,7 +430,7 @@ She didn't understand what was causing the breaks now.
 
 She put the packet in her pocket. She stood up. She locked the door behind her and walked home.
 
----
+***
 
 Her cottage was small, one story, stone walls, a thatched roof, a garden out back that was more weeds than herbs because she'd been meaning to get to it. It sat on the edge of the woods, just far enough away that people didn't think she was strange for living there. Close enough that she could hear the forest at night.
 
@@ -454,7 +454,7 @@ Everything is fine.
 
 She said it often enough to almost believe it. Sometimes she wondered if it was enough.
 
----
+***
 
 The kettle whistled. She poured another cup. She carried it to the window and stood there, looking out at the trees.
 
@@ -514,7 +514,7 @@ She was tired. The kind of tired that comes from lying still too long, from lett
 
 The pull didn't go away.
 
----
+***
 
 The morning was cool and damp with fog, thick and low over the ground. Amelia walked through the tall grass toward the edge of the woods, a canvas satchel slung over her shoulder, her boots sinking slightly into the damp earth. The boundary was a line she'd crossed a hundred times without thinking about it. It was just a fence post and a rusted wire marking the edge of her garden and the beginning of someone else's land. But sometimes, usually at dusk, when the light was low and the shadows were long, she could feel the difference. The forest didn't just start at the boundary. Something changed there, something subtle, like the air itself getting heavier.
 
@@ -544,7 +544,7 @@ She straightened up. Her heart was beating fast. Her palms were damp. She presse
 
 She stood there for a long moment, looking at the fog, listening to the silence, and wondering what the hell was happening to her.
 
----
+***
 
 Miles away, on the northern edge of Blackwood territory, Victor reined his horse to a stop.
 
@@ -572,7 +572,7 @@ He didn't know that Amelia was three miles away, on the other end of whatever th
 
 All he knew was that something had shifted in the world, and he couldn't explain it.
 
----
+***
 
 Amelia packed up her herbs and started walking back. She didn't know why. She just knew she couldn't stand still anymore. Every time she stopped, the pull got stronger. Every time she moved, it stayed the same, present, insistent, unrelenting. She told herself she was going home. She told herself she was going to make lunch. In her mind, she knew both of those things were not true.
 
@@ -604,7 +604,7 @@ She told herself it was nothing. It was the coffee. It was the damp. It was nerv
 
 The tingling didn't stop.
 
----
+***
 
 The first patient was Mrs. Calloway, who'd dropped off soup last time and needed a new prescription for her blood pressure. Amelia wrote it out, handed it to her with a smile, and watched her leave through the window. The second was a young woman with a sprained wrist from slipping on the ice. The third was a farmer with a cut on his hand from a mower blade.
 
@@ -618,7 +618,7 @@ She told herself it was fine.
 
 It wasn't fine.
 
----
+***
 
 Victor
 
@@ -662,7 +662,7 @@ He didn't tell anyone. He never told anyone.
 
 David's smile faded. He looked at Perseus. Perseus looked back. They both knew something was wrong. They just didn't know what.
 
----
+***
 
 Amelia
 
@@ -688,7 +688,7 @@ She told herself it was nothing. It was her imagination. It was the coffee. It w
 
 It didn't stop feeling warm for hours.
 
----
+***
 
 That night, Amelia dreamed of a wolf.
 
@@ -720,7 +720,7 @@ No tracks after that. No blood. No struggle.
 
 Just silence.
 
----
+***
 
 The emergency council was called before noon.
 
@@ -756,7 +756,7 @@ Perseus watched him go. He looked at Victor. He didn't say anything. But his loo
 
 *You're going to need more than a search party.*
 
----
+***
 
 Amelia
 
@@ -778,7 +778,7 @@ That night, she sat at her kitchen table. Luna slept on the windowsill. The fore
 
 It wasn't nothing.
 
----
+***
 
 Victor
 
@@ -832,7 +832,7 @@ She told herself it was curiosity.
 
 It wasn't curiosity.
 
----
+***
 
 The rumors had started after the missing hunter. That much she knew, or at least, that much she'd heard people talking about at the market, at the general store, at the post office. People were nervous. They talked in hushed tones when they thought she wasn't listening. They talked louder when they thought she was.
 
@@ -858,7 +858,7 @@ It wasn't the cold.
 
 She walked into the forest.
 
----
+***
 
 The deeper she went, the stranger it got.
 
@@ -906,7 +906,7 @@ The tingling in her hands didn't stop.
 
 It never stopped.
 
----
+***
 
 That night, she dreamed of the forest.
 
@@ -942,7 +942,7 @@ They had been tingling all night. Not strong, not overwhelming — just there, a
 
 She got up. She brushed off her clothes. She packed the fire and put out the embers with dirt. She ate a piece of dried bread and drank from her water skin. And then she walked into the forest.
 
----
+***
 
 The forest was different at dawn.
 
@@ -972,7 +972,7 @@ She saw it happen — the way his body went rigid, the way his eyes widened, the
 
 He was looking at her. She was looking at him. And neither of them knew what to do.
 
----
+***
 
 It was the longest three seconds of her life.
 
@@ -1000,7 +1000,7 @@ He didn't want to notice that. He had other things to worry about. He had a miss
 
 But he noticed.
 
----
+***
 
 "What are you doing out here?" he asked. His voice was steadier now. He had pulled himself together. He was the Alpha. He was used to being in control.
 
@@ -1126,7 +1126,7 @@ She was standing in front of him now, her hands on his shoulders for balance, he
 
 He swung his leg over the saddle and mounted. Then he reached down and steadied her as she climbed up behind him. Her back pressed to his chest. Her hands gripped his jacket. For one second, just one second, they were pressed together, and the bond went so bright he thought he might actually see it.
 
----
+***
 
 Amelia
 
@@ -1142,7 +1142,7 @@ But she knew one thing: she didn't want to be away from him.
 
 And that scared her more than the forest had.
 
----
+***
 
 They reached the compound as the sun was setting.
 
@@ -1164,7 +1164,7 @@ Then she let go. She got off the horse, stood in front of him, and she waited.
 
 He took her hand again and led her inside.
 
----
+***
 
 Victor
 
@@ -1220,7 +1220,7 @@ Josiah was moving slowly across the room, leaning on his staff, and when he got 
 
 Victor didn't answer. He couldn't. Because Josiah was right.
 
----
+***
 
 Amelia
 
@@ -1294,7 +1294,7 @@ She hesitated. She thought about the tingling. She thought about the pull. She t
 
 Perseus was quiet. He looked at her for a long moment. Then he opened the door and let her out.
 
----
+***
 
 Amelia
 
@@ -1518,7 +1518,7 @@ She didn't know why she was doing this. She knew one thing: she wasn't going to 
 
 She opened the door.
 
----
+***
 
 The compound was alive, early morning, people moving, working, getting ready for whatever day the Alpha had planned. She walked toward the center of it, keeping to the edges of the paths, trying not to draw attention. But it was impossible. She was a human woman walking through a pack of shifters, and they noticed. She felt their eyes on her, not all of them, but enough. Some were curious, some were hostile, some were something else entirely. She kept her head up. She wasn't cowering. She wasn't running. She was a healer who had survived on her own for years, and she wasn't going to lose her nerve now.
 
@@ -1550,7 +1550,7 @@ David stared at her. His mouth opened, then closed. He shook his head once, slow
 
 Amelia kept walking. She kept her head up. She wasn't cowering. She wasn't running. She was a person who needed answers, and she was going to get them.
 
----
+***
 
 Victor
 
@@ -1700,7 +1700,7 @@ She could feel him getting closer. The bond was pulling harder now, almost painf
 
 The clearing opened ahead of her.
 
----
+***
 
 Victor
 
@@ -1718,7 +1718,7 @@ He could feel her getting closer. The bond was pulling harder now, almost unbear
 
 The clearing opened ahead of him.
 
----
+***
 
 Amelia
 
@@ -1736,7 +1736,7 @@ Neither of them spoke. Neither of them could. The bond was too much for words. T
 
 And she didn't want to.
 
----
+***
 
 The clearing was quiet. The moon was high, white, cold, and huge, casting long shadows across the grass, lighting up the trees at the edge of the clearing like they were painted silver. The air was still, too still. Like the whole world was holding its breath.
 
@@ -1824,7 +1824,7 @@ Victor stopped. He turned his head. "I'll tell you when I know."
 
 Victor walked away. He didn't rest.
 
----
+***
 
 He found himself in the healing tent before he remembered deciding to go there.
 
@@ -1910,7 +1910,7 @@ She stood up, walked around the table, and placed her hand on his shoulder. Not 
 
 Then she walked away, and he sat there in the healing tent, alone again, listening to the quiet breathing of the pack members resting in the cots, feeling the bond hum through his chest like a second heartbeat, and wondering, for the first time in his life, whether being strong meant holding everything inside or letting someone else see the cracks.
 
----
+***
 
 Amelia
 
@@ -2100,7 +2100,7 @@ Victor stood up. He nodded once. "Thank you."
 
 Victor did not answer. He turned and walked out of the archive room. He did not look back.
 
----
+***
 
 Amelia
 
@@ -2200,7 +2200,7 @@ She opened her eyes. "I need to see him."
 
 Emila smiled, small and knowing. "I figured."
 
----
+***
 
 Victor
 
@@ -2278,7 +2278,7 @@ She did not pull away.
 
 They stood there, across from each other in a small room with a window and shelves of herbs, holding hands, feeling each other through a connection that predated language, and Victor thought, for the first time in his life, that maybe the thing he had been carrying was not a weight. Maybe it was an invitation.
 
----
+***
 
 The bell above the door rang.
 
@@ -2440,7 +2440,7 @@ Victor wiped the knife on the wet grass and sheathed it. "Then the Hollow King c
 
 No one argued. They all knew Victor was speaking to the trees because there was no one else there to hear him.
 
----
+***
 
 Amelia
 
@@ -2588,7 +2588,7 @@ Victor looked at Amelia. She was still sitting on the floor. Her hands were stea
 
 Amelia shook her head. "I'm coming."
 
----
+***
 
 The war room was a long table with a territory map spread across it, shelves of supplies on the walls, and windows looking out over the northern boundary. Victor sat at the head. Perseus took the chair to his right. David stood at the window, arms crossed, staring north. Josiah sat in the corner chair, still and quiet, watching everything.
 
@@ -2644,7 +2644,7 @@ The pack nodded. Some louder than others. But it was enough.
 
 Victor nodded back once. "Dismissed." He turned and left the war room, Perseus falling into step beside him as the pack began to break.
 
----
+***
 
 After the meeting, the compound broke into its normal rhythm: patrols, training, meals, the steady hum of a community that refused to stop living just because something dark was circling.
 
@@ -2744,7 +2744,7 @@ The mist began to close in. Aurela's form dimmed.
 
 The dream broke.
 
----
+***
 
 Victor woke in his chair.
 
@@ -2914,7 +2914,7 @@ Amelia looked at Victor. Victor looked at the wall. The bond hummed between them
 
 The rest of the day passed in fragments. She went back to the compound. He went to war room duties. She told herself she was fine. She wasn't. She thought about his face when the door opened. She thought about the way he looked at the wall like it was the only thing keeping him from saying something he couldn't take back. She had told herself it was nothing. It was everything.
 
----
+***
 
 Evening came. The sky turned the color of bruised plums, and Amelia stood on the roof of the compound, watching the sun sink behind the ridge, and the bond between her and Victor hummed like a second heartbeat in her chest.
 
@@ -3018,7 +3018,7 @@ The nod wasn't angry. It wasn't accusatory. But it was doubt. And it was the kin
 
 When the war room emptied, Victor stood alone at the table, staring at the map and trying to figure out what Perseus meant.
 
----
+***
 
 AMELIA
 
@@ -3040,7 +3040,7 @@ The bond hummed in her chest, low and steady. She could feel him, not his though
 
 But she did. That was the problem. She did want it.
 
----
+***
 
 VICTOR
 
@@ -3122,7 +3122,7 @@ She didn't want him to carry it alone. Not anymore.
 
 She packed her notes into a satchel. She put her coffee mug in the sink. She told Luna she'd be back soon. And she walked out the door.
 
----
+***
 
 VICTOR
 
@@ -3206,7 +3206,7 @@ It wasn't a horn or a shout. It was the way the air changed, a pressure drop, li
 
 She didn't know what had happened, but she didn't need to. She just got up and ran toward the healing tent.
 
----
+***
 
 VICTOR
 
@@ -3236,7 +3236,7 @@ Someone opened the wards. Someone invited the Hollow King in.
 
 And Victor couldn't figure out who.
 
----
+***
 
 AMELIA
 
@@ -3282,7 +3282,7 @@ She didn't argue. She just sat with him until he stopped shaking.
 
 When he finally stood, she stepped back. He didn't say goodbye. He just climbed down the access ladder and walked away. She watched him go until he disappeared around the corner.
 
----
+***
 
 VICTOR
 
@@ -3308,7 +3308,7 @@ Perseus looked at his Alpha, looked at his friend, and saw the weight of it. The
 
 And then he turned and walked away. No words. No shouting. Just silence.
 
----
+***
 
 AMELIA
 
@@ -3340,7 +3340,7 @@ He didn't answer. He couldn't. He just looked at her with eyes full of everythin
 
 And she knew then, not with magic, not with the bond, but with her own two eyes, that the Hollow King hadn't just hollowed Reid. He had hollowed Victor too. Not yet. But close.
 
----
+***
 
 VICTOR
 
@@ -3432,7 +3432,7 @@ They stood like that for a long time. Then he pulled back, slowly, reluctantly. 
 
 They walked back together, not holding hands, but close enough that the thread between them pulled taut with every step. She could feel the ghost of his touch on her waist, the warmth of his mouth on hers, the way his breath had felt against her lips. She didn't look back at the clearing. He didn't either. They just walked, side by side, his arm brushing against hers with every step.
 
----
+***
 
 VICTOR
 
@@ -3654,7 +3654,7 @@ And then he was gone. She stood there, listening to his footsteps fade. Her hand
 
 She picked up her tea. It was cold, but she drank it anyway.
 
----
+***
 
 Later that afternoon, Amelia met Josiah in the garden behind the healing tent. He was sitting on a bench, hands folded, eyes closed. He looked peaceful. He looked old.
 
@@ -3802,7 +3802,7 @@ He looked out at the yard one more time. At the faces. At the fear that was slow
 
 It was his. Not Aurela's. Not the Moon Goddess's. His. He had chosen it.
 
----
+***
 
 AMELIA
 
@@ -3870,7 +3870,7 @@ He takes her hand. His fingers close around hers. Warm. Solid. The bond flares, 
 
 She squeezes his hand. "Then let's go."
 
----
+***
 
 They walk through the tree line as the moon rises.
 
@@ -3926,7 +3926,7 @@ Josiah nods. He raises his staff one last time. The moonlight floods the clearin
 
 The ceremony completes.
 
----
+***
 
 AMELIA
 
@@ -4042,7 +4042,7 @@ She collapses against him, face buried in his neck, body pressed flush against h
 
 He holds her. Lets her wake.
 
----
+***
 
 AMELIA
 
@@ -4076,9 +4076,9 @@ She touches the crescent moon tattoo on her wrist. It is warm—hot, actually. S
 
 She leaves the room, closing the door behind her. The bond hums in her chest. The room is quiet behind her.
 
----
+***
 
----
+***
 
 VICTOR
 
@@ -4150,7 +4150,7 @@ David opens his mouth, closes it, looks at Perseus, looks at Josiah, looks back 
 
 Then he nods—a slow, reluctant nod. "Understood."
 
----
+***
 
 AMELIA
 
@@ -4270,7 +4270,7 @@ Josiah's eyes close again. "You do what you have always done. Lead. Protect. Tru
 
 Victor nods. The words settle in his chest. He sends them through the bond to Amelia. Not the words, just the feeling. Gratitude. Resolve. She feels him through the bond too: the ghost of his cock still buried in her, the ache in her thighs where she rode him, the way her body remembers his. The warmth in the bond brightens in response.
 
----
+***
 
 DAVID
 
@@ -4316,7 +4316,7 @@ David nods. He should walk away. He should trust his brother. He should trust Pe
 
 But he doesn't.
 
----
+***
 
 PERSEUS
 
@@ -4402,7 +4402,7 @@ He closes his eyes. Sends the weight of his brother's words through the bond to 
 
 She feels him. She feels the shape of his love. And it is enough.
 
----
+***
 
 DAVID
 
@@ -4488,7 +4488,7 @@ Victor closes his eyes. The bond sears through him — a pain so sharp it makes 
 
 He does not wait for armor. He does not wait for a full war party. He shifts right there in the war room, bone cracking, flesh tearing, a massive wolf bursting through the door and into the corridor. David follows, already shifting. Perseus is behind them. The pack is behind them. A pack of wolves running south into the gathering dark.
 
----
+***
 
 AMELIA
 
@@ -4506,7 +4506,7 @@ The healing tent is quiet. Her hands are shaking. The mortar lies on the floor. 
 
 She stumbles to the door. Steps outside. Looks south. The sky is dark. The air is heavy. She knows, with absolute certainty, that he is fighting.
 
----
+***
 
 VICTOR
 
@@ -4650,7 +4650,7 @@ The Hanley warriors fall in behind him. They move north. They disappear into the
 
 Victor stands still. The cold in his bones does not recede.
 
----
+***
 
 AMELIA
 
@@ -4906,7 +4906,7 @@ He looks at her.
 
 And she is gone.
 
----
+***
 
 AMELIA
 
@@ -5060,7 +5060,7 @@ She closes her eyes and listens to his heartbeat—slow, steady, the kind of rhy
 
 She almost believes it.
 
----
+***
 
 VICTOR
 
@@ -5118,7 +5118,7 @@ He finishes inside her, his body going rigid, his breath leaving him in a rush. 
 
 The bond hums between them—warm, steady, deeper now, stronger— like a fire banked for the night, still glowing, still hot, still ready.
 
----
+***
 
 AMELIA
 
@@ -5200,7 +5200,7 @@ Tessa collapses. Her breathing is ragged. But she is alive. Still human. Not hol
 
 Amelia lets out a breath she did not know she was holding. Her hands are shaking. Her face is wet. She wipes it with the back of her hand. Turns to the next one.
 
----
+***
 
 VICTOR
 
@@ -5246,7 +5246,7 @@ It turns. Flies. Disappears into the dark.
 
 Victor stays on the wall. Breathing hard. Blood dripping from his jaws. The beast is gone. The pack is holding. Barely. They lost warriors. They lost territory. They lost men to the hollowing. The compound is damaged. The wards are broken. They survived because they had no choice. Because Victor is the Alpha and he does not yield. Because the pack behind him does not stop fighting. Because one bond is not enough, it never has been enough, but it is the only thing holding the perimeter together.
 
----
+***
 
 AMELIA
 
@@ -5286,7 +5286,7 @@ She stands. Her legs are shaking. Her back screams. Her hands are raw. She does 
 
 There is always the next one.
 
----
+***
 
 VICTOR
 
@@ -5312,7 +5312,7 @@ But he is the Alpha.
 
 And he does not yield.
 
----
+***
 
 AMELIA
 
@@ -5350,7 +5350,7 @@ She counts the dead after the last healer rests. Seven. Seven warriors who could
 
 She looks at Emila. Emila looks at her. Neither speaks. There is nothing to say. They both know it. The pack survived this time. But they will not survive the next attack. Not with only one bond. Not with only one thread in a web that should have a hundred.
 
----
+***
 
 AMELIA
 
@@ -5370,7 +5370,7 @@ The bond to Victor hums at the back of her mind. Steady. Certain. Alive. He is o
 
 She closes her eyes. Lets the warmth of it wash over her.
 
----
+***
 
 VICTOR
 
@@ -5392,7 +5392,7 @@ That is the only thing that matters.
 
 He steps down from the wall. Starts walking. Through the compound. Past the wounded. Past the dead. Past the smoke and the ash and the wreckage. Toward the healing tent.
 
----
+***
 
 AMELIA
 
@@ -5468,7 +5468,7 @@ She does. Her body convulses, walls clamping down around his cock, a scream tear
 
 He holds on barely. Her climax pushes him closer to the edge, the pressure in his groin unbearable—thick, burning, desperate. He thrusts once, twice, three times, and breaks. Hips slamming against hers, cock pulsing inside her, hot and thick, spilling into her as his whole body tenses.
 
----
+***
 
 AMELIA
 
@@ -5626,7 +5626,7 @@ She doesn't argue. She knows he's right. She can't sleep, not after that. Not wi
 
 She drifts back off to sleep.
 
----
+***
 
 VICTOR
 
@@ -5664,7 +5664,7 @@ He drops his forehead against hers. Closes his eyes. Breathes her in. Her scent 
 
 The bond hums. He can still feel the Hollow King on the other side, faint, like a cold draft in a warm room. He braces against it. Holds the door shut. Waits for dawn.
 
----
+***
 
 AMELIA
 
@@ -5686,7 +5686,7 @@ She presses her face into Victor's chest. Breathing him in. She presses harder a
 
 She closes her eyes. But she does not sleep. She listens to his heartbeat. And waits for dawn.
 
----
+***
 
 VICTOR
 
@@ -5728,7 +5728,7 @@ She doesn't argue. She knows he's right. She watches him get up. Dress. Leave th
 
 And waits.
 
----
+***
 
 AMELIA
 
@@ -5754,7 +5754,7 @@ The Hollow King can attack her fear. He can attack her doubt. He can attack her 
 
 She closes her eyes. Breathes. And waits for Victor to come back.
 
----
+***
 
 VICTOR
 
@@ -5876,7 +5876,7 @@ But she knows this is not the end. The Hollow King is still on the other side. S
 
 Together.
 
----
+***
 
 AMELIA
 
@@ -5962,7 +5962,7 @@ He closes his eyes and nods. When he opens them there is no evidence of fear in 
 
 "I'm not going anywhere."
 
----
+***
 
 VICTOR
 
@@ -6008,7 +6008,7 @@ She channels back.
 
 Her own power flows through the bond. but is not like his, no. It isn't silver, or light. She's a human so her power is smaller. It is different, much softer, But real no less. It is warm made of love and of stubborness, and fierce refusal to lose the person standing in front of her. It pours through the bond into him. It fuels him, gives him the strength he needs. She is not a warrior or shifter. She doesn't have magic. But she is here. Present. Connected. And she is not letting go.
 
----
+***
 
 The Hollow King strikes.
 
@@ -6046,7 +6046,7 @@ Amelia drops beside him. Her hands find his face. Her thumbs press against his c
 
 He looks at her with wet, grey tired eyes. But he's alive. and says. "We did it"
 
----
+***
 
 AMELIA
 
@@ -6134,7 +6134,7 @@ But underneath it, something else. Something she recognizes through the bond. Wo
 
 She opens the door.
 
----
+***
 
 VICTOR
 
@@ -6174,7 +6174,7 @@ Victor's chest tightens. Marco. He remembers Marco. From the old days. Before Vi
 
 "Show me," he says.
 
----
+***
 
 He walks to the east wing. The corridor is quiet. Too quiet. The voices from earlier have faded. The wounded have been moved to the healing tent. The east wing is reserved for the dead.
 
@@ -6212,7 +6212,7 @@ For the pack. For the bond. For Marco.
 
 For Amelia.
 
----
+***
 
 AMELIA
 
@@ -6312,7 +6312,7 @@ Her knees buckle. Just for a second. She catches herself on the table. Breathes.
 
 She walks to the main hall.
 
----
+***
 
 VICTOR
 
@@ -6410,7 +6410,7 @@ By love.
 
 By choice.
 
----
+***
 
 AMELIA
 
@@ -6454,7 +6454,7 @@ She just needs the right moment.
 
 And it will come soon.
 
----
+***
 
 VICTOR
 
@@ -6621,7 +6621,7 @@ She closes her eyes. Rests her head against his chest. He wraps his arms around 
 
 # Chapter 39: The Love
 
----
+***
 
 AMELIA
 
@@ -6689,7 +6689,7 @@ When the wave passes, he is still holding her. Still breathing. But his grip is 
 
 "I love you," he says again. And this time, it is not a statement. It is a vow.
 
----
+***
 
 VICTOR
 
@@ -6729,7 +6729,7 @@ He pulls her into his arms. Holds her tight. And for the first time in his life,
 
 Something that does not need to be carried alone.
 
----
+***
 
 AMELIA
 
@@ -6761,7 +6761,7 @@ And that is enough.
 
 # Chapter 40: The Horizon
 
----
+***
 
 AMELIA
 
@@ -6813,7 +6813,7 @@ The kettle whistles. Neither of them moves. They just sit there, holding hands, 
 
 And it is enough.
 
----
+***
 VICTOR
 
 He sits across from her. Her hand in his. The morning light falls across the table. Dust motes float in the air. The compound is alive outside, pack members training, children running, dogs barking. The sounds of a living, breathing pack.
@@ -6834,7 +6834,7 @@ The weight of it presses on him, not heavy, but real. Solid. Present. He feels i
 
 And he is not afraid.
 
----
+***
 
 # Epilogue
 
@@ -6882,7 +6882,7 @@ He is not afraid. He has his mate. He has his pack.
 
 And he knows this is just the beginning.
 
----
+***
 
 AMELIA
 
