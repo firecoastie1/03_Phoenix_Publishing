@@ -52,17 +52,17 @@ She stopped in the middle of the clearing. He stood on the other side. They were
 
 Her hands were vibrating so hard she couldn't feel them. Her chest was aching, a physical pain, like her heart was trying to tear itself out of her ribs and reach for him. She couldn't breathe. She couldn't think. She could only feel him, feel the bond, feel the pull, feel the thing that was bigger than both of them.
 
-He looked like he felt the same thing. His hands were clenched at his sides, trembling. His jaw was tight. His eyes were wide, unfocused, searching, like he was trying to understand something his brain couldn't comprehend. His breathing was shallow and fast, and the way he looked at her, like she was the only thing in the universe that mattered, the only thing that was real, the only thing that kept him anchored to the earth, it hit her with the force of a physical blow.
+He looked like he felt the same thing. His hands were clenched at his sides, trembling. His jaw was tight. His eyes were wide, unfocused, searching. His breathing was shallow and fast. The way he looked at her — like she was the only thing in the universe — it hit her with the force of a physical blow.
 
-Neither of them spoke. Neither of them could. The bond was too much for words. It was too big, too bright, too overwhelming, like the entire universe had narrowed down to a single point, and that point was between them, and they were both standing in it, and they couldn't get out even if they wanted to.
+Neither of them spoke. Neither of them could. The bond was too much for words. Too big. Too bright. Too overwhelming.
 
 And she didn't want to.
 
 ---
 
-The clearing was quiet. The moon was high, white, cold, and huge, casting long shadows across the grass, lighting up the trees at the edge of the clearing like they were painted silver. The air was still, too still, like the whole world was holding its breath, waiting for something to happen, something that neither of them understood but both of them felt.
+The clearing was quiet. The moon was high, white, cold, and huge, casting long shadows across the grass, lighting up the trees at the edge of the clearing like they were painted silver. The air was still, too still. Like the whole world was holding its breath.
 
-The bond was a hum now, not a detonation, not a pull, but a constant, steady, overwhelming presence, like a voice that never stopped speaking, like a current that never stopped flowing, like a heartbeat that never stopped beating. They could feel each other. Not just physically. Emotionally. Spiritually. They could feel each other's fear, each other's confusion, each other's determination, each other's wonder. They could feel each other's hearts beating. They could feel each other's breath. They could feel the space between them, thin and bright and electric, like a struck match waiting to catch fire.
+The bond was a hum now, not a detonation, not a pull, but a constant, steady presence. They could feel each other — fear, confusion, determination, wonder. They could feel each other's hearts beating. They could feel each other's breath. The space between them, thin and bright and electric.
 
 And then the world shifted.
 
@@ -80,7 +80,7 @@ The words hit them both like a physical blow. Amelia stumbled back. Victor's hor
 
 *I look at you and see the only thing that will keep the dark at bay.*
 
-Amelia felt it, a vision, not of her own mind, but of Aurela's, flashing through her head like a struck match lighting a room: centuries of war, of separation, of shifter types forgetting each other, of the Hollow King feeding on isolation, on fear, on the space between two creatures who could have been allies but were instead alone. She saw Aurela, an ancient shifter woman with gray eyes and silver hair and a face that had seen too much, standing in a clearing like this one, making a decision that would change everything, creating the Mate Bond not as a romance but as a strategy, not as a love story but as a weapon, a coalition built through connection, not conquest.
+Amelia felt it, a vision flashing through her head: centuries of war, of separation, of shifter types forgetting each other, of the Hollow King feeding on isolation. She saw Aurela, an ancient shifter woman with gray eyes and silver hair and a face that had seen too much, standing in a clearing like this one, making a decision that would change everything, creating the Mate Bond not as a romance but as a strategy, not as a love story but as a weapon, a coalition built through connection, not conquest.
 
 She saw Aurela's strategy, bonds between different shifter types, bonds between shifters and humans, bridges across the Veil, barriers against the Hollow King. She saw the Moonlit Rite, the Mate Bond, the Moon Goddess's plan, centuries in the making, and she understood, for the first time, what she and Victor were. Not a romance. A strategy. A weapon. A coalition. A bridge.
 
@@ -88,13 +88,13 @@ And the weight of it hit her like a physical blow. She couldn't breathe. She cou
 
 *Forgive me for using the heart as a weapon.*
 
-Tears welled in Amelia's eyes. Not from sadness. From understanding. From the weight of something so big it made her feel small, made her feel insignificant, made her feel like she was part of something larger than herself, something that had been happening for centuries, something that was bigger than her loneliness, bigger than her fear, bigger than her need for connection. She was part of something ancient. She was part of something real. And she didn't know what to do with that.
+Tears welled in Amelia's eyes. Not from sadness. From understanding. From the weight of something so big it made her feel small. Made her feel like she was part of something larger than herself. Part of something ancient. Part of something real.
 
 *I had no other tool left.*
 
 The words echoed in both their minds, and for a moment, the vision faded. The moonlight returned. The bond softened from a scream to a hum. The air grew warm again. The forest stopped holding its breath.
 
-Amelia stood in the clearing, trembling, tears streaming down her face, her hands still vibrating, her chest still aching, her heart still hammering. She was looking at Victor. He was looking at her. And neither of them knew what this meant yet. Amelia understood the vision, the centuries of war, the Mate Bond as strategy, the Hollow King's hunger, but understanding and knowing what to do with it were two very different things. Victor stood across from her, breathing hard, eyes wide, searching her face for answers she didn't have yet. They only knew that something had changed, something had shifted, something had been revealed, and they were both standing in the moonlight, staring at each other, trembling, completely unsure of what came next.
+Amelia stood in the clearing, trembling, tears streaming down her face, her hands still vibrating, her chest still aching, her heart still hammering. She was looking at Victor. He was looking at her. And neither of them knew what this meant yet. Amelia understood the vision — the centuries of war, the Mate Bond as strategy, the Hollow King's hunger. But understanding and knowing what to do with it were two very different things. Victor stood across from her, breathing hard, eyes wide, searching her face for answers she didn't have yet.
 
 But they both felt it. They both felt the weight of it. They both felt the pull toward each other, toward whatever this was, toward whatever came next. They both felt the darkness waiting in the north, the Hollow King breathing down their neck, the clock ticking, the future uncertain, the road ahead long and dangerous and unwritten.
 

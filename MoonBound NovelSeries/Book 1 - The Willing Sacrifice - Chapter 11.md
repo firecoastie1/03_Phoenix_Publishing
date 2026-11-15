@@ -16,7 +16,7 @@ She opened the door.
 
 The compound was alive, early morning, people moving, working, getting ready for whatever day the Alpha had planned. She walked toward the center of it, keeping to the edges of the paths, trying not to draw attention. But it was impossible. She was a human woman walking through a pack of shifters, and they noticed. She felt their eyes on her, not all of them, but enough. Some were curious, some were hostile, some were something else entirely. She kept her head up. She wasn't cowering. She wasn't running. She was a healer who had survived on her own for years, and she wasn't going to lose her nerve now.
 
-A woman approached her first, dark hair, warm face, the kind of woman who carried herself like she was completely at home in a world full of predators. She stopped when she saw Amelia. Amelia tensed, then the woman smiled.
+A woman approached her first, dark hair, warm face, completely at home in a world full of predators. She stopped when she saw Amelia. Amelia tensed, then the woman smiled.
 
 "You're the human," she said. Not a question. A statement. Her voice was warm, curious, nothing like the suspicion in some of the others' eyes. "I'm Emila. I'm in the healing tent."
 
@@ -34,7 +34,7 @@ Emila pointed toward the center of the compound. "Two buildings down. You can't 
 
 Amelia nodded. She started walking. She hadn't looked over her shoulder once, but she could feel the eyes still on her, watching, waiting, wondering what she was doing there.
 
-A man approached her next, tall, broad-shouldered, with sharp features and a sharp look in his eyes. He stopped when he saw her. His mouth twisted, not a smile, not a frown, but something in between.
+A man approached her next, tall, broad-shouldered, with sharp features and a sharp look in his eyes. He stopped when he saw her. His mouth twisted. Not a smile. Not a frown. Something in between.
 
 "You're back," he said. His voice was flat, not hostile, more skeptical. "I'm David. The one who made the joke about the stray." He crossed his arms. "You know, most humans would have run the other way after what happened. Most humans would be scared. You're just... walking around like you belong here."
 
@@ -50,7 +50,7 @@ Victor
 
 He was sitting at the table in the war room looking at a map of the northern boundary and trying to focus on something other than the feeling in his chest.
 
-The bond was still humming. It had been humming all night, he had tried to sleep, and every time he closed his eyes, he felt her. Not her thoughts. Not her voice. Her presence. It was like she was sitting in the room with him, even though he knew she was in the guest quarters, probably sleeping or trying to, probably thinking about the same thing he was thinking about.
+The bond was still humming. It had been humming all night, he had tried to sleep, and every time he closed his eyes, he felt her. Not her thoughts. Not her voice. Her presence. It was like she was sitting in the room with him.
 
 He was angry. Not at her. At the situation. At the bond. At the fact that he was an Alpha who could not control his own body, could not control his own senses, could not control the one thing that mattered most, his ability to think clearly when she was in the same room as him.
 
@@ -64,7 +64,7 @@ The door opened.
 
 Victor didn't turn. He didn't need to. The bond had flared the moment the door opened, sharp, immediate, undeniable. Like a struck match. And then, a second later, Amelia walked in.
 
-She was standing in the doorway. Her hands were at her sides. Her posture was straight. Her face was calm. Not cowering. Not impressed. Just... there. Present. Observant. And the bond between them flared so hard it was almost painful.
+She was standing in the doorway. Her hands were at her sides. Her posture was straight. Her face was calm. Present. Observant. And the bond between them flared so hard it was almost painful.
 
 David looked up from his place in the corner. Perseus turned his head. Josiah, who had been sitting quietly by the window, smiled.
 
@@ -86,7 +86,7 @@ Victor was quiet. He was surprised. He didn't like being surprised. He liked bei
 
 She was quiet for a moment. Then: "Us. The bond. Whatever it is. I felt something at the stream. I felt something when you touched me. I felt something when Josiah explained what it was. And I want to understand it. I'm not looking for a fantasy. I'm looking for truth."
 
-Victor looked at her. He was looking at her face, the freckles across her nose, the slight furrow in her brow, the way her eyes were fixed on him like he was the only person in the room. He didn't know what to say to that. Because the truth was: he didn't understand it either. He was the Alpha. He was supposed to have answers. But this. This was something he couldn't calculate. Couldn't control. Couldn't explain.
+Victor looked at her. He was looking at her face, the freckles across her nose, the slight furrow in her brow, the way her eyes were fixed on him like he was the only person in the room. He didn't know what to say to that. Because he didn't understand it either. He was the Alpha. He was supposed to have answers. But this. This was something he couldn't calculate. Couldn't control. Couldn't explain.
 
 "Let's walk," he said.
 
@@ -98,7 +98,7 @@ They reached the edge of the compound. The trees were close, thick, dark, alive.
 
 "Go ahead," Victor said. He stepped back. He gave her space. "Tell me what you need to say."
 
-She was quiet. She was looking at him, really looking at him, the way she had at the stream, the way she had in the small room with the fire, like she was trying to see past his face to whatever was underneath.
+She was quiet. She was looking at him, really looking at him, the way she had at the stream, the way she had in the small room with the fire — like she was trying to see past his face to whatever was underneath.
 
 "I feel it too," she said finally. "The bond. I felt it at the stream, when you looked at me, when we touched. I felt something inside me wake up. And I don't know what it's waking up to. I know Josiah said it's not love. I know he said it's recognition. But I want to understand what that means. I want to know if this is just, she gestured at her chest, this pull. This tingling in my hands. This feeling like I'm standing too close to a speaker. Or if it's something more."
 
@@ -114,7 +114,7 @@ He was quiet. He didn't know what to say to that. He was used to people being af
 
 She thought about it, then said, "Because you haven't given me a reason to be. You brought me back to the compound. You told Josiah I was a witness, not a stray. You explained the bond to me, even though I know you didn't want to. You told me the truth. You didn't try to trick me. You didn't try to scare me. You just... told me." She paused. "That matters."
 
-Victor was quiet. He didn't know what to say to that. He was the Alpha. He was supposed to be commanding, decisive, in control. But Amelia was standing in front of him, and she was looking at him like he was just a person, and he didn't know how to handle it.
+Victor was quiet. He didn't know what to say to that. He was the Alpha. He was supposed to be commanding. Decisive. In control. But Amelia was looking at him like he was just a person.
 
 "Most humans would be terrified of me," he said.
 
@@ -160,7 +160,7 @@ That was it. Just "okay." But it was enough. It was enough for now.
 
 Victor nodded. "Okay."
 
-The bond hummed between them. It was warm. It was steady. It was undeniable. And for the first time since the stream, since the tingling, since the moment he had looked at her and felt something shift in his chest, Victor felt something he couldn't name but knew was real.
+The bond hummed between them. Present. Steady. Undeniable. And for the first time since the stream, since the tingling, since the moment he had looked at her and felt something shift in his chest, Victor felt something he couldn't name but knew was real.
 
 It wasn't love. Not yet. Maybe not for a long time. But it was a beginning. And for the first time in a very long time, Victor didn't want to control it. He just wanted to follow it.
 
