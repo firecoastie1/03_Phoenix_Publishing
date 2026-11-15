@@ -1,5 +1,4 @@
-Chapter 24
-The Traitor Revealed
+# Chapter 24: The Traitor Revealed
 
 PERSEUS
 

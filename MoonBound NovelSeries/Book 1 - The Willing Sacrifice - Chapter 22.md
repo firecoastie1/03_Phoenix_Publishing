@@ -1,5 +1,4 @@
-Chapter 22
-The Suspects
+# Chapter 22: The Suspects
 
 AMELIA
 

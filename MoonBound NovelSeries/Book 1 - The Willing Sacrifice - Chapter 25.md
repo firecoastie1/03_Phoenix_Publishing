@@ -1,5 +1,4 @@
-Chapter 25
-The Decision
+# Chapter 25: The Decision
 
 VICTOR
 

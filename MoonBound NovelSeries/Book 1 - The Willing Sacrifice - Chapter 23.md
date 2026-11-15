@@ -1,5 +1,4 @@
-Chapter 23
-The Full Moon
+# Chapter 23: The Full Moon
 
 AMELIA
 
