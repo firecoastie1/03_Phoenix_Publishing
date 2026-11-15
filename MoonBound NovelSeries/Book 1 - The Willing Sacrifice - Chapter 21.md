@@ -1,5 +1,4 @@
-Chapter 21
-The Second Attack
+# Chapter 21: The Second Attack
 
 AMELIA
 
