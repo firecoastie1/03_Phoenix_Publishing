@@ -2,8 +2,6 @@
 
 ---
 
-# Epilogue
-
 AMELIA
 
 Weeks have passed. The pack is rebuilding. The barrier is strong. The Hollow King is gone, not defeated, but pushed back across the Veil. The Blackwood Compound has never felt more alive.
@@ -73,6 +71,8 @@ The weight of it presses on him, not heavy, but real. Solid. Present. He feels i
 And he is not afraid.
 
 ---
+
+# Epilogue
 
 AMELIA
 
