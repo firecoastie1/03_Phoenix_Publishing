@@ -356,11 +356,7 @@ He pulls her against him. Her body against his. Her head on his chest. His arm a
 
 "I'm not going anywhere."
 
-He pulls her against him. Her body against his. Her head on his chest. His arm around her waist. Her leg over his. He presses his forehead to hers. Closes his eyes.
 
-"Stay," she says.
-
-"I'm not going anywhere."
 
 She kisses him — slow at first. Testing. Seeing if he'll dissolve into mist. He kisses her back with a tenderness that cracks something open in her chest. Hands sliding under her shirt, warm palms against bare skin. She tugs her shirt over her head. Throws it aside. He watches her. Eyes soft. Not hungry. Not desperate. Just... her. She reaches for the buttons of his jeans. Slow. Deliberate. Each button. Each movement. Grounding them both.
 
