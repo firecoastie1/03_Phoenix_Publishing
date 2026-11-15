@@ -76,7 +76,7 @@ Victor holds his gaze. "What should I do?"
 
 Josiah's eyes close again. "You do what you have always done. Lead. Protect. Trust your pack. The bond does not make you weak, Victor. It makes you more than one."
 
-Victor nods. The words settle in his chest, warm and steady. He sends them through the bond to Amelia. Not the words, just the feeling. Gratitude. Resolve. She feels him through the bond too: the ghost of his cock still buried in her, the ache in her thighs where she rode him, the way her body remembers his. The warmth in the bond brightens in response.
+Victor nods. The words settle in his chest. He sends them through the bond to Amelia. Not the words, just the feeling. Gratitude. Resolve. She feels him through the bond too: the ghost of his cock still buried in her, the ache in her thighs where she rode him, the way her body remembers his. The warmth in the bond brightens in response.
 
 ---
 

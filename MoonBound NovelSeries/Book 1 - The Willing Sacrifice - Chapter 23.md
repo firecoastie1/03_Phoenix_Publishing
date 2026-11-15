@@ -73,7 +73,7 @@ He didn't move. He just stood there, his hands on her waist, his breath on her l
 
 They stood like that for a long time. Then he pulled back, slowly, reluctantly. He pressed one last kiss to her temple, his palm resting flat against her shoulder for a heartbeat, before he let his hand fall.
 
-They walked back together, not holding hands, but close enough that the thread between them pulled taut with every step. She could feel the ghost of his touch on her waist, the warmth of his mouth on hers, the way his breath had felt against her lips. She didn't look back at the clearing. He didn't either. They just walked, side by side, his arm brushing against hers with every step, the bond between them warm and steady, growing stronger.
+They walked back together, not holding hands, but close enough that the thread between them pulled taut with every step. She could feel the ghost of his touch on her waist, the warmth of his mouth on hers, the way his breath had felt against her lips. She didn't look back at the clearing. He didn't either. They just walked, side by side, his arm brushing against hers with every step.
 
 ---
 

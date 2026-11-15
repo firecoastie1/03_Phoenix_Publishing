@@ -168,7 +168,7 @@ He looks at her. Really looks at her. Not with the Alpha's eyes. Not the eyes of
 
 She leans up. Kisses him.
 
-Soft. Slow. Her lips against his, warm and steady, the bond humming between them like a fire that refuses to go out. It is a kiss that says she is there. That she is not going anywhere. His hand comes up to her waist. His thumb presses into the fabric of her shirt. He holds her like she is the only solid thing in a world that has gone liquid.
+Soft. Slow. Her lips against his, grounding him, the bond humming between them like a fire that refuses to go out. It is a kiss that says she is there. That she is not going anywhere. His hand comes up to her waist. His thumb presses into the fabric of her shirt. He holds her like she is the only solid thing in a world that has gone liquid.
 
 When they break apart, he is breathing hard. Not from passion. From release. From the pressure of holding something inside for too long and finally letting it out. She rests her forehead against his. He breathes her in. For a moment the world is just this room, just the two of them, just the bond humming between them like a steady heartbeat.
 

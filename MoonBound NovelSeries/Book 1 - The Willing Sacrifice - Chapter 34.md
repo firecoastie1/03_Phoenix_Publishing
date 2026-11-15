@@ -30,7 +30,7 @@ Amelia crosses the tent. Grabs the warrior's good shoulder. Pins her down. The w
 
 Amelia holds her. Firm. Unyielding. "I know. Stay with me. Look at me."
 
-Tessa looks. Her eyes lock onto Amelia's. Amelia holds her gaze. The bond between her and Victor hums warm and steady at the back of her mind. She draws on it. Takes what she needs. Steadiness. Resolve. The kind of certainty that does not waver.
+Tessa looks. Her eyes lock onto Amelia's. Amelia holds her gaze. Her eyes steady. Resolved. She draws on it. Takes what she needs. Steadiness. Resolve. The kind of certainty that does not waver.
 
 "I'm not letting you go," she says. "You hear me? I'm not letting it take you."
 

@@ -200,7 +200,7 @@ It wasn't a choice. It wasn't a decision. It was a certainty, like gravity, like
 
 The window was quiet. The kitchen was quiet. The night was quiet.
 
-And between her and him, the bond hummed, warm and steady and undeniable.
+And between her and him, the bond hummed — alive, undeniable.
 
 It was enough. Not for forever. Not for all the years ahead. But for this moment. For this kitchen. For this night. For this quiet.
 

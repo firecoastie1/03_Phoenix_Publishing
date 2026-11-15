@@ -84,7 +84,7 @@ Amelia felt it — a vision, not of her own mind, but of Aurela's, flashing thro
 
 She saw Aurela's strategy — bonds between different shifter types, bonds between shifters and humans, bridges across the Veil, barriers against the Hollow King. She saw the Moonlit Rite, the Mate Bond, the Moon Goddess's plan, centuries in the making, and she understood, for the first time, what she and Victor were. Not a romance. A strategy. A weapon. A coalition. A bridge.
 
-And the weight of it hit her like a physical blow. She couldn't breathe. She couldn't think. She couldn't move. She could only feel the bond between her and Victor, warm and steady and overwhelming, and the voice of Aurela in her head, ancient and sad and urgent.
+And the weight of it hit her like a physical blow. She couldn't breathe. She couldn't think. She couldn't move. She could only feel the bond between her and Victor — present. Certain. Unshakeable — and the voice of Aurela in her head, ancient and sad and urgent.
 
 *Forgive me for using the heart as a weapon.*
 
@@ -96,11 +96,11 @@ The words echoed in both their minds, and for a moment, the vision faded. The mo
 
 Amelia stood in the clearing, trembling, tears streaming down her face, her hands still vibrating, her chest still aching, her heart still hammering. She was looking at Victor. He was looking at her. And neither of them knew what this meant yet. Amelia understood the vision — the centuries of war, the Mate Bond as strategy, the Hollow King's hunger — but understanding and knowing what to do with it were two very different things. Victor stood across from her, breathing hard, eyes wide, searching her face for answers she didn't have yet. They only knew that something had changed, something had shifted, something had been revealed, and they were both standing in the moonlight, staring at each other, trembling, completely unsure of what came next.
 
-But they both felt it. They both felt the weight of it. They both felt the bond between them, warm and steady and undeniable. They both felt the pull toward each other, toward whatever this was, toward whatever came next. They both felt the darkness waiting in the north, the Hollow King breathing down their neck, the clock ticking, the future uncertain, the road ahead long and dangerous and unwritten.
+But they both felt it. They both felt the weight of it. They both felt the pull toward each other — toward whatever this was, toward whatever came next. They both felt the darkness waiting in the north, the Hollow King breathing down their neck, the clock ticking, the future uncertain, the road ahead long and dangerous and unwritten.
 
 They both felt it. And they both knew one thing: they were not alone anymore.
 
-The moonlight was white. The clearing was quiet. The forest was breathing again. And between them, the bond hummed, warm and steady and undeniable.
+The moonlight was white. The clearing was quiet. The forest was breathing again. And between them, the bond hummed — present. Certain. Unshakeable.
 
 And it was enough. Not for forever. Not for all the years ahead. But for this moment. For this clearing. For this night. For this moonlight.
 
