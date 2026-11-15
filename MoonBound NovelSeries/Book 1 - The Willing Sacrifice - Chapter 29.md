@@ -2,7 +2,7 @@
 
 VICTOR
 
-Evening settles over the compound. The war room is quiet. Papers stacked, maps rolled, lamps lit. Victor stays behind after the others have left. He sits at the head of the table, staring at the same report he has been reading for ten minutes. The bond hums in his chest — Amelia is in the healing tent, asleep, her warmth steady and slow. It grounds him. But it does not quiet his thoughts.
+Evening settles over the compound. The war room is quiet. Papers stacked, maps rolled, lamps lit. Victor stays behind after the others have left. He sits at the head of the table, staring at the same report he has been reading for ten minutes. The bond hums in his chest, Amelia is in the healing tent, asleep, her warmth steady and slow. It grounds him. But it does not quiet his thoughts.
 
 The door opens.
 
@@ -56,7 +56,7 @@ The door closes behind him. The click of the latch is loud in the empty room.
 
 Victor stands alone.
 
-He closes his eyes. Sends the weight of his brother's words through the bond to Amelia — not the words, just the feeling. Conflict. Tension. Fear. The warmth in the bond brightens in response. She is awake now. Listening.
+He closes his eyes. Sends the weight of his brother's words through the bond to Amelia, not the words, just the feeling. Conflict. Tension. Fear. The warmth in the bond brightens in response. She is awake now. Listening.
 
 *I'll be okay,* he thinks. *We will be okay.*
 
@@ -66,7 +66,7 @@ She feels him. She feels the shape of his love. And it is enough.
 
 DAVID
 
-David walks the corridors of the compound in silence. The stone floor is cold beneath his boots. The lamps cast long shadows against the walls. He can hear the compound settling around him — the murmur of voices, the creak of timber, the distant bark of a dog. Life. Normal life. For people who are not standing at the edge of a war they do not yet understand.
+David walks the corridors of the compound in silence. The stone floor is cold beneath his boots. The lamps cast long shadows against the walls. He can hear the compound settling around him, the murmur of voices, the creak of timber, the distant bark of a dog. Life. Normal life. For people who are not standing at the edge of a war they do not yet understand.
 
 He stops at the window of the corridor. Looks out into the darkness. The compound is quiet. Peaceful. He hates it.
 
@@ -74,7 +74,7 @@ It is not the Hanley situation that is eating at him. It is not the ten scouts. 
 
 Because Victor is right because of her. Because of Amelia. Because of the bond.
 
-And David knows — deep in his chest — that Victor has not just changed. He has become better. Stronger. Clearer. The man who walked into the war room tonight was not the man who left it two days ago. The ceremony changed him. The bond changed him. And David is not sure if he likes what he sees.
+And David knows, deep in his chest, that Victor has not just changed. He has become better. Stronger. Clearer. The man who walked into the war room tonight was not the man who left it two days ago. The ceremony changed him. The bond changed him. And David is not sure if he likes what he sees.
 
 Because the man he sees is a better Alpha. And he is not sure if a better Alpha is what the pack needs.
 

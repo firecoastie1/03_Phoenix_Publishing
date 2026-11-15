@@ -2,7 +2,7 @@
 
 AMELIA
 
-She stands in the healing tent. Her arms are stained with blood and bandage wrap. Her hands ache. Her eyes burn. She has not slept in two days. She tells herself it is exhaustion. The barrier surge from last night took something out of her — she can feel it in her bones, a deep, grinding tiredness that sleep cannot fix.
+She stands in the healing tent. Her arms are stained with blood and bandage wrap. Her hands ache. Her eyes burn. She has not slept in two days. She tells herself it is exhaustion. The barrier surge from last night took something out of her, she can feel it in her bones, a deep, grinding tiredness that sleep cannot fix.
 
 She has also not kept food down since last evening. Not because she is sick. Not really. Just nauseous. A wave that comes without warning, that makes her step behind a cot and hold her hair back until it passes. She tells herself it is the stress. The battle. The Hollow King. It will pass.
 
@@ -112,11 +112,11 @@ She steps closer. Reaches out. Takes Amelia's hand.
 
 The hall erupts. Not in cheers. In something deeper. A nodding. A murmur of agreement. Pack members stepping toward Amelia. Touching her shoulder. Shaking Victor's hand. Speaking words of respect. Of gratitude. Of acceptance.
 
-Amelia does not know what to do. Her eyes are wet. Her throat is tight. She has spent her whole life feeling like she does not belong anywhere. Not among humans. Not among shifters. And now — now these people — Victor's pack — are welcoming her. Accepting her. Calling her home.
+Amelia does not know what to do. Her eyes are wet. Her throat is tight. She has spent her whole life feeling like she does not belong anywhere. Not among humans. Not among shifters. And now, now these people, Victor's pack, are welcoming her. Accepting her. Calling her home.
 
 She does not cry. Not here. Not now. But her hand tightens around Emila's. And she smiles. A small, uncertain, real smile.
 
-Victor feels it through the bond. The warmth. The certainty. The love. He turns to look at her. Gray eyes meeting hers. And he sees it — the exhaustion in her face. The paleness. The shadow under her eyes.
+Victor feels it through the bond. The warmth. The certainty. The love. He turns to look at her. Gray eyes meeting hers. And he sees it, the exhaustion in her face. The paleness. The shadow under her eyes.
 
 Something is wrong. He can feel it. The bond picks up on her exhaustion. Her nausea. Her fear. Not of the Hollow King. Not of the pack. Of herself. Of what she has not told him yet.
 
@@ -136,7 +136,7 @@ AMELIA
 
 The meeting ends. Pack members drift away. Whispers follow her. Respectful. Curious. Some are still processing what they felt through the bond. But they believe now. They felt the barrier. They know it was real.
 
-Victor stays at the head of the table. Josiah is speaking with Perseus quietly. David is talking to Marco's family — Marco's mother, his younger sister. They are grieving. But they are also grateful. Victor did not put him down. He held his hand. He refused to let the Hollow King win. They saw that. They felt it.
+Victor stays at the head of the table. Josiah is speaking with Perseus quietly. David is talking to Marco's family, Marco's mother, his younger sister. They are grieving. But they are also grateful. Victor did not put him down. He held his hand. He refused to let the Hollow King win. They saw that. They felt it.
 
 Amelia sits in the corner. Her head is on the table. Her eyes are closed. Bone-tired. Exhausted. She has been pushing through for two days. The barrier took something out of her. The nausea is getting worse. She can feel it building in her chest. A tightness. A queasiness that makes her want to be sick.
 
@@ -178,7 +178,7 @@ And it will come soon.
 
 VICTOR
 
-He walks her back to their quarters. Her hand is in his. Her fingers are trembling. Bone-tired. He can feel it through the bond — a grinding exhaustion that runs deep in her bones. The barrier took something out of her. He knows it. He felt it when she channeled. He felt her strength. He also felt the cost.
+He walks her back to their quarters. Her hand is in his. Her fingers are trembling. Bone-tired. He can feel it through the bond, a grinding exhaustion that runs deep in her bones. The barrier took something out of her. He knows it. He felt it when she channeled. He felt her strength. He also felt the cost.
 
 She stumbles. He catches her. Holds her steady.
 

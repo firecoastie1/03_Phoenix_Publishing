@@ -4,7 +4,7 @@ VICTOR
 
 Morning reports. That's what they are. Routine. Bureaucracy disguised as survival. Victor sits at the head of the war room table, fingers steepled, eyes on Perseus's maps. David paces. Emila refills tea he doesn't drink. Josiah watches from the corner with eyes closed. Amelia is in the healing tent. He can feel her through the bond: her warmth, the soft weight of her body, the memory of his cock inside her still echoing in her flesh. It keeps him grounded. Keeps him focused. He focuses on the reports. Northern border: clear. Supply runs: on schedule. New arrivals: three minor wolf families seeking shelter. He signs the papers. Nods. Says the right words. All the while, the bond hums in his chest, connecting him to her, to the pack, to the weight of a thousand decisions pressing down on his shoulders.
 
-The meeting moves on. Supply inventories. Patrol rotations. Medical updates from Emila about the healing tent. Herb stocks are low, but she's managing with what she has. He nods. Signs. Repeats. But his attention is divided. Half of him is here, in the war room. The other half is with her — in the healing tent, mixing herbs, feeling the bond like a thread pulling at his chest.
+The meeting moves on. Supply inventories. Patrol rotations. Medical updates from Emila about the healing tent. Herb stocks are low, but she's managing with what she has. He nods. Signs. Repeats. But his attention is divided. Half of him is here, in the war room. The other half is with her, in the healing tent, mixing herbs, feeling the bond like a thread pulling at his chest.
 
 Then the door opens.
 
@@ -86,7 +86,7 @@ David watches from the window of the war room. Ten warriors. His jaw aches from 
 
 *It is not enough.* The thought repeats in his head like a drumbeat. *It is never enough.*
 
-He remembers the first war. The one before Victor became Alpha. His father — Torren Beaumont — led a full battalion against a rival pack that had grown too bold. They won. They buried three hundred dead in mass graves. He remembers the weight of the silence afterward. The way the pack had felt hollow, even in victory.
+He remembers the first war. The one before Victor became Alpha. His father, Torren Beaumont, led a full battalion against a rival pack that had grown too bold. They won. They buried three hundred dead in mass graves. He remembers the weight of the silence afterward. The way the pack had felt hollow, even in victory.
 
 Torren died two years later. Hollow King venom in his chest. Not in battle. In betrayal. His own lieutenant, selling them out for a promise of power. David has never forgiven himself for not seeing it coming.
 
@@ -104,7 +104,7 @@ He looks at her. "It is what I *want* to do. Not what I am allowed to do."
 
 She pours him more tea. "You want to protect your brother. That is not weakness. That is love. Josiah was right."
 
-David sits. Stares at the table. Thinks about the bond. Thinks about Amelia. The human woman who walked into a pack of shifters and made Victor *better*. He is still fighting that — not the bond itself, but what it represents. What it makes Victor. Softer. Open. Transparent. The pack can *feel* him now. They can feel his happiness, his fear, his doubt. And the pack is a strange, suspicious thing. They do not trust what they can feel. They trust what they can predict.
+David sits. Stares at the table. Thinks about the bond. Thinks about Amelia. The human woman who walked into a pack of shifters and made Victor *better*. He is still fighting that, not the bond itself, but what it represents. What it makes Victor. Softer. Open. Transparent. The pack can *feel* him now. They can feel his happiness, his fear, his doubt. And the pack is a strange, suspicious thing. They do not trust what they can feel. They trust what they can predict.
 
 Victor has become unpredictable.
 
@@ -136,7 +136,7 @@ It is the right call. Perseus knows this. He also knows that messages do not sto
 
 But Victor is the Alpha. The call is his. Perseus's job is to execute it. And to prepare for what happens next.
 
-He turns toward the armory. Picks up a sword. Tests its weight. The battle is coming. It always is. The question is not *if* — it is *when* and *how hard*.
+He turns toward the armory. Picks up a sword. Tests its weight. The battle is coming. It always is. The question is not *if*, it is *when* and *how hard*.
 
 He goes to the training yard. Begins to move.
 

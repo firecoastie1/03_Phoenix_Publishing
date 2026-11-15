@@ -4,7 +4,7 @@ AMELIA
 
 The ward alarm sounds before she hears the beast.
 
-A deep, resonant boom — like thunder rolling through the compound walls. It shakes the floor beneath her feet. It vibrates in her chest. The healing tent goes into chaos. Omegas scramble. Warriors shout. Pack members rush toward the walls.
+A deep, resonant boom, like thunder rolling through the compound walls. It shakes the floor beneath her feet. It vibrates in her chest. The healing tent goes into chaos. Omegas scramble. Warriors shout. Pack members rush toward the walls.
 
 Amelia does not move at first. She grips the edge of the table. Her knuckles are white. Her breath comes in short, sharp bursts. She feels the ward break through the bond. A pressure. A darkness. Something vast pressing against the perimeter of the pack's protection, tearing through it like paper.
 
@@ -12,7 +12,7 @@ The Hollow King.
 
 Not a scout. Not a beast sent to test. This is the assault that should not have come yet. The coalition is not ready. There is only one bond holding the perimeter. The Hollow King is attacking before the web is complete. And they are barely holding.
 
-Her heart hammers against her ribs. The bond to Victor is wide open and steady — warm, certain, his presence anchored at the center of it. He is on the wall. She can feel him through it. Solid. Certain. An Alpha leading his pack into war.
+Her heart hammers against her ribs. The bond to Victor is wide open and steady, warm, certain, his presence anchored at the center of it. He is on the wall. She can feel him through it. Solid. Certain. An Alpha leading his pack into war.
 
 She lets that anchor her. Then she moves.
 
@@ -24,7 +24,7 @@ Emila looks up. Her eyes are wide. But she does not falter. "I need you to hold 
 
 "I've got her."
 
-Amelia crosses the tent. Grabs the warrior's good shoulder. Pins her down. The warrior — a young omega named Tessa — thrashes against her. Her eyes are wide. Terror. Pain. The wound is bad. The flesh around it is gray. Dark. The Hollow King's touch is on it. It will spread. It will hollow.
+Amelia crosses the tent. Grabs the warrior's good shoulder. Pins her down. The warrior, a young omega named Tessa, thrashes against her. Her eyes are wide. Terror. Pain. The wound is bad. The flesh around it is gray. Dark. The Hollow King's touch is on it. It will spread. It will hollow.
 
 "Amelia," Tessa says. Her voice is trembling. "I can feel it. It's — it's getting in."
 
@@ -46,7 +46,7 @@ Amelia lets out a breath she did not know she was holding. Her hands are shaking
 
 VICTOR
 
-He is on the wall. Blood on his face. Not his. A warrior from the third patrol — torn across the chest, ribs cracked, breathing slow. Victor has his arm around him. Holding him up. The bond is humming wide open between him and Amelia. He can feel her in the healing tent. He can feel her fear. He can feel her resolve. And he knows: she is holding the center. He is holding the perimeter.
+He is on the wall. Blood on his face. Not his. A warrior from the third patrol, torn across the chest, ribs cracked, breathing slow. Victor has his arm around him. Holding him up. The bond is humming wide open between him and Amelia. He can feel her in the healing tent. He can feel her fear. He can feel her resolve. And he knows: she is holding the center. He is holding the perimeter.
 
 The beast is at the eastern wall. A massive shape of shadow and teeth and wings. It hits the wards like a storm. The wards hold for a heartbeat. Then they crack. Dark light ripples across the stone. Then they break.
 
@@ -54,11 +54,11 @@ The beast pours through the gap.
 
 The pack breaks.
 
-Warriors shift, charge, fight. The beast tears through them like a scythe through wheat. Warriors fall — not dead, hollowed. The Hollow King's touch leaves them empty. Breathing. Alive. Gone.
+Warriors shift, charge, fight. The beast tears through them like a scythe through wheat. Warriors fall, not dead, hollowed. The Hollow King's touch leaves them empty. Breathing. Alive. Gone.
 
 The perimeter buckles. The outer ward collapses. The pack is pushed back, step by step, into the compound. They are losing. They are losing and they know it.
 
-David is the first to meet it. He shifts — a silver wolf, massive, fast, a blur of motion. He rakes the beast's flank with his claws. The beast screams. A sound like metal grinding on bone. It turns. Swipes. David rolls. Barely. The swipe tears a gash in his shoulder. Blood sprays. He does not stop. He charges again.
+David is the first to meet it. He shifts, a silver wolf, massive, fast, a blur of motion. He rakes the beast's flank with his claws. The beast screams. A sound like metal grinding on bone. It turns. Swipes. David rolls. Barely. The swipe tears a gash in his shoulder. Blood sprays. He does not stop. He charges again.
 
 Perseus is on the command wall. His voice cuts across the compound. Sharp. Measured. "North flank! Reinforce the north! David, fall back to the center! Josiah, hold the inner wards! Emila, I need status on the wounded!"
 
@@ -86,7 +86,7 @@ It is wounded. But not dead. Not yet.
 
 It turns. Flies. Disappears into the dark.
 
-Victor stays on the wall. Breathing hard. Blood dripping from his jaws. The beast is gone. The pack is holding. Barely. They lost warriors. They lost territory. They lost men to the hollowing. The compound is damaged. The wards are broken. They survived because they had no choice. Because Victor is the Alpha and he does not yield. Because the pack behind him does not stop fighting. Because one bond is not enough — it never has been enough — but it is the only thing holding the perimeter together.
+Victor stays on the wall. Breathing hard. Blood dripping from his jaws. The beast is gone. The pack is holding. Barely. They lost warriors. They lost territory. They lost men to the hollowing. The compound is damaged. The wards are broken. They survived because they had no choice. Because Victor is the Alpha and he does not yield. Because the pack behind him does not stop fighting. Because one bond is not enough, it never has been enough, but it is the only thing holding the perimeter together.
 
 ---
 
@@ -94,7 +94,7 @@ AMELIA
 
 The wounded keep coming.
 
-A warrior with a torn thigh. A warrior with a broken arm. A warrior whose left eye is clouded gray. The hollowing has started. She can feel it — a coldness in the air, a weight pressing against her skin. The beast's touch lingers. It is everywhere.
+A warrior with a torn thigh. A warrior with a broken arm. A warrior whose left eye is clouded gray. The hollowing has started. She can feel it, a coldness in the air, a weight pressing against her skin. The beast's touch lingers. It is everywhere.
 
 Emila is overwhelmed. There are too many. Not enough hands. Not enough supplies. She looks up at Amelia. Her eyes are red. Exhausted. Desperate.
 
@@ -136,7 +136,7 @@ The battle rages on.
 
 The beast was only the vanguard. Now the Hollow King is sending everything he has. Beasts. Shadows. Hollowed warriors. The compound is under siege. The pack is holding, but barely. The wards are broken. The outer walls are breached. The inner wards flicker. Josiah is holding them. Barely.
 
-Victor is everywhere. On the wall. On the ground. Fighting. Defending. Protecting. He shifts between forms — wolf, half-shift, human. He fights with every tool he has. Claws. Teeth. Fists. A sword. He does not stop. Cannot stop. Not while there are still warriors falling.
+Victor is everywhere. On the wall. On the ground. Fighting. Defending. Protecting. He shifts between forms, wolf, half-shift, human. He fights with every tool he has. Claws. Teeth. Fists. A sword. He does not stop. Cannot stop. Not while there are still warriors falling.
 
 David is back. Bloodied. Broken. Fighting anyway. His shoulder is torn. His ribs are cracked. But he is fighting. Like a man possessed. Perseus is directing the defense. Calling orders. Coordinating. His voice is steady even as the compound burns around him.
 
@@ -280,7 +280,7 @@ He carries her. Out of the tent. Through the compound. Past the wounded. Past th
 
 The door is already unlatched. He kicks it open. Carries her to the bed. Drops onto it. Pulls her down with him.
 
-She is on top of him immediately. Knees on either side of his hips. Her body straddling his. Her hands push at his chest — warm, bloody, real. She pulls his bloodied tunic over his head. Throws it aside. Her own shirt follows. Boots kicked away. Underwear pushed down. She stands barely-dressed in front of him. Blood on her arms. Chest heaving. His gaze sweeps over her — hungry, reverent, wrecked. His hands find her breasts. Cupping them. Thumbs pressing over her nipples. She arches into the touch. A small, broken sound escapes her.
+She is on top of him immediately. Knees on either side of his hips. Her body straddling his. Her hands push at his chest, warm, bloody, real. She pulls his bloodied tunic over his head. Throws it aside. Her own shirt follows. Boots kicked away. Underwear pushed down. She stands barely-dressed in front of him. Blood on her arms. Chest heaving. His gaze sweeps over her, hungry, reverent, wrecked. His hands find her breasts. Cupping them. Thumbs pressing over her nipples. She arches into the touch. A small, broken sound escapes her.
 
 She pulls him up by the shoulders. Straddles him. Her back against his chest. His cock is hard. Thick. Pressing into the mattress behind her. She reaches back. Wraps her fingers around it. Feels it throb against her palm. She lines up. The head presses against her entrance. She is wet. Dripping wet. He groans. Pushes. One inch. Two. The stretch is intense. Burning. She gasps. Her nails dig into his shoulders. He pauses. Lets her adjust.
 

@@ -83,7 +83,7 @@ He had been waiting at the clearing for an hour before she arrived. He hadn't pl
 
 The bond had pulled him here, not forcefully, not like the first time, but gently, like a current carrying him toward something he knew he needed but wasn't sure he was ready for. The full moon was rising. The clearing was where they'd stood the first time. The place where Aurela had spoken. The place where everything changed.
 
-When Amelia appeared at the edge of the clearing, he felt it — the thread tightening, the warmth spreading through his chest, the pull that he had stopped fighting a long time ago. He turned. He couldn't not turn. She was there. And the bond between them hummed like a live wire.
+When Amelia appeared at the edge of the clearing, he felt it, the thread tightening, the warmth spreading through his chest, the pull that he had stopped fighting a long time ago. He turned. He couldn't not turn. She was there. And the bond between them hummed like a live wire.
 
 He didn't know how to start. He never knew how to start with her. She saw too much. She asked the right questions. And she didn't flinch when he gave her the wrong answers.
 
@@ -97,7 +97,7 @@ He reached for her, his hands still trembling. She didn't notice. Or if she did,
 
 But it wasn't enough. It was never enough.
 
-She didn't let go. She held on, and he watched her watching him, and he saw something in her eyes that made something primal and desperate rise inside him — hunger, need, a want so sharp it was almost physical.
+She didn't let go. She held on, and he watched her watching him, and he saw something in her eyes that made something primal and desperate rise inside him, hunger, need, a want so sharp it was almost physical.
 
 He looked down at their hands. He didn't want to lose this, not the contact, not the warmth, not the certainty that for this one moment, he wasn't alone. He squeezed her hands. Not tightly. Not desperately. Just firmly. Steadily.
 

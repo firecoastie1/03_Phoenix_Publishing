@@ -146,11 +146,11 @@ Amelia absorbed this. "And the bond?"
 
 Emila was quiet for a moment. She was choosing her words carefully. Amelia noticed.
 
-The Mate Bond is... it is a connection created by the Moon Goddess. It bonds two people together. Not just emotionally. Physically. Magically. But there is a process to it. Two stages. The first stage is when the bond forms. The Moon Goddess reaches across the distance and links two people. You feel that — hands tingling, chest aching, a pull in a specific direction. You feel the other person's presence as a hum, like static in the air. It is real. It is undeniable. But it is incomplete.
+The Mate Bond is... it is a connection created by the Moon Goddess. It bonds two people together. Not just emotionally. Physically. Magically. But there is a process to it. Two stages. The first stage is when the bond forms. The Moon Goddess reaches across the distance and links two people. You feel that, hands tingling, chest aching, a pull in a specific direction. You feel the other person's presence as a hum, like static in the air. It is real. It is undeniable. But it is incomplete.
 
 She set the cup down and met Amelia's eyes.
 
-The second stage is when the bond is completed. There is a ceremony — the Moonlit Rite. The shifters and their mates perform it under a full moon. When the ceremony happens, the bond opens fully. You feel everything. Not just the pull. Not just the tingling. You feel what your mate feels. You feel their emotions, their body, their presence across any distance. The bond becomes a bridge. Before the ceremony, it is a thread. After the ceremony, it is an open channel.
+The second stage is when the bond is completed. There is a ceremony, the Moonlit Rite. The shifters and their mates perform it under a full moon. When the ceremony happens, the bond opens fully. You feel everything. Not just the pull. Not just the tingling. You feel what your mate feels. You feel their emotions, their body, their presence across any distance. The bond becomes a bridge. Before the ceremony, it is a thread. After the ceremony, it is an open channel.
 
 She paused. Right now, yours is in the first stage. It is strong, but it is not yet complete. And when you complete it, you will feel something entirely different from what you feel now.
 
@@ -270,7 +270,7 @@ He touched her hand.
 
 The bond responded.
 
-Warmth flooded through him — not the full opening, not yet, but a spark along a thread that had not been lit. Her warmth. Her presence. Solid and real. He could feel her pulse against his fingers, steady and warm, and it grounded him in a way nothing had in a long time. He let her feel him back: the steady rhythm of his heartbeat, the tension in his muscles slowly uncoiling. Nothing deeper than that. Not until the ceremony. But this was enough. This was real. And for the first time, they understood what the bond was for: not magic, not destiny, but this — the ability to reach across the distance and know, for one moment, that the other person was there.
+Warmth flooded through him, not the full opening, not yet, but a spark along a thread that had not been lit. Her warmth. Her presence. Solid and real. He could feel her pulse against his fingers, steady and warm, and it grounded him in a way nothing had in a long time. He let her feel him back: the steady rhythm of his heartbeat, the tension in his muscles slowly uncoiling. Nothing deeper than that. Not until the ceremony. But this was enough. This was real. And for the first time, they understood what the bond was for: not magic, not destiny, but this, the ability to reach across the distance and know, for one moment, that the other person was there.
 
 He did not let go.
 

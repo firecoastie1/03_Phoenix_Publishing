@@ -4,7 +4,7 @@ VICTOR
 
 The sun hasn't fully set when he finds her.
 
-He doesn't knock. He doesn't announce himself. He just stands in the doorway of the healing tent and watches her kneel at the low table, her back to him, her dark hair pulled up with a twig she found in the garden. Her fingers move over dried leaves — crushing, measuring, folding into small linen packets. She smells like sage and warm earth. The bond hums between them, steady and low, like a second heartbeat.
+He doesn't knock. He doesn't announce himself. He just stands in the doorway of the healing tent and watches her kneel at the low table, her back to him, her dark hair pulled up with a twig she found in the garden. Her fingers move over dried leaves, crushing, measuring, folding into small linen packets. She smells like sage and warm earth. The bond hums between them, steady and low, like a second heartbeat.
 
 She looks up. Of course she knows he's there. She always knows.
 
@@ -12,15 +12,15 @@ She looks up. Of course she knows he's there. She always knows.
 
 He shakes his head. "I needed to."
 
-He steps inside. The tent is small, warm, crowded with the smell of dried herbs and crushed roots and something sweet he can't name. The bond hums louder when he gets closer. It always does. But tonight it feels different — different from last time, different from the last time before that. It feels like it's waiting.
+He steps inside. The tent is small, warm, crowded with the smell of dried herbs and crushed roots and something sweet he can't name. The bond hums louder when he gets closer. It always does. But tonight it feels different, different from last time, different from the last time before that. It feels like it's waiting.
 
 She stands. She doesn't move away. The space between them closes without either of them stepping. Just enough to feel the heat of each other, the warmth of the bond, the way his breath catches when she doesn't pull back.
 
-He looks at her. Really looks at her. Her hands are dusted with dried petals. Her wrists are bare — no gloves, no sleeves. The crescent moon tattoo catches the lantern light. Her eyes are brown, warm, steady. She's not afraid. That's the thing about her — she's never afraid of him.
+He looks at her. Really looks at her. Her hands are dusted with dried petals. Her wrists are bare, no gloves, no sleeves. The crescent moon tattoo catches the lantern light. Her eyes are brown, warm, steady. She's not afraid. That's the thing about her, she's never afraid of him.
 
 "I told them," he says. "I told the pack. I told them I would complete the bond. That I would perform the ceremony. Under the full moon."
 
-She nods. Her face is careful. Not cold. Not distant. Just careful — like she's waiting for him to say something that might change everything.
+She nods. Her face is careful. Not cold. Not distant. Just careful, like she's waiting for him to say something that might change everything.
 
 "And?" she asks.
 
@@ -44,9 +44,9 @@ His chest tightens. Just a little. But he doesn't look away.
 
 "Not fully," she continues. "But I want to. And I trust you. And that is enough."
 
-He exhales. Slow. The relief that follows is physical — like a weight he didn't know he was carrying has finally shifted.
+He exhales. Slow. The relief that follows is physical, like a weight he didn't know he was carrying has finally shifted.
 
-He takes her hand. His fingers close around hers. Warm. Solid. The bond flares — not a detonation this time, not a scream. A hum. A vibration. A thread pulling taut and holding.
+He takes her hand. His fingers close around hers. Warm. Solid. The bond flares, not a detonation this time, not a scream. A hum. A vibration. A thread pulling taut and holding.
 
 "Tonight," he says. "The clearing. Just us and Josiah."
 
@@ -56,9 +56,9 @@ She squeezes his hand. "Then let's go."
 
 They walk through the tree line as the moon rises.
 
-She doesn't wear shoes. The ground is cool, damp, the path soft with fallen leaves. She doesn't mind. The bond pulls her forward, not just toward him — toward the clearing. Toward the place where Aurela spoke. Toward the place where everything changes.
+She doesn't wear shoes. The ground is cool, damp, the path soft with fallen leaves. She doesn't mind. The bond pulls her forward, not just toward him, toward the clearing. Toward the place where Aurela spoke. Toward the place where everything changes.
 
-He walks beside her. Close enough that their shoulders brush. Close enough that he can feel the heat of her skin through her sleeve. Close enough that the bond hums loud enough to hear — or maybe that's just his imagination.
+He walks beside her. Close enough that their shoulders brush. Close enough that he can feel the heat of her skin through her sleeve. Close enough that the bond hums loud enough to hear, or maybe that's just his imagination.
 
 The clearing opens ahead of them.
 
@@ -76,21 +76,21 @@ Josiah nods. He stands. His knees crack. He's ancient. He's been doing this long
 
 "Stand where you can see each other," he says. "The moon has to see you."
 
-They step into the center. They face each other. Their hands are already joined. The bond surges — a wave of warmth that rolls through her chest, up her arms, into her throat. She gasps. He feels it. He gasps too.
+They step into the center. They face each other. Their hands are already joined. The bond surges, a wave of warmth that rolls through her chest, up her arms, into her throat. She gasps. He feels it. He gasps too.
 
-Josiah raises his staff. The air shifts. The forest goes quiet — no crickets, no wind, no animals. Just them and the moon and the old man standing between them.
+Josiah raises his staff. The air shifts. The forest goes quiet, no crickets, no wind, no animals. Just them and the moon and the old man standing between them.
 
 Josiah closes his eyes. His voice is low. Barely a whisper. But it carries the weight of centuries.
 
-*"Before the Moon rose, before the Veil fell, before the shifter types forgot how to see each other — there was a time when connection was not a choice. There was a time when two souls could reach across the dark and find each other. Aurela made that possible. She built the thread. The Mate Bond. The bridge between isolation and union. The weapon against the Hollow King. The coalition of the heart."*
+*"Before the Moon rose, before the Veil fell, before the shifter types forgot how to see each other, there was a time when connection was not a choice. There was a time when two souls could reach across the dark and find each other. Aurela made that possible. She built the thread. The Mate Bond. The bridge between isolation and union. The weapon against the Hollow King. The coalition of the heart."*
 
 He pauses. His voice drops deeper. Into the old words. The real words.
 
-*"Now I call upon the old words. Now I ask the Moon Goddess to watch. Now I ask the full moon to bear witness. Now I ask two souls to stand in the light and choose each other — not by fate alone, but by will. Not by force, but by vow."*
+*"Now I call upon the old words. Now I ask the Moon Goddess to watch. Now I ask the full moon to bear witness. Now I ask two souls to stand in the light and choose each other, not by fate alone, but by will. Not by force, but by vow."*
 
 His voice rises. Just slightly. Carries.
 
-*"What is the thread — make it a bridge. What is the bond — make it open. What is the fear — make it courage. What is the doubt — make it certainty. Let the bond complete. Let the channel open. Let the bridge hold."*
+*"What is the thread, make it a bridge. What is the bond, make it open. What is the fear, make it courage. What is the doubt, make it certainty. Let the bond complete. Let the channel open. Let the bridge hold."*
 
 He opens his eyes. Looks at Victor. Looks at Amelia.
 
@@ -104,7 +104,7 @@ Victor's jaw works. His eyes are dark. The bond is pulling so hard it makes his 
 
 "I choose you. Today. I will try. I will hold this. I will not run."
 
-Josiah nods. He raises his staff one last time. The moonlight floods the clearing — bright. Blinding. It falls on them like water. Like a promise. Like something ancient settling into place.
+Josiah nods. He raises his staff one last time. The moonlight floods the clearing, bright. Blinding. It falls on them like water. Like a promise. Like something ancient settling into place.
 
 The ceremony completes.
 
@@ -114,7 +114,7 @@ AMELIA
 
 The bond detonates.
 
-Not a hum. Not a pull. A detonation — full-body, full-soul, full-thought. The thread becomes a bridge. The channel opens. Everything crashes into her at once — Victor, his fear, his love, his determination, his devotion, his loneliness, his hope — a wave so violent she gasps and clings to him, her fingers digging into his arms, her body pressing against his, her heart hammering against her ribs.
+Not a hum. Not a pull. A detonation, full-body, full-soul, full-thought. The thread becomes a bridge. The channel opens. Everything crashes into her at once, Victor, his fear, his love, his determination, his devotion, his loneliness, his hope, a wave so violent she gasps and clings to him, her fingers digging into his arms, her body pressing against his, her heart hammering against her ribs.
 
 He gasps too. He feels her, all of her, her courage, her curiosity, her desire, her certainty, the way she thinks about him when he's not in the room, the way she touches her moon tattoo when she's lonely, the way she can't sleep without him near. His eyes go dark. His grip tightens. He pulls her against him, forehead resting against hers, and for a long moment they just breathe together. The bond between them is so strong it makes them both dizzy.
 
@@ -126,11 +126,11 @@ It's overwhelming. It's beautiful. It's terrifying.
 
 He kisses her.
 
-The first kiss that comes after the ceremony is different. Before, it would have been a kiss under the weight of magic and pull and inevitability. Now it is a kiss between two people who can feel everything about each other — and choose it anyway. The bond hums between them, alive and open.
+The first kiss that comes after the ceremony is different. Before, it would have been a kiss under the weight of magic and pull and inevitability. Now it is a kiss between two people who can feel everything about each other, and choose it anyway. The bond hums between them, alive and open.
 
-His lips move against hers. Slow at first. Then not. He tastes salt and tea and something uniquely her — warm, solid, entirely her. She makes a small sound in her throat. He feels it. His hands move from her arms to her waist, pulling her closer, his mouth pressing harder, deeper, hungrier, and she opens for him because she wants to because she chooses to because the bond between them is so strong it makes everything else feel like noise.
+His lips move against hers. Slow at first. Then not. He tastes salt and tea and something uniquely her, warm, solid, entirely her. She makes a small sound in her throat. He feels it. His hands move from her arms to her waist, pulling her closer, his mouth pressing harder, deeper, hungrier, and she opens for him because she wants to because she chooses to because the bond between them is so strong it makes everything else feel like noise.
 
-Her hands find his hair. Thick. Dark. Warm under her fingers. He groans, low, rough, entirely honest, and pulls her flush against him, his body pressing into hers, her body yielding, their mouths moving together, their breathing becoming one. The bond pulses with every touch, every shift, every moment of contact — amplifying everything, connecting everything, binding them together in a way that has nothing to do with magic and everything to do with choice.
+Her hands find his hair. Thick. Dark. Warm under her fingers. He groans, low, rough, entirely honest, and pulls her flush against him, his body pressing into hers, her body yielding, their mouths moving together, their breathing becoming one. The bond pulses with every touch, every shift, every moment of contact, amplifying everything, connecting everything, binding them together in a way that has nothing to do with magic and everything to do with choice.
 
 He breaks the kiss. Just barely. Just enough to breathe. His forehead rests against hers. His hands stay on her waist. His eyes are dark. His breathing is ragged.
 
@@ -146,7 +146,7 @@ They stop at the door to his father's quarters. Three years. That's how long he'
 
 He opens the lock.
 
-The room is exactly as she imagined — small, quiet, full of the ghost of a man she never met. An empty bed. An empty desk. An empty Alpha.
+The room is exactly as she imagined, small, quiet, full of the ghost of a man she never met. An empty bed. An empty desk. An empty Alpha.
 
 He takes her hand. They make their way inside, past the empty desk, past the untouched shelves. The space is quiet. Still. Waiting.
 

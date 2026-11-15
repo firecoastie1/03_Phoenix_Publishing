@@ -38,11 +38,11 @@ Victor walked away. He didn't rest.
 
 He found himself in the healing tent before he remembered deciding to go there.
 
-Emila was bent over a table, grinding herbs between a mortar and a pestle, her sleeves rolled to the elbows, her dark hair pulled up in a messy twist that kept escaping. She looked up when he entered, and her expression shifted in the space of a heartbeat — warm, then concerned, then something steadier.
+Emila was bent over a table, grinding herbs between a mortar and a pestle, her sleeves rolled to the elbows, her dark hair pulled up in a messy twist that kept escaping. She looked up when he entered, and her expression shifted in the space of a heartbeat, warm, then concerned, then something steadier.
 
 She set the pestle down. "Victor."
 
-He stood in the doorway for a long moment. The tent smelled like dried lavender and crushed willow bark and the sharp metallic tang of something he couldn't name — something that reminded him, briefly and unfairly, of the forest, of the clearing, of the way the air had felt when Aurela's voice hit.
+He stood in the doorway for a long moment. The tent smelled like dried lavender and crushed willow bark and the sharp metallic tang of something he couldn't name, something that reminded him, briefly and unfairly, of the forest, of the clearing, of the way the air had felt when Aurela's voice hit.
 
 "I didn't mean to bother you."
 
@@ -60,7 +60,7 @@ She held his gaze. "Victor."
 
 "You're not." Her voice was gentle, but it didn't soften at the edges. "You're sitting here telling me you're fine, which means you're not. I know the difference."
 
-Victor looked down at his hands. They were resting on his knees, palms open, fingers slightly spread. They were still trembling. Not visibly — not enough for anyone else to see — but enough for him. The same tremor he'd felt in the clearing when the bond hit him like a physical thing, like a hook in his chest, like his body was trying to tear itself apart to get to her. To her. The word felt like a stone in his mouth. He didn't understand it. He couldn't understand it. He had spent his entire life learning to control everything in his power, and this — this pull, this certainty, this *thing* — was the one thing he could not control, and that terrified him more than anything the Hollow King could throw at them.
+Victor looked down at his hands. They were resting on his knees, palms open, fingers slightly spread. They were still trembling. Not visibly, not enough for anyone else to see, but enough for him. The same tremor he'd felt in the clearing when the bond hit him like a physical thing, like a hook in his chest, like his body was trying to tear itself apart to get to her. To her. The word felt like a stone in his mouth. He didn't understand it. He couldn't understand it. He had spent his entire life learning to control everything in his power, and this, this pull, this certainty, this *thing*, was the one thing he could not control, and that terrified him more than anything the Hollow King could throw at them.
 
 "It's the bond," he said finally. The word felt foreign. The way Josiah had spoken it had made it sound like a law of nature, like gravity or seasons or the rising sun. But saying it out loud, now, made it feel like something heavy and alive, sitting between them in the tent. "It changed."
 
@@ -118,7 +118,7 @@ She stood up, walked around the table, and placed her hand on his shoulder. Not 
 
 "You're carrying it alone," she said quietly. "You don't have to."
 
-Then she walked away, and he sat there in the healing tent, alone again, listening to the quiet breathing of the pack members resting in the cots, feeling the bond hum through his chest like a second heartbeat, and wondering — for the first time in his life — whether being strong meant holding everything inside or letting someone else see the cracks.
+Then she walked away, and he sat there in the healing tent, alone again, listening to the quiet breathing of the pack members resting in the cots, feeling the bond hum through his chest like a second heartbeat, and wondering, for the first time in his life, whether being strong meant holding everything inside or letting someone else see the cracks.
 
 ---
 
@@ -200,7 +200,7 @@ It wasn't a choice. It wasn't a decision. It was a certainty, like gravity, like
 
 The window was quiet. The kitchen was quiet. The night was quiet.
 
-And between her and him, the bond hummed — alive, undeniable.
+And between her and him, the bond hummed, alive, undeniable.
 
 It was enough. Not for forever. Not for all the years ahead. But for this moment. For this kitchen. For this night. For this quiet.
 

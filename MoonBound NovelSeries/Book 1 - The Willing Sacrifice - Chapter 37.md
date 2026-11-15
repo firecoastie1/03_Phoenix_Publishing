@@ -118,11 +118,11 @@ Now his mind is gone.
 
 "I am here," Victor says softly. "I am here, Marco. I am not letting go."
 
-He reaches out. Places his hand on Marco's shoulder. Feels the skin. Warm. Alive. But the bond — the bond is empty. No pulse. No presence. Just a shell. A vessel. The Hollow King took it all.
+He reaches out. Places his hand on Marco's shoulder. Feels the skin. Warm. Alive. But the bond, the bond is empty. No pulse. No presence. Just a shell. A vessel. The Hollow King took it all.
 
 But Victor refuses. He refuses to put him down. Refuses to let the Hollow King win again.
 
-He holds Marco's hand. Holds on. Pushes through the emptiness with everything he has — through the Mate Bond, the bridge he built with Amelia, the connection that held the barrier.
+He holds Marco's hand. Holds on. Pushes through the emptiness with everything he has, through the Mate Bond, the bridge he built with Amelia, the connection that held the barrier.
 
 It should not work. Marco is hollowed. The Hollow King emptied his mind. But the Mate Bond is stronger. It bridges. It connects. It reaches.
 
@@ -132,7 +132,7 @@ The bond hums between them. Warm. Steady. Alive.
 
 He closes his eyes. Breathes. Holds Marco's hand.
 
-And knows — absolutely knows — that this is just the beginning. The Hollow King will return. He will keep coming. And every time, Victor will have to hold harder. Hold longer. Until he cannot hold anymore.
+And knows, absolutely knows, that this is just the beginning. The Hollow King will return. He will keep coming. And every time, Victor will have to hold harder. Hold longer. Until he cannot hold anymore.
 
 But he will hold.
 

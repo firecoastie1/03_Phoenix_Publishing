@@ -148,7 +148,7 @@ Not from the Veil. From him.
 
 Victor.
 
-The pull was strong. Not the desperate, pulling sensation from before. More like a steady hum, a current running under her skin, saying *he is there, he is safe, he is thinking about you*. She could not read his thoughts, the thread was not open, but she could feel the shape of his presence — familiar, grounding, like a note held in the air.
+The pull was strong. Not the desperate, pulling sensation from before. More like a steady hum, a current running under her skin, saying *he is there, he is safe, he is thinking about you*. She could not read his thoughts, the thread was not open, but she could feel the shape of his presence, familiar, grounding, like a note held in the air.
 
 She stood there at the edge of the territory, hands tingling, Veil pressing against her skin, stars rearranging and then not, and she thought: *This is what the world looks like now. This is what I live in.*
 

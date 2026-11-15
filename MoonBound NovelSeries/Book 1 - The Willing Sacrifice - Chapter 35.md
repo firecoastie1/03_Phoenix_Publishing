@@ -16,7 +16,7 @@ She turns expecting him to be closer than he is but sees him shirtless, looking 
 
 "Nothing. I just wanted to check on you." He steps into the room. Bare feet on the floorboards. Silent. He sits on the edge of the bed. Close.
 
-She looks at him closely, not believing there isn't anything wrong. Even though he looks calm, his breathing isn't off. There is just something about the way he is standing — shoulders tight, jaw clenched. The way he holds himself still when he's trying not to move.
+She looks at him closely, not believing there isn't anything wrong. Even though he looks calm, his breathing isn't off. There is just something about the way he is standing, shoulders tight, jaw clenched. The way he holds himself still when he's trying not to move.
 
 "You're tense," she says.
 
@@ -28,7 +28,7 @@ He smiles. Small. Real. "I know."
 
 "I'm learning."
 
-He reaches for her hand. His fingers are warm. Dry. His pulse is steady against her skin. She feels it through the bond — a low, steady hum. His presence. Warm. Certain. Alive.
+He reaches for her hand. His fingers are warm. Dry. His pulse is steady against her skin. She feels it through the bond, a low, steady hum. His presence. Warm. Certain. Alive.
 
 She squeezes his hand. "I'm fine, Victor."
 
@@ -36,7 +36,7 @@ She squeezes his hand. "I'm fine, Victor."
 
 He sits down beside her on the bed. Close enough that his shoulder brushes hers. The feel of her shirt on his bare skin, she can feel the heat radiating through her body.
 
-She leans into him. Rests her head on his shoulder. His arm comes around her. Heavy. Secure. She closes her eyes. Breathes in his scent — smoke and leather and something wild. And something wild that just does something to her. She knows that scent is only for her.
+She leans into him. Rests her head on his shoulder. His arm comes around her. Heavy. Secure. She closes her eyes. Breathes in his scent, smoke and leather and something wild. And something wild that just does something to her. She knows that scent is only for her.
 
 His hand moves on her back. Slow circles. Rhythmic. Soothing.
 
@@ -76,13 +76,13 @@ He does not answer. He just watches her. Empty eyes. Empty face. Empty.
 
 "You were never bonded," he says. "You never will be. The bond is a lie. The Moon Goddess is a lie. Everything is a lie. You are a human woman standing in the dark, and no one is coming for you."
 
-The darkness closes in. Trees around her. Vines. Roots. Closing in. She can't move. Can't breathe. Can't think. The voice — Victor's voice, but not Victor — continues to speak. Soft. Steady. Relentless.
+The darkness closes in. Trees around her. Vines. Roots. Closing in. She can't move. Can't breathe. Can't think. The voice, Victor's voice, but not Victor, continues to speak. Soft. Steady. Relentless.
 
 "You are alone. You have always been alone. You will die alone. And no one will even know you were gone."
 
 The darkness presses against her. The vines tighten. Her chest burns. Her lungs burn. Her vision blurs.
 
-And then — a warmth. A pulse. A presence.
+And then, a warmth. A pulse. A presence.
 
 The bond.
 
@@ -140,7 +140,7 @@ He closes his eyes. Nods. Once. When he opens them, the vulnerability is gone. R
 
 "Tonight, I stay awake," he says. "You sleep. If he comes back, I'll be ready."
 
-She doesn't argue. She knows he's right. She can't sleep — not after that. Not with the Hollow King's whispers still echoing in her ears. So she stays awake. Beside him. Her head on his chest. His arm around her. The bond between them.
+She doesn't argue. She knows he's right. She can't sleep, not after that. Not with the Hollow King's whispers still echoing in her ears. So she stays awake. Beside him. Her head on his chest. His arm around her. The bond between them.
 
 She drifts back off to sleep.
 
@@ -158,9 +158,9 @@ He knows he cannot keep this up all night. But he doesn't see any other way. But
 
 His hand moves on Amelia's back. Slow circles. Rhythmic. Soothing. The same rhythm he used before. He doesn't notice it. It's automatic. Protective. He has been touching her like this since the first time he held her. Before the bond. Before the ceremony. Before any of it.
 
-His mind replays the attack. The Hollow King's voice. The way it sounded like him. The way Amelia's fear hit the bond — sharp, sudden, like a knife. He felt it. Felt it in his own chest. Felt it like his heart had been ripped out.
+His mind replays the attack. The Hollow King's voice. The way it sounded like him. The way Amelia's fear hit the bond, sharp, sudden, like a knife. He felt it. Felt it in his own chest. Felt it like his heart had been ripped out.
 
-He has never felt anything like that. The bond was supposed to be a bridge. A connection. He thought he understood what it meant to feel her — her warmth, her certainty, her stubborn refusal to be frightened. But he did not understand. Not really. Not until the Hollow King reached for her and he realized that her pain was his pain. Her fear was his fear. Her loss was his loss. The bond is not a bridge. It is a wound. An open, bleeding wound that connects two people forever.
+He has never felt anything like that. The bond was supposed to be a bridge. A connection. He thought he understood what it meant to feel her, her warmth, her certainty, her stubborn refusal to be frightened. But he did not understand. Not really. Not until the Hollow King reached for her and he realized that her pain was his pain. Her fear was his fear. Her loss was his loss. The bond is not a bridge. It is a wound. An open, bleeding wound that connects two people forever.
 
 And the Hollow King knows it.
 
@@ -168,7 +168,7 @@ He shifts slightly. Amelia stirs. Mumbles. Her hand finds his chest. Fingers pre
 
 He looks at her. In the dim light from the hallway, she looks peaceful. Her lips are slightly parted. Her dark hair is spread across the pillow. Her face is soft. No tension. No fear. Nothing but sleep.
 
-She was so terrified. He can still feel it through the bond — her fear, sharp and sudden. But beneath that fear is something else. Something he didn't expect. Not panic. Not flight. Something stronger.
+She was so terrified. He can still feel it through the bond, her fear, sharp and sudden. But beneath that fear is something else. Something he didn't expect. Not panic. Not flight. Something stronger.
 
 She fought back.
 
@@ -178,9 +178,9 @@ He is so proud of her.
 
 The thought surprises him. He doesn't get proud. He gets angry. He gets frustrated. He gets worried. He does not get proud. But he is proud. Of her. Of Amelia.
 
-He drops his forehead against hers. Closes his eyes. Breathes her in. Her scent is mixed with sweat and fear and sleep — but underneath it all, the same soft, warm smell she always has. Something like honey and herbs and morning light.
+He drops his forehead against hers. Closes his eyes. Breathes her in. Her scent is mixed with sweat and fear and sleep, but underneath it all, the same soft, warm smell she always has. Something like honey and herbs and morning light.
 
-The bond hums. He can still feel the Hollow King on the other side — faint, like a cold draft in a warm room. He braces against it. Holds the door shut. Waits for dawn.
+The bond hums. He can still feel the Hollow King on the other side, faint, like a cold draft in a warm room. He braces against it. Holds the door shut. Waits for dawn.
 
 ---
 
@@ -194,7 +194,7 @@ She is still alone. But she does not feel it.
 
 The Hollow King's whispers have faded. The darkness is gone. The forest is gone. There is only the room. The bed. Victor's arm. The bond.
 
-But something has changed. She can feel the Hollow King on the other side of the bond — faint, cold, watching. Like a shadow at the edge of a room. He is still there. Still trying. Still looking for a crack.
+But something has changed. She can feel the Hollow King on the other side of the bond, faint, cold, watching. Like a shadow at the edge of a room. He is still there. Still trying. Still looking for a crack.
 
 She presses her face into Victor's chest. Breathing him in. She presses harder against him. Her hand finds his. Fingers lacing with his.
 
@@ -232,7 +232,7 @@ He nods.
 
 "I need to talk to Josiah," he says. "About the bond. About how to protect it."
 
-Josiah knows the old ways. The old magic. He has done this before — protected bonds from the Hollow King's attacks. He has to have a strategy.
+Josiah knows the old ways. The old magic. He has done this before, protected bonds from the Hollow King's attacks. He has to have a strategy.
 
 Amelia nods. "I'll come with you."
 
@@ -252,21 +252,21 @@ AMELIA
 
 She does not sleep.
 
-The Hollow King is still on the other side of the bond. She can feel him — cold, distant, watching. He is patient. He will come back. He will keep coming back.
+The Hollow King is still on the other side of the bond. She can feel him, cold, distant, watching. He is patient. He will come back. He will keep coming back.
 
-She lies in bed. Staring at the ceiling. Thinking about the bond. Thinking about what just happened. The Hollow King didn't attack Victor's body. He didn't attack the compound. He attacked the connection between her and Victor — the bond. The bridge. The thing that connects them.
+She lies in bed. Staring at the ceiling. Thinking about the bond. Thinking about what just happened. The Hollow King didn't attack Victor's body. He didn't attack the compound. He attacked the connection between her and Victor, the bond. The bridge. The thing that connects them.
 
 And he got close. Too close. Amelia felt his whispers in her mind. Felt the darkness closing in. Felt the vines. The cold. The emptiness. She would have broken. If not for the bond. If not for Victor reaching back.
 
-The bond is not just a bridge. It's a weapon. A barrier. A shield. And the Hollow King knows it. That's why he's attacking it. That's why he's targeting the connection between Victor and Amelia. Because the bond is the pack's strongest defense — and the Hollow King cannot breach it from the outside.
+The bond is not just a bridge. It's a weapon. A barrier. A shield. And the Hollow King knows it. That's why he's attacking it. That's why he's targeting the connection between Victor and Amelia. Because the bond is the pack's strongest defense, and the Hollow King cannot breach it from the outside.
 
-So he tries from the inside. He tries to find cracks. Weak spots. Doubts. Fears. And he found one — Amelia's fear of being alone. The oldest, deepest fear she has carried since she was a child. The feeling of being invisible. Of being unloved. Of being a mistake.
+So he tries from the inside. He tries to find cracks. Weak spots. Doubts. Fears. And he found one, Amelia's fear of being alone. The oldest, deepest fear she has carried since she was a child. The feeling of being invisible. Of being unloved. Of being a mistake.
 
 He used that fear against her. And it almost worked.
 
 But it didn't. Not because the bond was strong. Not because Victor was strong. Because she was strong. She grabbed the bond and held on. With everything she had. No training. No preparation. Just instinct. Just love. Just refusal.
 
-She sits up. Pulls her knees to her chest. Looks at her hands. They are still tingling. She thinks about what Josiah told her about the bond. About how it grows stronger with intimacy. About how it's not just magic — it's trust. It's choice. It's two people deciding, every day, to stay together.
+She sits up. Pulls her knees to her chest. Looks at her hands. They are still tingling. She thinks about what Josiah told her about the bond. About how it grows stronger with intimacy. About how it's not just magic, it's trust. It's choice. It's two people deciding, every day, to stay together.
 
 The Hollow King can attack her fear. He can attack her doubt. He can attack her loneliness. But he cannot attack her choice. She chose Victor. Not because the bond made her. Not because the Moon Goddess willed it. Because she chose him. And that choice is hers. Nobody can take it from her. Not the Hollow King. Not Aurela. Not anyone.
 
@@ -304,7 +304,7 @@ Victor looks at Perseus. Perseus is watching him. Arms crossed. Face unreadable.
 
 Victor looks down. At his hands. At the table. At the grain in the wood.
 
-Josiah is right. He has been sleeping with Amelia. Since the ceremony. Since the bond opened. He has treated it as separate from the magic — as personal. Private. Intimate in a way that has nothing to do with the Hollow King or the pack or the bond itself. He has kept his feelings for her locked up, even though the bond was wide open between them.
+Josiah is right. He has been sleeping with Amelia. Since the ceremony. Since the bond opened. He has treated it as separate from the magic, as personal. Private. Intimate in a way that has nothing to do with the Hollow King or the pack or the bond itself. He has kept his feelings for her locked up, even though the bond was wide open between them.
 
 "Then do it," Josiah says. "Be honest. With her. With yourself. With the bond. Use every connection you have. Every touch. Every kiss. Every moment of vulnerability. That is how you build a wall the Hollow King cannot breach."
 
@@ -358,11 +358,11 @@ He pulls her against him. Her body against his. Her head on his chest. His arm a
 
 
 
-She kisses him — slow at first. Testing. Seeing if he'll dissolve into mist. He kisses her back with a tenderness that cracks something open in her chest. Hands sliding under her shirt, warm palms against bare skin. She tugs her shirt over her head. Throws it aside. He watches her. Eyes soft. Not hungry. Not desperate. Just... her. She reaches for the buttons of his jeans. Slow. Deliberate. Each button. Each movement. Grounding them both.
+She kisses him, slow at first. Testing. Seeing if he'll dissolve into mist. He kisses her back with a tenderness that cracks something open in her chest. Hands sliding under her shirt, warm palms against bare skin. She tugs her shirt over her head. Throws it aside. He watches her. Eyes soft. Not hungry. Not desperate. Just... her. She reaches for the buttons of his jeans. Slow. Deliberate. Each button. Each movement. Grounding them both.
 
 He sits back against the headboard. Pulls her into his lap. Facing him. Legs wrapping around his waist. Her bare back to his chest. His hands find hers. Press them flat against his chest — over his heart. Feeling the beat. Steady. Real. "Feel that?" he whispers. "That's you. It's always you."
 
-She turns in his grip. Faces him. Straddles him. Knees bracketing the bed on either side of his hips. Her hands slide up his chest. Over his shoulders. Down his arms. Then back up — fingers tangling in his hair. Tilting his face to hers. The kiss is deep. Slow. Searching. She's looking for the hollow king's ghost in his mouth. She finds only him. Only Victor. Warm. Present. Alive.
+She turns in his grip. Faces him. Straddles him. Knees bracketing the bed on either side of his hips. Her hands slide up his chest. Over his shoulders. Down his arms. Then back up, fingers tangling in his hair. Tilting his face to hers. The kiss is deep. Slow. Searching. She's looking for the hollow king's ghost in his mouth. She finds only him. Only Victor. Warm. Present. Alive.
 
 She reaches between them. Finds him already hard. Already waiting. Wraps her fingers around the base. Strokes once. Slow. Deliberate. His jaw tightens. Eyes close. "Amelia—", he starts. She doesn't let him finish. Lines him up at her entrance. Slowly lowers herself. One inch. Two. The stretch is immediate. Burning. She stops. Bows her head. Rests her forehead against his. Breathing. Letting him in. Letting herself in.
 
@@ -404,7 +404,7 @@ Morning stretches into afternoon. They lie in bed. Not sleeping. Not talking. Ju
 
 The Hollow King's whispers have faded. The cold is gone. The bond is whole. No scars. No cracks. Just warmth. Just certainty. Just them.
 
-She feels the change. She did not expect it. The intimacy strengthened the bond — Josiah was right. Physical intimacy. Emotional intimacy. Honest. Vulnerable. Unafraid. The bond is stronger now. Wider. Deeper. It feels like the space between them has expanded — not physically, but emotionally. Spiritually. The connection is no longer a thread. It is a river. Flowing. Alive. Unstoppable.
+She feels the change. She did not expect it. The intimacy strengthened the bond, Josiah was right. Physical intimacy. Emotional intimacy. Honest. Vulnerable. Unafraid. The bond is stronger now. Wider. Deeper. It feels like the space between them has expanded, not physically, but emotionally. Spiritually. The connection is no longer a thread. It is a river. Flowing. Alive. Unstoppable.
 
 And the Hollow King cannot get through it. Not like before. Not with a whisper. Not with fear. Not with doubt. The bond is too strong. Too real. Too rooted in something he cannot touch.
 

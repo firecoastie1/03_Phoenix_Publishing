@@ -2,7 +2,7 @@
 
 Amelia woke before the sun.
 
-She slept on her pack — not the most comfortable bed she'd ever had, but it would do. The fire had burned down to embers and the forest was still dark, and the sky still black, the air still cold. She sat up, rubbed her face, and looked at her hands.
+She slept on her pack, not the most comfortable bed she'd ever had, but it would do. The fire had burned down to embers and the forest was still dark, and the sky still black, the air still cold. She sat up, rubbed her face, and looked at her hands.
 
 They were tingling.
 
@@ -14,7 +14,7 @@ She got up. She brushed off her clothes. She packed the fire and put out the emb
 
 The forest was different at dawn.
 
-The mist had risen from the ground, low and gray, curling between the trees like smoke. The air was damp, cool, smelling of pine and damp earth and the faint metallic tang of something she couldn't name. The birds had started singing — a few of them, cautious, testing the morning like it was something fragile.
+The mist had risen from the ground, low and gray, curling between the trees like smoke. The air was damp, cool, smelling of pine and damp earth and the faint metallic tang of something she couldn't name. The birds had started singing, a few of them, cautious, testing the morning like it was something fragile.
 
 She followed the sound of water.
 
@@ -26,7 +26,7 @@ And then she heard the snapping of a branch.
 
 She looked up.
 
-He was standing at the edge of the clearing — tall, dark-haired, gray eyes the color of storm clouds, his body built like someone who had spent his entire life training for a war he didn't know was coming. He was wearing a dark jacket, jeans, and boots. He looked like someone who belonged in the forest.
+He was standing at the edge of the clearing, tall, dark-haired, gray eyes the color of storm clouds, his body built like someone who had spent his entire life training for a war he didn't know was coming. He was wearing a dark jacket, jeans, and boots. He looked like someone who belonged in the forest.
 
 And he was looking at her.
 
@@ -44,7 +44,7 @@ He was looking at her. She was looking at him. And neither of them knew what to 
 
 It was the longest three seconds of her life.
 
-She could feel it — the pull, the tension, the invisible thread stretching between them, pulling her toward him with a force she had never experienced in her entire existence. It was physical, undeniable, and terrifying. It was like standing at the edge of a cliff and feeling the wind lift your feet off the ground.
+She could feel it, the pull, the tension, the invisible thread stretching between them, pulling her toward him with a force she had never experienced in her entire existence. It was physical, undeniable, and terrifying. It was like standing at the edge of a cliff and feeling the wind lift your feet off the ground.
 
 He took a step toward her.
 
@@ -58,9 +58,9 @@ She looked at him. She was measured. She was not cowering. She was not running. 
 
 "Neither are you," she said.
 
-He blinked. He didn't expect that. He hadn't expected anyone to talk back to him like that. He was used to fear. He was used to respect. He was used to obedience. He was not used to being told that he wasn't supposed to be somewhere — not by a woman who looked like she had stepped out of the forest itself, with her hair messy and her clothes dirty and her eyes wide and curious and not afraid at all.
+He blinked. He didn't expect that. He hadn't expected anyone to talk back to him like that. He was used to fear. He was used to respect. He was used to obedience. He was not used to being told that he wasn't supposed to be somewhere, not by a woman who looked like she had stepped out of the forest itself, with her hair messy and her clothes dirty and her eyes wide and curious and not afraid at all.
 
-He noticed all of that. He noticed the way her hands were shaking. He noticed the way her chest was rising and falling too fast. He noticed the way she looked at him — not with fear, not with awe, but with something that might have been recognition.
+He noticed all of that. He noticed the way her hands were shaking. He noticed the way her chest was rising and falling too fast. He noticed the way she looked at him, not with fear, not with awe, but with something that might have been recognition.
 
 He noticed that she was the most beautiful woman he had ever seen.
 
@@ -74,7 +74,7 @@ But he noticed.
 
 "I live near here," she said. "I'm a healer. I was gathering water."
 
-He looked at her. He really looked at her. He was a man who had spent his entire life reading people — their intentions, their fears, their tells. And he read something in her that unsettled him.
+He looked at her. He really looked at her. He was a man who had spent his entire life reading people, their intentions, their fears, their tells. And he read something in her that unsettled him.
 
 She was not afraid.
 
@@ -106,6 +106,6 @@ He didn't know if she had forgotten her name, or if she was just deciding whethe
 
 "Victor," he said.
 
-Her name was Amelia. His name was Victor. And for a moment — just a moment, just a heartbeat — the world felt complete.
+Her name was Amelia. His name was Victor. And for a moment, just a moment, just a heartbeat, the world felt complete.
 
 Then the mist thickened. The forest went quiet. And neither of them knew what to do next.

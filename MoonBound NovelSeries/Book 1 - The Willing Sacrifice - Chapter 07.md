@@ -12,7 +12,7 @@ She'd been thinking about it for days. Thinking, wondering, trying to put her fi
 
 But her hands were still tingling.
 
-Every morning when she woke up, her fingers felt like they'd fallen asleep, and every night when she lay down, her chest ached with that same pulling sensation — steady, insistent, pointing north, toward the tree line, toward the boundary of the land she knew and the land she didn't.
+Every morning when she woke up, her fingers felt like they'd fallen asleep, and every night when she lay down, her chest ached with that same pulling sensation, steady, insistent, pointing north, toward the tree line, toward the boundary of the land she knew and the land she didn't.
 
 She told herself it was curiosity.
 
@@ -20,7 +20,7 @@ It wasn't curiosity.
 
 ---
 
-The rumors had started after the missing hunter. That much she knew — or at least, that much she'd heard people talking about at the market, at the general store, at the post office. People were nervous. They talked in hushed tones when they thought she wasn't listening. They talked louder when they thought she was.
+The rumors had started after the missing hunter. That much she knew, or at least, that much she'd heard people talking about at the market, at the general store, at the post office. People were nervous. They talked in hushed tones when they thought she wasn't listening. They talked louder when they thought she was.
 
 One woman said there had been lights in the woods, strange, flickering lights that moved in patterns that didn't make sense. Another said a farmer's dog had gone out one morning and come back the next, trembling, with its fur covered in frost even though the weather had been warm. A third said she'd seen something in the trees, something tall and dark that wasn't there when she looked again.
 
@@ -32,11 +32,11 @@ That night, she sat at her kitchen table and made a decision.
 
 She would go to the boundary. She would investigate. She would find out what was going on.
 
-She wasn't a foolish woman. She knew the risks. She packed supplies — dried food, water, a lantern, matches, a knife, bandages, herbs. She told Luna to stay home. She locked the cottage door and walked north.
+She wasn't a foolish woman. She knew the risks. She packed supplies, dried food, water, a lantern, matches, a knife, bandages, herbs. She told Luna to stay home. She locked the cottage door and walked north.
 
 The tingling in her hands got stronger the further she went.
 
-By the time she reached the edge of the tree line, her fingers were vibrating. She stopped. She looked at them — pale, ordinary, scarred from a thousand small cuts and burns. She didn't understand why they were tingling. She didn't understand why her chest felt tight. She didn't understand why the pull in her bones felt like something reaching for her, like a hand stretching across the dark, trying to find something it couldn't name.
+By the time she reached the edge of the tree line, her fingers were vibrating. She stopped. She looked at them, pale, ordinary, scarred from a thousand small cuts and burns. She didn't understand why they were tingling. She didn't understand why her chest felt tight. She didn't understand why the pull in her bones felt like something reaching for her, like a hand stretching across the dark, trying to find something it couldn't name.
 
 She told herself it was the cold.
 
@@ -48,11 +48,11 @@ She walked into the forest.
 
 The deeper she went, the stranger it got.
 
-The air felt thick — not humid, not heavy with rain, but dense, like standing too close to something that was humming. A low vibration that she could feel in her skin but not hear with her ears. It was the kind of feeling that made the back of her neck prickle, that made her want to run, but also, made her want to stay.
+The air felt thick, not humid, not heavy with rain, but dense, like standing too close to something that was humming. A low vibration that she could feel in her skin but not hear with her ears. It was the kind of feeling that made the back of her neck prickle, that made her want to run, but also, made her want to stay.
 
 She couldn't explain it.
 
-The trees were tall — older than she'd ever seen them. Their trunks wider, their branches higher, and their leaves a darker green than anything should have been. The forest smelled different here, too. Not like pine or damp earth or the sweet decay of fallen leaves. It smelled like something else entirely — something metallic, sharp, almost electric, like the air before a storm.
+The trees were tall, older than she'd ever seen them. Their trunks wider, their branches higher, and their leaves a darker green than anything should have been. The forest smelled different here, too. Not like pine or damp earth or the sweet decay of fallen leaves. It smelled like something else entirely, something metallic, sharp, almost electric, like the air before a storm.
 
 She didn't understand it. But she kept walking.
 
@@ -62,7 +62,7 @@ She turned toward them.
 
 They stopped.
 
-She couldn't see them. Not really. She could see their outlines — dark shapes against the darker background of the forest — but when she tried to focus on them, they vanished. Just like that. Gone. As if they'd never been there at all.
+She couldn't see them. Not really. She could see their outlines, dark shapes against the darker background of the forest, but when she tried to focus on them, they vanished. Just like that. Gone. As if they'd never been there at all.
 
 But she could feel them.
 

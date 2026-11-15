@@ -9,17 +9,17 @@ She had been reading for three hours. Her coffee had gone cold. Luna was asleep 
 
 The pattern was there. She could feel it in the lines she'd highlighted, in the marginalia she'd written in her own cramped handwriting, in the way her pulse was picking up even though her brain kept telling her to stay calm, to be methodical, to not jump to conclusions.
 
-She picked up one of the historical records, a scanned page from an archive she'd reached through a mentor in Edinburgh. The text was in Latin, but she'd translated it weeks ago. It described a Mate Bond forming in the Scottish Highlands, 1642. And three months later, the same village was struck — bodies found hollowed, eyes empty, bodies breathing.
+She picked up one of the historical records, a scanned page from an archive she'd reached through a mentor in Edinburgh. The text was in Latin, but she'd translated it weeks ago. It described a Mate Bond forming in the Scottish Highlands, 1642. And three months later, the same village was struck, bodies found hollowed, eyes empty, bodies breathing.
 
 She picked up another record. Italian Alps, 1789. Mate Bond formed in a small mountain village. Five months later, the same village burned. All inhabitants gone. No bodies. No trace.
 
 Another. The Black Sea coast, 1812. Mate Bond. One year later, a Hollow King strike that wiped out an entire pack, seventeen shifters, all hollowed, all found lined up in a row like dolls in a display case.
 
-She picked up the last record — not from the archives, but from her own life. The Blackwood Pack. Victor. Herself. Formed. Three months ago. And in the last month, Marcus hollowed. The second hunter. The pack scared to death.
+She picked up the last record, not from the archives, but from her own life. The Blackwood Pack. Victor. Herself. Formed. Three months ago. And in the last month, Marcus hollowed. The second hunter. The pack scared to death.
 
 The pattern was clear. Too clear.
 
-Every time a Mate Bond was formed, the Hollow King struck harder. Not the same day. Not the next week. But within months — always within months — he came for them.
+Every time a Mate Bond was formed, the Hollow King struck harder. Not the same day. Not the next week. But within months, always within months, he came for them.
 
 It wasn't coincidence. It couldn't be.
 
@@ -29,7 +29,7 @@ The Hollow King didn't just fear bonds. He hunted them. He used them as a target
 
 Amelia closed her eyes and pressed her palms against her eyes. She had brought this on him. She had recognized the bond, and the bond had recognized her, and now the Hollow King was coming for them because of it.
 
-She thought about Victor standing at the window looking south, feeling the tension of the pack movement. She thought about how he'd carried the weight of the pack for three years since his father died, alone, never burdening anyone with what he was carrying. And now he was carrying this too — the bond, the Hollow King, the responsibility, the fear.
+She thought about Victor standing at the window looking south, feeling the tension of the pack movement. She thought about how he'd carried the weight of the pack for three years since his father died, alone, never burdening anyone with what he was carrying. And now he was carrying this too, the bond, the Hollow King, the responsibility, the fear.
 
 She didn't want him to carry it alone. Not anymore.
 
@@ -45,7 +45,7 @@ She didn't knock. She didn't call out. She just pushed the door open and walked 
 
 David was there. Josiah was there. Emila was there. And when Amelia walked in, all of them went quiet.
 
-He noticed that. He noticed the way their eyes shifted toward her, the way the room seemed to rearrange itself around her presence. It was the same reaction he'd seen a hundred times — his own mood shifting the moment she walked in, the way his guard came down. And the pack noticed it too.
+He noticed that. He noticed the way their eyes shifted toward her, the way the room seemed to rearrange itself around her presence. It was the same reaction he'd seen a hundred times, his own mood shifting the moment she walked in, the way his guard came down. And the pack noticed it too.
 
 "You're late," he said.
 

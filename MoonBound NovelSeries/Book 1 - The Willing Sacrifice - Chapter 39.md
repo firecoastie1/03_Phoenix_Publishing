@@ -54,7 +54,7 @@ He rolls to his side. Pulls her against him. Her head on his chest. Arm around h
 
 And then she feels it.
 
-The bond. Not warmth. Not a hum. Something else. Something deeper. She has spent her whole life with walls around herself. Keeping people out. Protecting herself. And now — now he is handing her the keys.
+The bond. Not warmth. Not a hum. Something else. Something deeper. She has spent her whole life with walls around herself. Keeping people out. Protecting herself. And now, now he is handing her the keys.
 
 She feels it in his mind. Not words. Not images. Feelings. Fear for the pack. Doubt about himself. The weight of being Alpha. The fear of failing everyone he loves. The exhaustion of carrying it all alone. And beneath all of it, love. For her. For the pack. For a future he does not know if he deserves.
 
@@ -64,7 +64,7 @@ She lets him feel her back. Without thinking. Without planning. She lets him see
 
 He stops breathing. His arms tighten around her. His grip is desperate. Clinging. She can feel him breaking open, the walls coming down piece by piece, letting her in, letting her see the man behind the Alpha.
 
-When the wave passes, he is still holding her. Still breathing. But his grip is different. Looser. Relaxed. He is no longer fighting himself. He is no longer fighting her. He is just — here. With her. Present.
+When the wave passes, he is still holding her. Still breathing. But his grip is different. Looser. Relaxed. He is no longer fighting himself. He is no longer fighting her. He is just, here. With her. Present.
 
 "I love you," he says again. And this time, it is not a statement. It is a vow.
 

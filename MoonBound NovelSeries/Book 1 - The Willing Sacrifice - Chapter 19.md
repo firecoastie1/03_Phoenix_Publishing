@@ -67,7 +67,7 @@ Victor looked up at him.
 
 "The bond," Perseus said quietly. "Is it affecting your judgment?"
 
-Victor didn't answer. He couldn't. Not because he didn't have an answer, but because he didn't have one at all. He felt distracted. He felt — he felt everything. The bond had opened something in him, made him aware of things he'd spent years burying under duty and control and the weight of being Alpha. And now he couldn't close them back up.
+Victor didn't answer. He couldn't. Not because he didn't have an answer, but because he didn't have one at all. He felt distracted. He felt, he felt everything. The bond had opened something in him, made him aware of things he'd spent years burying under duty and control and the weight of being Alpha. And now he couldn't close them back up.
 
 Perseus watched him for a long moment. Then he nodded once and turned away.
 
@@ -79,7 +79,7 @@ When the war room emptied, Victor stood alone at the table, staring at the map a
 
 AMELIA
 
-Amelia's guest room was quiet in the morning. This was not the heavy, oppressive quiet that had settled over her for weeks — the quiet of an empty house, an empty bed, an empty life. This was different. This was the quiet of a woman who had slept through the night for the first time in months and woken up without that familiar ache in her chest.
+Amelia's guest room was quiet in the morning. This was not the heavy, oppressive quiet that had settled over her for weeks, the quiet of an empty house, an empty bed, an empty life. This was different. This was the quiet of a woman who had slept through the night for the first time in months and woken up without that familiar ache in her chest.
 
 She made coffee. She sat at her kitchen table with her research notes. She looked at the shelf where she'd placed her grandmother's packet, the one that smelled like fresh pancakes and bacon and her grandmother's kitchen. She had put it there the night before, after the kitchen scene, after he'd offered her a room and looked at her mouth and not looked away.
 
@@ -101,7 +101,7 @@ But she did. That was the problem. She did want it.
 
 VICTOR
 
-Perseus left at noon. Victor walked him to the gate and watched him ride south, his cloak flapping in the wind, his horse moving fast across the flat ground. The bond hummed — Amelia's presence, steady and distant. He couldn't tell what she was doing. He could only feel the shape of her attention, like a pressure in his chest, warm and quiet.
+Perseus left at noon. Victor walked him to the gate and watched him ride south, his cloak flapping in the wind, his horse moving fast across the flat ground. The bond hummed, Amelia's presence, steady and distant. He couldn't tell what she was doing. He could only feel the shape of her attention, like a pressure in his chest, warm and quiet.
 
 He turned away and walked back to the war room.
 

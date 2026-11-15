@@ -10,7 +10,7 @@ But she has been somewhere else.
 
 A dark place. A cold place. A presence. A weight pressing against her mind like a hand on her chest. He was in her dreams. Not a normal dream. An invasion. He found her sleeping. He found her alone. And he reached in.
 
-She does not know how he did it. The bond should protect her. It should shield her. But the Hollow King does not attack through the bond — he attacks through the dark. He finds the cracks in the world where the Veil is thin, and he slips through.
+She does not know how he did it. The bond should protect her. It should shield her. But the Hollow King does not attack through the bond, he attacks through the dark. He finds the cracks in the world where the Veil is thin, and he slips through.
 
 She has never felt more exposed.
 
@@ -38,7 +38,7 @@ He does not move. Does not speak. He stays asleep in body, but awake in the bond
 
 The Hollow King.
 
-He feels it through the bond the same way she does — not a shape, not a face, not a voice. A pressure. A coldness. A presence that wants to take. To consume. To hollow.
+He feels it through the bond the same way she does, not a shape, not a face, not a voice. A pressure. A coldness. A presence that wants to take. To consume. To hollow.
 
 His jaw tightens. His hand moves. Slow, instinctive. No thought behind it. His arm slides around her waist. Pulls her closer. Her back to his chest. Her head against his shoulder. His chin rests on her hair. His breathing evens out on purpose. Slow. Deep. Calm. A shield built on instinct.
 

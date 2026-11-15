@@ -10,7 +10,7 @@ The pull didn't go away.
 
 ---
 
-The morning was cool and damp with the kind of fog that comes off the ground before the sun has a chance to burn it off. Amelia walked through the tall grass toward the edge of the woods, a canvas satchel slung over her shoulder, her boots sinking slightly into the damp earth. The boundary was a line she'd crossed a hundred times without thinking about it. It was just a fence post and a rusted wire marking the edge of her garden and the beginning of someone else's land. But sometimes — usually at dusk, when the light was low and the shadows were long — she could feel the difference. The forest didn't just start at the boundary. Something changed there, something subtle, like the air itself getting heavier.
+The morning was cool and damp with the kind of fog that comes off the ground before the sun has a chance to burn it off. Amelia walked through the tall grass toward the edge of the woods, a canvas satchel slung over her shoulder, her boots sinking slightly into the damp earth. The boundary was a line she'd crossed a hundred times without thinking about it. It was just a fence post and a rusted wire marking the edge of her garden and the beginning of someone else's land. But sometimes, usually at dusk, when the light was low and the shadows were long, she could feel the difference. The forest didn't just start at the boundary. Something changed there, something subtle, like the air itself getting heavier.
 
 Today was no different.
 
@@ -24,9 +24,9 @@ It was sharp, sudden, and stronger than before — a hook sinking into her chest
 
 "Damn it," she muttered.
 
-It wasn't the same as last night. Last night had been a whisper. This was a shout. Her hands — her hands started tingling, the same electric sensation crawling up from her fingertips and spreading through her arms like ice water. She stared at them. They were trembling. Not from cold. From something else. Something she couldn't name.
+It wasn't the same as last night. Last night had been a whisper. This was a shout. Her hands, her hands started tingling, the same electric sensation crawling up from her fingertips and spreading through her arms like ice water. She stared at them. They were trembling. Not from cold. From something else. Something she couldn't name.
 
-She looked around. The fog was rolling in from the north. The forest was gray and shapeless beyond the fence line. She couldn't see anything through the mist. But she could feel it — the pull, the tension, the invisible thread stretching from her chest toward the trees.
+She looked around. The fog was rolling in from the north. The forest was gray and shapeless beyond the fence line. She couldn't see anything through the mist. But she could feel it, the pull, the tension, the invisible thread stretching from her chest toward the trees.
 
 She told herself it was nothing.
 
@@ -42,11 +42,11 @@ She stood there for a long moment, looking at the fog, listening to the silence,
 
 Miles away, on the northern edge of Blackwood territory, Victor reined his horse to a stop.
 
-He'd been riding the patrol route for an hour — a slow, methodical sweep along the boundary markers, checking for disturbance, for scent marks, for anything out of place. The morning was clear, the sky pale and bright, the air crisp with the first hint of autumn. It should have been a normal patrol. It should have been nothing.
+He'd been riding the patrol route for an hour, a slow, methodical sweep along the boundary markers, checking for disturbance, for scent marks, for anything out of place. The morning was clear, the sky pale and bright, the air crisp with the first hint of autumn. It should have been a normal patrol. It should have been nothing.
 
 Then it hit him.
 
-A sharp, sudden sensation — not pain, not fear, but something between the two. His chest tightened. His hands gripped the reins so hard his knuckles went white. His heart hammered against his ribs like something was trying to get out.
+A sharp, sudden sensation, not pain, not fear, but something between the two. His chest tightened. His hands gripped the reins so hard his knuckles went white. His heart hammered against his ribs like something was trying to get out.
 
 He looked around. Tree line to tree line, nothing but the road, the forest, and the pale morning sky. No movement. No scent. No threat.
 
@@ -54,7 +54,7 @@ But the feeling didn't fade. It didn't weaken. It stayed, steady and unwavering,
 
 He'd felt things like this before. The pull of the pack, the weight of the Alpha bond, the call of the full moon. But this was different. This was personal. This was his body reacting to something his mind couldn't explain, like standing too close to a speaker and feeling the bass in your chest without hearing the music.
 
-He exhaled slowly. He told himself it was the same feeling from last night — the moon pull, the pressure, the sense that something was shifting. He told himself a lot of things. Most of them were lies.
+He exhaled slowly. He told himself it was the same feeling from last night, the moon pull, the pressure, the sense that something was shifting. He told himself a lot of things. Most of them were lies.
 
 His hands were tingling.
 
@@ -68,11 +68,11 @@ All he knew was that something had shifted in the world, and he couldn't explain
 
 ---
 
-Amelia packed up her herbs and started walking back. She didn't know why. She just knew she couldn't stand still anymore. Every time she stopped, the pull got stronger. Every time she moved, it stayed the same — present, insistent, unrelenting. She told herself she was going home. She told herself she was going to make lunch. In her mind, she knew both of those things were not true.
+Amelia packed up her herbs and started walking back. She didn't know why. She just knew she couldn't stand still anymore. Every time she stopped, the pull got stronger. Every time she moved, it stayed the same, present, insistent, unrelenting. She told herself she was going home. She told herself she was going to make lunch. In her mind, she knew both of those things were not true.
 
 The tingling in her hands didn't stop. It followed her back through the tall grass, through the fog, past the rusted fence post and into the yard of her cottage. She sat on the porch steps, her satchel on the ground beside her, and stared at her palms. They were still shaking. Still tingling. Still alive with something she couldn't name.
 
-She looked up at the tree line. The fog had thinned. She could see the edge of the woods now — the dark trunks, the branches reaching up, the way the light hit the leaves and made them glow green-gold against the blue sky. The forest looked normal. It didn't look like anything that could make her heart beat like this.
+She looked up at the tree line. The fog had thinned. She could see the edge of the woods now, the dark trunks, the branches reaching up, the way the light hit the leaves and made them glow green-gold against the blue sky. The forest looked normal. It didn't look like anything that could make her heart beat like this.
 
 But it did. Whatever it was, it was coming from there. From the boundary. From the edge of the world.
 

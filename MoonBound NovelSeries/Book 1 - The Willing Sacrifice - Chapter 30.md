@@ -12,11 +12,11 @@ Victor straightens. His voice is rough. Shaking. "It is happening. The Hollow Ki
 
 Perseus is already moving. "The scouts?"
 
-Victor closes his eyes. The bond sears through him — a pain so sharp it makes his teeth ache. He feels something die. Not his scouts — something else. Something ancient and terrible. And beneath that, another pain — his scouts — screaming.
+Victor closes his eyes. The bond sears through him — a pain so sharp it makes his teeth ache. He feels something die. Not his scouts — something else. Something ancient and terrible. And beneath that, another pain — his scouts, screaming.
 
 "Get the pack," Victor says. His voice is iron. "I am going to the border."
 
-He does not wait for armor. He does not wait for a full war party. He shifts right there in the war room — bone cracking, flesh tearing, a massive wolf bursting through the door and into the corridor. David follows, already shifting. Perseus is behind them. The pack is behind them. A pack of wolves running south into the gathering dark.
+He does not wait for armor. He does not wait for a full war party. He shifts right there in the war room, bone cracking, flesh tearing, a massive wolf bursting through the door and into the corridor. David follows, already shifting. Perseus is behind them. The pack is behind them. A pack of wolves running south into the gathering dark.
 
 ---
 
@@ -26,7 +26,7 @@ She is in the healing tent. Crushing herbs. Mixing salves. The mortar feels heav
 
 Then it hits.
 
-It is not like anything she has felt before. It is not the gentle hum of the bond, the steady warmth of his presence after a long night together. This is a detonation — a blast of raw, animal power that fills her chest and burns up her throat and makes her knees buckle. She drops the mortar. It lands on the floor. Her hands are shaking. Her breath catches in her throat. She feels it — the shift. Not through words. Not through images. Through flesh. Through bone. Through instinct. She feels his muscles tensing. His spine curving. His cock thickening even as his body warps, the last echo of his human form before the wolf takes over. The wolf — the wolf is not a costume he puts on. It is something wilder. Something older. Something ancient and terrible and magnificent. It explodes through him and she feels it in her own body, like her own muscles are tensing without permission, like her teeth are sharpening, like her lungs are pulling in air that tastes like blood and storm, like her hips are aching with the phantom weight of him.
+It is not like anything she has felt before. It is not the gentle hum of the bond, the steady warmth of his presence after a long night together. This is a detonation, a blast of raw, animal power that fills her chest and burns up her throat and makes her knees buckle. She drops the mortar. It lands on the floor. Her hands are shaking. Her breath catches in her throat. She feels it, the shift. Not through words. Not through images. Through flesh. Through bone. Through instinct. She feels his muscles tensing. His spine curving. His cock thickening even as his body warps, the last echo of his human form before the wolf takes over. The wolf, the wolf is not a costume he puts on. It is something wilder. Something older. Something ancient and terrible and magnificent. It explodes through him and she feels it in her own body, like her own muscles are tensing without permission, like her teeth are sharpening, like her lungs are pulling in air that tastes like blood and storm, like her hips are aching with the phantom weight of him.
 
 She gasps. Catches herself on the counter. The pain is overwhelming. The beauty is overwhelming. It is terrifying. It is the most beautiful thing she has ever felt.
 
@@ -34,7 +34,7 @@ And then it is over.
 
 The healing tent is quiet. Her hands are shaking. The mortar lies on the floor. She can feel him through the bond — not warm. Not calm. Violent. Fierce. Alive.
 
-She stumbles to the door. Steps outside. Looks south. The sky is dark. The air is heavy. She knows — with absolute certainty — that he is fighting.
+She stumbles to the door. Steps outside. Looks south. The sky is dark. The air is heavy. She knows, with absolute certainty, that he is fighting.
 
 ---
 
@@ -42,9 +42,9 @@ VICTOR
 
 The border is chaos.
 
-It is a fog — thick, black, suffocating — rolling across the plain like smoke from a burning world. In the fog, shapes move. Shadows. But they are not shadows. They are things. Hollow things. Beings of smoke and bone and hunger.
+It is a fog — thick, black, suffocating, rolling across the plain like smoke from a burning world. In the fog, shapes move. Shadows. But they are not shadows. They are things. Hollow things. Beings of smoke and bone and hunger.
 
-The scouts are fighting. Ten warriors against something that has no number. Marcus Chen is on his back, sword in hand, slashing at a shape that does not bleed. Tessa Okafor has shifted — a silver wolf, teeth bared, eyes blazing — but she is fighting three of them. Jalen Brooks is bleeding from his shoulder. All of them are screaming.
+The scouts are fighting. Ten warriors against something that has no number. Marcus Chen is on his back, sword in hand, slashing at a shape that does not bleed. Tessa Okafor has shifted, a silver wolf, teeth bared, eyes blazing, but she is fighting three of them. Jalen Brooks is bleeding from his shoulder. All of them are screaming.
 
 Behind them, on the ridge, Gage Hanley and his warriors are watching. Two hundred wolves. Bears. Eyes wide with something that is not fear. Something like awe. And something like hatred.
 
@@ -60,23 +60,23 @@ He turns. Snarls. The beast recoils.
 
 That is when the second wave comes. Three more. Four more. Maybe more. The fog is alive. It is breathing. It is feeding.
 
-And beneath it all, deeper, something vast and dark is watching. Waiting. The Hollow King. He can feel it — a presence like a black sun, drawing power from the beasts, feeding on the hollowed, growing stronger with every life it takes.
+And beneath it all, deeper, something vast and dark is watching. Waiting. The Hollow King. He can feel it, a presence like a black sun, drawing power from the beasts, feeding on the hollowed, growing stronger with every life it takes.
 
 Victor howls. It is not a war cry. It is a challenge. A declaration of war against the darkness itself.
 
 And then the rest of the pack arrives.
 
-It is not just his wolves. It is Hanley's wolves too. Gage sees Victor fighting — truly fighting, with the ferocity of an Alpha who has nothing left to lose — and he does something unexpected. He shifts. His wolf is massive. Scarred. A veteran. He charges into the fog like a battering ram.
+It is not just his wolves. It is Hanley's wolves too. Gage sees Victor fighting, truly fighting, with the ferocity of an Alpha who has nothing left to lose, and he does something unexpected. He shifts. His wolf is massive. Scarred. A veteran. He charges into the fog like a battering ram.
 
 Behind him, two dozen Hanley warriors follow.
 
 The tide turns.
 
-The beasts are driven back. Pushed. The fog thins. The first beast dissolves into smoke. The second. The third. The fourth lunges at a Hanley warrior, but Gage is faster. He throws himself at it, claws raking its back, teeth tearing through shadow. It screams — a sound like metal grinding on bone — and dissolves. The fog breaks. The darkness recedes. The plain is quiet except for the groans of the wounded.
+The beasts are driven back. Pushed. The fog thins. The first beast dissolves into smoke. The second. The third. The fourth lunges at a Hanley warrior, but Gage is faster. He throws himself at it, claws raking its back, teeth tearing through shadow. It screams — a sound like metal grinding on bone, and dissolves. The fog breaks. The darkness recedes. The plain is quiet except for the groans of the wounded.
 
 Victor shifts back. Human. Bleeding. Breathing hard.
 
-His scouts are battered but alive. A Hanley warrior lies on his back, clutching his shoulder, eyes unfocused. He's not dying. He's hollowed — touched by the beast's cold. His body goes still.
+His scouts are battered but alive. A Hanley warrior lies on his back, clutching his shoulder, eyes unfocused. He's not dying. He's hollowed, touched by the beast's cold. His body goes still.
 
 Gage approaches. He is a man again now. Blood on his face. Fury in his eyes. He looks at the hollowed warrior. He looks at Victor. His voice is low. Fierce. But it is not directed at Victor. It is directed at the fog. At the darkness. At the thing that just killed one of his own.
 
@@ -84,7 +84,7 @@ Gage approaches. He is a man again now. Blood on his face. Fury in his eyes. He 
 
 Victor meets his eyes. "He is. And he is not done."
 
-Gage holds his gaze for a long moment. He has heard what the Hollow King is — Victor told his pack, and word carries fast between packs. But hearing about it and fighting it are two different things.
+Gage holds his gaze for a long moment. He has heard what the Hollow King is, Victor told his pack, and word carries fast between packs. But hearing about it and fighting it are two different things.
 
 "Your scouts," Gage says. "They are still alive?"
 
@@ -100,8 +100,8 @@ He looks back at Victor one last time. "If the Hollow King pushes again, I will 
 
 Then he turns and walks away. The Hanley warriors follow. They leave the ridge. The silence settles.
 
-Victor presses his hand to his chest. It is warm. Hot. He feels the bond in his chest — a living weight, and Amelia is there. Not with words. Not with images. Just the steady, warm, unshakable certainty that she is with him. That she always will be.
+Victor presses his hand to his chest. It is warm. Hot. He feels the bond in his chest, a living weight, and Amelia is there. Not with words. Not with images. Just the steady, warm, unshakable certainty that she is with him. That she always will be.
 
-He stands alone on the ridge. The fog is gone. The wounded are being tended. The plain stretches empty in every direction. But the cold remains — in the soil, in the air, in the hollowed warrior's still body. A chill that does not belong in the world of the living.
+He stands alone on the ridge. The fog is gone. The wounded are being tended. The plain stretches empty in every direction. But the cold remains, in the soil, in the air, in the hollowed warrior's still body. A chill that does not belong in the world of the living.
 
 The Hollow King has returned. And for the first time, the enemy is seen.

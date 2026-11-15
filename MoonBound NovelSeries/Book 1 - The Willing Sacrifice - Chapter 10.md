@@ -2,7 +2,7 @@
 
 Josiah told them a story about the Moon Goddess.
 
-He told them about the shifters — how they had split apart centuries ago, how the different types had forgotten each other, how the Veil between them had grown thick with time and fear. He told them about the Hollow King — how it had always been there, how it fed on separation, on isolation, on the space between two creatures who could have been allies but were instead alone.
+He told them about the shifters, how they had split apart centuries ago, how the different types had forgotten each other, how the Veil between them had grown thick with time and fear. He told them about the Hollow King, how it had always been there, how it fed on separation, on isolation, on the space between two creatures who could have been allies but were instead alone.
 
 He told them that the Mate Bond was not romance. It was strategy.
 
@@ -10,7 +10,7 @@ Aurela's strategy.
 
 He settled back against the chair. One hand rested on his staff. The other tapped it once, twice, against the floor — a slow, rhythmic sound, like a heartbeat. His eyes were steady. His voice was calm, the way a river's surface is calm when something is moving very fast underneath it. "It is not love. It is not attraction, though those things can follow. It is recognition. The bond does not care if you have met before. It does not care if you are ready. It does not care if you want it. It recognizes what is already there, and it connects you to it."
 
-Amelia sat on the floor beside the fireplace, her back against the wall, her legs folded in front of her, her palms pressed flat against the wood. She didn't know why she had done it — she had just needed something solid to ground herself, and the floor was the only thing in the room that felt like it wouldn't move. She kept them there for a moment, then moved them to her lap. She was listening. She was taking it all in. They were tingling again — low, steady, humming — and she was trying very hard to focus on Josiah's words instead of the sensation in her own body.
+Amelia sat on the floor beside the fireplace, her back against the wall, her legs folded in front of her, her palms pressed flat against the wood. She didn't know why she had done it, she had just needed something solid to ground herself, and the floor was the only thing in the room that felt like it wouldn't move. She kept them there for a moment, then moved them to her lap. She was listening. She was taking it all in. They were tingling again, low, steady, humming, and she was trying very hard to focus on Josiah's words instead of the sensation in her own body.
 
 Victor stood in front of the fire with his back to her, his hands clenched at his sides, his shoulders tense. He was listening too — she could tell by the way his breathing had changed, by the way his jaw was tight, and by the way the bond between them flared every time Josiah said the word "mate."
 
@@ -42,15 +42,15 @@ Josiah nodded. "Correct. You feel the thread. But not the channel. The ceremony 
 
 Josiah was quiet. "Then you don't know yet."
 
-Amelia's hands trembled. She pressed them together to stop them. The tingling was stronger now — not just in her fingers, not just in her wrists, but in her forearms, creeping up toward her elbows, like something was waking up inside her skin. She didn't say anything. She didn't want to. She was afraid that if she opened her mouth, she would say something she couldn't take back.
+Amelia's hands trembled. She pressed them together to stop them. The tingling was stronger now, not just in her fingers, not just in her wrists, but in her forearms, creeping up toward her elbows, like something was waking up inside her skin. She didn't say anything. She didn't want to. She was afraid that if she opened her mouth, she would say something she couldn't take back.
 
 Victor was still staring at the fire. "Is that why I couldn't look away?" he asked.
 
-Josiah didn't answer right away. He was studying Victor — the way his jaw was tight, the way his shoulders were rigid, the way he was trying to hold himself together with nothing but willpower. Josiah had seen this before. He had seen it many times. And every time, it was the same.
+Josiah didn't answer right away. He was studying Victor, the way his jaw was tight, the way his shoulders were rigid, the way he was trying to hold himself together with nothing but willpower. Josiah had seen this before. He had seen it many times. And every time, it was the same.
 
 "Yes," he said finally. "That is part of it."
 
-Victor closed his eyes. He was thinking about the stream. He was thinking about the tingling in his hands — the same tingling Amelia was feeling right now. He was thinking about the pull in his chest, the way his body had moved toward her without his permission, the way his senses had shifted from threat to something else entirely. Something he didn't have a name for.
+Victor closed his eyes. He was thinking about the stream. He was thinking about the tingling in his hands, the same tingling Amelia was feeling right now. He was thinking about the pull in his chest, the way his body had moved toward her without his permission, the way his senses had shifted from threat to something else entirely. Something he didn't have a name for.
 
 "I don't like this," he said.
 
@@ -68,7 +68,7 @@ Victor shook his head. "I just met her. I know nothing about her. I don't even k
 
 Josiah raised his hand. "You don't have to know her. You don't have to want it. The bond does not require consent, at least not at first. It requires time. The bond declares recognition, not love. The romance — the trust — the partnership — all of that has to be earned. The bond is just the bridge. You have to walk across it."
 
-Amelia was listening. She was trying to understand. She was a healer. She treated wounds, set sprains, set broken bones, and stitched cuts. She understood anatomy and biology and the physical world. She did not understand cosmic strategies or Moon Goddesses or bonds that connected feeling. But she understood the tingling in her hands. She understood the pull in her chest. And she understood the way her heart had jumped when Victor had looked at her at the stream — not from fear, but from recognition.
+Amelia was listening. She was trying to understand. She was a healer. She treated wounds, set sprains, set broken bones, and stitched cuts. She understood anatomy and biology and the physical world. She did not understand cosmic strategies or Moon Goddesses or bonds that connected feeling. But she understood the tingling in her hands. She understood the pull in her chest. And she understood the way her heart had jumped when Victor had looked at her at the stream, not from fear, but from recognition.
 
 She didn't know what else to do with that information. She didn't know how to process it. So she sat on the floor, and she pressed her hands together, and she listened.
 
@@ -76,7 +76,7 @@ She didn't know what else to do with that information. She didn't know how to pr
 
 Josiah's voice was gentle. "Then you can try not to. But you won't be able to stop it from pulling you. The bond doesn't care if you're ready. It will make you feel things you never expected — warmth, protectiveness, an ache to be near her. That's not a flaw. That's the point. The bond is a bridge, but you have to walk across it. And you can't walk across it until the ceremony opens it. But it will pull you there. It always does."
 
-Victor exhaled. He didn't know what he was exhaling. It was frustration. It was fear. It was something else — something he hadn't felt in a very long time, and he couldn't remember what it was called.
+Victor exhaled. He didn't know what he was exhaling. It was frustration. It was fear. It was something else, something he hadn't felt in a very long time, and he couldn't remember what it was called.
 
 "I can't control it," he said.
 
@@ -86,9 +86,9 @@ Victor exhaled. He didn't know what he was exhaling. It was frustration. It was 
 
 Josiah nodded. "I know."
 
-Silence settled in the room. The fire crackled. The compound was alive outside — voices, footsteps, the low murmur of people going about their evening. But inside this room, there was just the three of them, and the warmth, and the bond humming between Victor and Amelia, louder than before, like a struck match waiting to catch.
+Silence settled in the room. The fire crackled. The compound was alive outside, voices, footsteps, the low murmur of people going about their evening. But inside this room, there was just the three of them, and the warmth, and the bond humming between Victor and Amelia, louder than before, like a struck match waiting to catch.
 
-Josiah looked at them both. Then he did something unexpected. He smiled. It was not a wide smile. It was small, patient, and almost sad — like a man who had been waiting a very long time for this exact moment and was glad that it had finally arrived.
+Josiah looked at them both. Then he did something unexpected. He smiled. It was not a wide smile. It was small, patient, and almost sad, like a man who had been waiting a very long time for this exact moment and was glad that it had finally arrived.
 
 "I will leave you two alone," he said. He stood up. He picked up his staff. He walked to the door. He paused with his hand on the handle. "I know that's a lot. I know it's a lot to process. But understand this: whatever is coming from the north — whatever the Hollow King is — it doesn't just target bodies. It targets separation. It feeds on isolation. And the bond — the Mate Bond — is the strongest thing we have against it. Aurela knew this. She has known this for centuries. And now you're part of it."
 
@@ -98,13 +98,13 @@ The room was smaller without Josiah in it. Or maybe it was just more intimate. T
 
 And then Amelia did something she hadn't planned to do. She stood up.
 
-She walked toward him. Not because the bond told her to — although it was pulling her, steady and low, like a current in the water. Not because she was afraid — although her hands were shaking and her chest felt like it was full of something hot and heavy. She walked toward him because she needed to understand. She was a person who asked questions. She was a person who needed answers. And he was the only person in this room who might have any of them.
+She walked toward him. Not because the bond told her to, although it was pulling her, steady and low, like a current in the water. Not because she was afraid, although her hands were shaking and her chest felt like it was full of something hot and heavy. She walked toward him because she needed to understand. She was a person who asked questions. She was a person who needed answers. And he was the only person in this room who might have any of them.
 
-She stopped in front of him. Not too close. Not far away. Close enough that she could see the details of his face — the faint tension in his jaw, the shadows under his eyes, the way his eyes were fixed on the fire like it held answers he couldn't find.
+She stopped in front of him. Not too close. Not far away. Close enough that she could see the details of his face, the faint tension in his jaw, the shadows under his eyes, the way his eyes were fixed on the fire like it held answers he couldn't find.
 
 "I felt something today," she said. Her voice was quiet. Steady. Not cowering. "At the stream. When we looked at each other — when we touched — I felt something. It wasn't just the tingling in my hands. It was — it was like something inside me woke up. And I don't know what it's waking up to."
 
-Victor turned to look at her. Really look at her. His eyes were the color of storm clouds. They were gray and bright and searching. And the bond between them flared — sharp, bright, immediate — like a struck match.
+Victor turned to look at her. Really look at her. His eyes were the color of storm clouds. They were gray and bright and searching. And the bond between them flared, sharp, bright, immediate, like a struck match.
 
 "I felt it too," he said.
 
@@ -112,7 +112,7 @@ She nodded. "The bond."
 
 "Yes."
 
-He was quiet. He was thinking about everything Josiah had said — the bridge, the walking across it, the connection, the protection, the coalition. And he was thinking about the way his body had moved toward her at the stream, like it had recognized her before his mind could catch up.
+He was quiet. He was thinking about everything Josiah had said, the bridge, the walking across it, the connection, the protection, the coalition. And he was thinking about the way his body had moved toward her at the stream, like it had recognized her before his mind could catch up.
 
 "I don't know what this means yet," he said. "But I know one thing."
 
@@ -136,7 +136,7 @@ He thought about it. "Part of it. But not all of it."
 
 He looked at her. He didn't look away. "The part that's just me."
 
-Something shifted in her expression. Not much. Just a small, almost imperceptible change — the way her eyes softened, the way her mouth relaxed, the way her shoulders dropped half an inch. Like she had been holding something tense and something inside her let it go.
+Something shifted in her expression. Not much. Just a small, almost imperceptible change, the way her eyes softened, the way her mouth relaxed, the way her shoulders dropped half an inch. Like she had been holding something tense and something inside her let it go.
 
 "Okay," she said.
 
