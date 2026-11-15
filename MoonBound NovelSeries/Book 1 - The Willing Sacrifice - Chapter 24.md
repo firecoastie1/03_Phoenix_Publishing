@@ -141,9 +141,9 @@ Victor frowned. "Change them how?"
 
 "Your wards work because they respond to the pack. To the Alphas. To the inner council. They're designed to keep things out. But if the Hollow King can dissolve them from the outside, maybe the answer isn't stronger wards. Maybe the answer is wards that respond differently."
 
-She walked past him to the counter. He followed. Of course he followed. His body moved toward hers like the bond was a current and he was water. She picked up a scrap of paper, found a pen, and started drawing. She didn't know what she was doing. She was winging it. But her hands knew the way.
+She walked past him to the counter. He followed. Of course he followed. His body moved toward hers like the bond was a current and he was water. She picked up a scrap of paper, found a pen, and started drawing. Her hands knew the way.
 
-He was watching her. She could feel it. The weight of his attention. The shape of it on her skin like warmth on her face. She could feel him looking at her hands, her shoulders, the way she held the pen. He wasn't trying to hide it.
+He was watching her. She could feel it. The weight of his attention pressed on her skin like warmth on her face. She could feel him looking at her hands, her shoulders, the way she held the pen. He wasn't trying to hide it.
 
 "The bond is the strongest thing I've ever felt," she said. She set the pen down. She turned to face him. Her chest was close to his arm. She could feel the stiffness in his muscles, the way he was holding himself still. "It connects us. But it also creates a space. Our space. What if the wards don't just depend on the pack? What if they depend on the bond?"
 
@@ -199,7 +199,7 @@ She looked at the garden. The flowers were blooming. Small white things. She did
 
 "We need to build wards that respond to the bond," she said. "Not just the pack. The bond."
 
-Josiah nodded. "That would require understanding the bond at a deeper level. Not just the physical sensations. Not just warmth and pulse. The emotional structure. What the bond is made of."
+Josiah nodded. "That would require understanding the bond at a deeper level. Not just the physical sensations. The emotional structure. What the bond is made of."
 
 "I can learn that," she said.
 
@@ -209,6 +209,6 @@ Josiah smiled. It was the first time she'd seen him smile. It made him look youn
 
 He stood up. He patted her shoulder. "Keep thinking like this. And you'll be more useful to the pack than you realize."
 
-She watched him walk away. She sat in the garden for a long time after he left. The flowers were still blooming. The hum of the bond was still in her chest. Steady. Warm. Growing.
+She watched him walk away. She sat in the garden for a long time after he left. The flowers were still blooming. The hum of the bond was still in her chest. Steady. Growing.
 
 She didn't know how to build bond-wards. But she knew one thing: she was going to try.

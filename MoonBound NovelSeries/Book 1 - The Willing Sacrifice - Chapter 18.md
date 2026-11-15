@@ -68,7 +68,7 @@ They stood in the kitchen for a moment, neither of them saying anything, the bon
 
 He looked at her, really looked at her, and something shifted. He wasn't the Alpha right now. He was just Victor.
 
-"It's heavy," he said. "It's standing in a room full of people who depend on you for their safety and knowing that every decision you make could save them or kill them. It's feeling like the weight of the pack sits on your shoulders like a stone and you can't put it down because they need you to carry it. It's knowing that if you make the wrong call, people die. It's —"
+"It's heavy," he said. "It's standing in a room full of people who depend on you for their safety and knowing that every decision you make could save them or kill them. It's feeling like the weight of the pack sits on your shoulders and you can't put it down because they need you to carry it. It's knowing that if you make the wrong call, people die. It's—"
 
 He stopped. He took a breath. He looked at the wall again.
 
@@ -76,13 +76,13 @@ He stopped. He took a breath. He looked at the wall again.
 
 Amelia didn't speak. She just waited.
 
-"I carry his legacy like a shield," he said. "I hold everything together with my own hands. Tradition. Strength. Order. But sometimes I look at the map and I can see the gaps. The thin places. And I know the old ways aren't enough anymore. I just don't know what is."
+"I carry his legacy," he said. "I hold everything together with my own hands. Tradition. Strength. Order. But sometimes I look at the map and I can see the gaps. The thin places. And I know the old ways aren't enough anymore. I just don't know what is."
 
 She set her hands flat on the counter. She was a healer. She knew how to measure before she touched. This was no different.
 
 "Maybe the answer isn't a new way," she said. "Maybe it's just letting other people carry the weight for a while."
 
-He looked at her. His eyes were gray, storm-cloud gray, unreadable. He looked like a man who had not expected someone to understand him without speaking a word he had already said.
+He looked at her. His eyes were gray, storm-cloud gray, unreadable. He looked like a man who hadn't expected someone to understand him.
 
 "Amelia," he said.
 
@@ -96,7 +96,7 @@ His eyes dropped to her mouth. Hers dropped to his.
 
 The bond flared.
 
-It was like a wire snapping taut, like a current running through her veins, like everything in her body was reaching for him and he was reaching for her and they were both going to collide.
+It was like a wire snapping taut, a current running through her veins, everything in her body reaching for him.
 
 The back door banged open.
 
@@ -112,7 +112,7 @@ He backed out of the kitchen. The door closed. The silence that followed was wor
 
 Amelia looked at Victor. Victor looked at the wall. The bond hummed between them, low and steady, like a promise neither of them was ready to keep.
 
-The rest of the day passed in fragments. She went back to the compound. He went to war room duties. She told herself she was fine. She wasn't. She thought about his face when the door opened. She thought about the way he looked at the wall like it was the only thing keeping him from saying something he couldn't take back. She told herself it was nothing. It was everything.
+The rest of the day passed in fragments. She went back to the compound. He went to war room duties. She told herself she was fine. She wasn't. She thought about his face when the door opened. She thought about the way he looked at the wall like it was the only thing keeping him from saying something he couldn't take back. She had told herself it was nothing. It was everything.
 
 ---
 
@@ -124,7 +124,7 @@ He arrived five minutes later.
 
 He didn't knock. He didn't call out. He just climbed the stairs and walked onto the roof and sat down three feet from her, close enough that she could feel his warmth, far enough that she didn't have to look at him.
 
-They sat in silence for a long time. The bond was steady between them, warm and present, like a wire pulled taut but not broken.
+They sat in silence for a long time. The bond was steady between them, like a wire pulled taut but not broken.
 
 Amelia closed her eyes. She let her hands rest on her knees. She let her breathing slow. She thought about why she trusted him. The way he'd said her cat's name without hesitation, like Luna was part of her and part of him, and he'd accept both without question. The way he'd looked at the wall when he talked about his father, because he was letting her see the things he couldn't say out loud. The way he'd looked at her mouth and not looked away until the world interrupted, because he wanted her, fully, and hadn't even tried to hide it.
 

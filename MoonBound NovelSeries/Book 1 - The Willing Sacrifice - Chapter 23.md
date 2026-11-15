@@ -11,7 +11,7 @@ When she arrived, he was already there.
 
 Victor stood at the center of the clearing, his back to her, his head tilted toward the sky. The moonlight caught the edge of his profile, and for a moment she just watched him, the way his shoulders were tense, the way his hands hung at his sides, the way he looked like a man carrying the weight of the world on his back.
 
-He turned when she stepped into the clearing. His eyes were gray, darker than usual, blown wide with something she couldn't name. And the thread between them pulled so tight it ached.
+He turned when she stepped into the clearing. His eyes were gray, darker than usual, blown wide with something raw. And the thread between them pulled so tight it ached.
 
 She didn't say anything. He didn't either. They just stood there, twenty feet apart, the moonlight between them, the bond humming so loud she could hear it in her teeth. Her skin felt too tight. Her breath came faster. She had to force herself to stay where she was.
 
@@ -39,7 +39,7 @@ The name hung between them like a stone. Reid was gone. He'd been put down. The 
 
 "I know," she said.
 
-They stood in silence for a long time. The bond hummed between them, steady and warm, but it wasn't just warmth anymore, it was hunger. A pull she couldn't explain. She wanted to reach out. She wanted to touch his hand, his arm, his shoulder. She wanted to feel him close. She took a step forward. Then another. Until she was standing right in front of him, close enough to see the pulse jumping at his throat.
+They stood in silence for a long time. The bond hummed between them, steady and warm. A pull she couldn't explain. She wanted to touch his hand, his arm, his shoulder. She wanted to feel him close. She took a step forward. Then another. Until she was standing right in front of him, close enough to see the pulse jumping at his throat.
 
 He didn't move. He just stood there, his hands still in his pockets, his breathing shallow, his eyes locked on hers.
 

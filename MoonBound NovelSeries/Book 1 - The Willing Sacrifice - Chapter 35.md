@@ -28,7 +28,7 @@ He smiles. Small. Real. "I know."
 
 "I'm learning."
 
-He reaches for her hand. His fingers are warm. Dry. His pulse is steady against her skin. She feels it through the bond, a low, steady hum. His presence. Warm. Certain. Alive.
+He reaches for her hand. His fingers are warm. Dry. His pulse is steady against her skin. She feels it through the bond, a low, unchanging hum. His presence. Warm. Certain. Alive.
 
 She squeezes his hand. "I'm fine, Victor."
 
@@ -86,7 +86,7 @@ And then, a warmth. A pulse. A presence.
 
 The bond.
 
-Not Victor's voice. Not Victor's face. The bond itself. Steady. Warm. Certain. It pushes back against the darkness. Not a wall. Not a barrier. A hand. Reaching for hers across the dark.
+Not Victor's voice. Not Victor's face. The bond itself. Certain. Warm. Unshakable. It pushes back against the darkness. Not a wall. Not a barrier. A hand. Reaching for hers across the dark.
 
 She grabs it. Clutches it with everything she has. And holds on.
 
@@ -152,7 +152,7 @@ He stays awake. There is no way he feels he will get rest tonight.
 
 Amelia's breathing starts to even out within minutes. Her body starts to relax against his chest. Her fingers slowly uncurl from his shirt and her face relaxes, then she drifts peacefully off to sleep.
 
-The bond is a steady hum that is warm, but beneath that is something else. Something that feels cold.
+The bond is a low hum that is warm, but beneath that is something else. Something that feels cold.
 
 He knows he cannot keep this up all night. But he doesn't see any other way. But if the Hollow King comes back, he needs to be ready. He needs to hold the door shut. Again. And again. Until dawn.
 
@@ -178,7 +178,7 @@ He is so proud of her.
 
 The thought surprises him. He doesn't get proud. He gets angry. He gets frustrated. He gets worried. He does not get proud. But he is proud. Of her. Of Amelia.
 
-He drops his forehead against hers. Closes his eyes. Breathes her in. Her scent is mixed with sweat and fear and sleep, but underneath it all, the same soft, warm smell she always has. Something like honey and herbs and morning light.
+He drops his forehead against hers. Closes his eyes. Breathes her in. Her scent is mixed with sweat and fear and sleep, but underneath it all, the same soft smell she always has. Something like honey and herbs and morning light.
 
 The bond hums. He can still feel the Hollow King on the other side, faint, like a cold draft in a warm room. He braces against it. Holds the door shut. Waits for dawn.
 

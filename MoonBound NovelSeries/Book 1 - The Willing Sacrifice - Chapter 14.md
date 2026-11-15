@@ -6,7 +6,7 @@ He found Josiah in the archive room before anyone else was awake.
 
 The room was on the east side of the main hall, a long narrow space lined with shelves of leather-bound books and rolled parchments that predated the pack by centuries. Josiah sat at a desk near the far window, a lamp casting amber light over a spread of documents, his reading glasses perched on the bridge of his nose, his hands folded neatly on top of a book the size of a brick.
 
-Victor stopped in the doorway and watched him for a moment. Josiah was a small man, he had never been one for a fight, but he carried himself with the kind of quiet authority that made space around him. He looked up when the floorboards creaked.
+Victor stopped in the doorway and watched him for a moment. Josiah was a small man, he had never been one for a fight, but he carried himself with a quiet authority that made space around him. He looked up when the floorboards creaked.
 
 "Victor." His voice was warm, as if he had been expecting him. "You're early."
 
@@ -14,7 +14,7 @@ Victor stopped in the doorway and watched him for a moment. Josiah was a small m
 
 "I noticed." Josiah closed the book, set his glasses on the desk, and steepled his fingers. "Sit down."
 
-Victor sat in the chair across from him. He did not relax. He never sat and relaxed; his shoulders stayed squared, his hands stayed ready, his eyes stayed scanning. It was not a habit he could break any more than he could break his own bones. But Josiah did not ask him to. He never did.
+Victor sat in the chair across from him. He did not relax. He never sat and relaxed; his shoulders stayed squared, his hands stayed ready, his eyes stayed scanning. He had carried this posture since he was old enough to hold a blade. But Josiah did not ask him to. He never did.
 
 "It's the bond," Victor said. No preamble. No circling. "I need to understand what I'm dealing with."
 
@@ -34,7 +34,7 @@ Josiah tapped the cover of the book with one finger. "I cannot give you a number
 
 "Then give me what you can."
 
-Josiah opened the book. It was thick, leather-bound, the pages yellowed and brittle at the edges. He turned to a marked page, a ribbon of faded crimson marked the place, and the handwriting on the page was different from the rest: sharper, more deliberate, as if the person who had written it had wanted to make sure it could be found.
+Josiah opened the book. It was thick, leather-bound, the pages yellowed and brittle at the edges. He turned to a marked page, a ribbon of faded crimson marking the place, and the handwriting was different from the rest: sharper, more deliberate.
 
 "This was written by Elara of the Silver River pack," Josiah said. "She was an Elder three centuries ago. She documented the bonds she witnessed. And she documented the ones she heard about from elders before her."
 
@@ -60,7 +60,7 @@ Victor's chest tightened. Not from the bond. From the weight of what Josiah was 
 
 "You're saying my mate, a human woman who didn't know about shifters two weeks ago, is the key to defeating the Hollow King."
 
-"I am saying that the Moon Goddess chose her for a reason. Whether you understand that reason or not, she was chosen." Josiah closed the book. "There is more. The bond grows stronger over time. It is not a one-time event. It deepens with intimacy, emotional, physical, all of it. And once it is made, it cannot be broken. You can resist it. You can run from it. But you cannot unmake it. It is part of your body now. Your magic. Your blood."
+"I am saying that the Moon Goddess chose her for a reason. Whether you understand that reason or not, she was chosen." Josiah closed the book. "There is more. The bond grows stronger over time. It is not a one-time event. It deepens with intimacy, emotional and physical. And once it is made, it cannot be broken. You can resist it. You can run from it. But you cannot unmake it. It is part of your body now. Your magic. Your blood."
 
 Victor was quiet. He processed this the way he processed everything: analytically, methodically, like a battlefield map he was memorizing.
 
@@ -108,7 +108,7 @@ She was at the clinic by seven.
 
 She had not slept. Her bed had been exactly where it always was, neat, unrumpled, untouched, and she had stood in the middle of the room at three in the morning, staring at it like it had betrayed her, before walking to the kitchen and sitting at the table until the sun came up. Her hands had tingled the entire time. Not a constant hum anymore. A pull. A direction. North. Always north. Toward the compound.
 
-She had not gone there. Not yet. But she had told Perseus she would come back, and Perseus did not ask questions about why she was coming back or what she was going to do. He had simply nodded and said, "I'll tell the Alpha you're here," as if she and Victor were already a thing he could discuss with other people. As if the bond was not still the most terrifying thing she had ever felt. So she had started where she knew how: at the clinic. Getting her hands busy. Pretending that sweeping the floor and boiling water for tea was the same morning routine as always. It wasn't. It couldn't be. Everything felt different now. Everything felt like it had been tilted on an axis she could not see, and nothing was level anymore. She moved through it mechanically: arranging the herbs, boiling the kettle, stacking her stool just so. Her hands moved, but her mind was somewhere else. Somewhere north. She was making tea when the door opened.
+She had not gone there. Not yet. But she had told Perseus she would come back, and Perseus did not ask questions about why she was coming back or what she was going to do. He had simply nodded and said, "I'll tell the Alpha you're here," as if she and Victor were already a thing he could discuss with other people. As if the bond was not still the most terrifying thing she had ever felt. So she had started where she knew how: at the clinic. Getting her hands busy. Pretending that sweeping the floor and boiling water for tea was the same morning routine as always. It wasn't. It couldn't be. Everything felt different now. Everything felt like it had been tilted on an axis she could not see, and nothing was level anymore. She moved through it mechanically: arranging the herbs, boiling the kettle, stacking her stool just so. Her hands moved, but her mind was elsewhere. North. Always north. She was making tea when the door opened.
 
 Emila walked in, fresh from the compound. She was wearing a blue sweater and sweatpants, her hair in a messy bun, a clipboard in one hand. She paused when she saw Amelia.
 
@@ -130,7 +130,7 @@ She poured two cups and set one in front of Emila before sitting down at the sma
 
 Emila took a sip and set the cup down. "You don't have to describe it. You just have to tell me what you need."
 
-Amelia looked at her. Emila's eyes were warm and steady, the way they always were. She was one of those people who could sit with you in the dark without trying to turn on the light. That was rare.
+Amelia looked at her. Emila's eyes were warm, the way they always were. She was one of those people who could sit with you in the dark without trying to turn on the light. That was rare.
 
 "I need to understand," Amelia said. "About the pack. About the Veil. About... about the bond." She hesitated. The word felt strange in her mouth now. Not foreign, exactly. Familiar. She had heard it enough times for it to stop feeling alien. But it still carried weight. "Josiah explained the Mate Bond to me. But I need more. I need to know what I'm signing up for."
 
@@ -188,11 +188,11 @@ Amelia blinked. "What?"
 
 "The Hollow King cannot consume what it does not understand. A human is silent to him. He has no language for human magic because there is none. The bond between a shifter and a human is the one he cannot predict, cannot replicate, cannot devour. That is why the Moon Goddess chose you. Not despite being human. Because of it."
 
-Amelia stared at her. The information landed like a stone in still water, ripples spreading outward, touching every edge of everything she thought she knew.
+Amelia stared at her. The information landed like a stone in still water.
 
 "I don't know how to be a weapon," she said quietly.
 
-"You don't have to be." Emila reached across the table and took her hand. Her grip was warm and steady. "You just have to be you. That is enough. That is always enough."
+"You don't have to be." Emila reached across the table and took her hand. Her grip was warm. "You just have to be you. That is enough. That is always enough."
 
 Amelia closed her eyes. Her hands were tingling. The pull was still there. North. Toward the compound. Toward him.
 
@@ -234,7 +234,7 @@ They stood across from each other, three paces apart, and the bond hummed betwee
 
 "Me either."
 
-He looked at her. Really looked at her. Her warm brown eyes. Her dark hair escaping its tie. The way she carried herself, not nervous, not cowering, but present. Anchored. She was a healer. She knew what her body felt like. She knew what pain felt like. She was standing here feeling something she could not name, and she was not running from it.
+He looked at her. Really looked at her. Her warm brown eyes. Her dark hair escaping its tie. The way she carried herself, not nervous, not cowering, but present. Anchored. She was a healer. She knew what her body felt like. She knew what pain felt like. She was standing here feeling something vast and unfamiliar, and she was not running from it.
 
 "How are you?" he asked.
 
@@ -270,7 +270,7 @@ He touched her hand.
 
 The bond responded.
 
-Warmth flooded through him, not the full opening, not yet, but a spark along a thread that had not been lit. Her warmth. Her presence. Solid and real. He could feel her pulse against his fingers, steady and warm, and it grounded him in a way nothing had in a long time. He let her feel him back: the steady rhythm of his heartbeat, the tension in his muscles slowly uncoiling. Nothing deeper than that. Not until the ceremony. But this was enough. This was real. And for the first time, they understood what the bond was for: not magic, not destiny, but this, the ability to reach across the distance and know, for one moment, that the other person was there.
+Warmth flooded through him, not the full opening, not yet, but a spark along a thread that had not been lit. Her warmth. Her presence. Solid and real. He could feel her pulse against his fingers, and it grounded him in a way nothing had in a long time. He let her feel him back: the steady rhythm of his heartbeat, the tension in his muscles slowly uncoiling. Nothing deeper than that. Not until the ceremony. But this was enough. This was real. And for the first time, they understood what the bond was for: not magic, not destiny, but this, the ability to reach across the distance and know, for one moment, that the other person was there.
 
 He did not let go.
 

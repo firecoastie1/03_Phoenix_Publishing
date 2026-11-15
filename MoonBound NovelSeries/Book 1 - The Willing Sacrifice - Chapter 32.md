@@ -104,7 +104,7 @@ He has been somewhere.
 
 He turns. His face is pale. His eyes are gray and distant. The way they look after a pack council, when he is carrying something too heavy to put down. But this is different. This is deeper. He looks like a man who has just seen something he cannot unsee.
 
-She reaches for him. He takes her hand. The bond flares. Warm, steady, trembling.
+She reaches for him. He takes her hand. The bond flares. Warm, certain, trembling.
 
 "What happened?" she asks. Quietly. Not demanding. Just present.
 
@@ -132,7 +132,7 @@ He stares at her. His jaw tightens. Something flickers in his eyes. Not grief. N
 
 "No," she agrees. "But you are willing. And that is the same thing Aurela said."
 
-He closes his eyes. His forehead drops to hers. The bond between them hums. Warm, steady, unbreakable. She feels his relief. She feels his love. She feels the weight of a thousand unresolved tensions, of borders and treaties and ancient grudges, and beneath all of it, the simple truth: he is just a man. A scared, stubborn, fiercely loyal man who is trying to do the right thing.
+He closes his eyes. His forehead drops to hers. The bond between them hums. Warm, certain, unbreakable. She feels his relief. She feels his love. She feels the weight of a thousand unresolved tensions, of borders and treaties and ancient grudges, and beneath all of it, the simple truth: he is just a man. A scared, stubborn, fiercely loyal man who is trying to do the right thing.
 
 She pulls back just enough to look at him. "You know what the easiest thing would be?" she says.
 
@@ -164,7 +164,7 @@ Victor's hand finds the hem of her shirt. He lifts it slowly. Not rushed. Not de
 
 He lifts her shirt over her head. Throws it on the floor. She does the same to his. Buttons popping, fabric torn free, both of them too eager for patience. When his chest meets hers, skin on skin, the bond explodes. She feels him. Everything. His fear for the pack. His determination. His love. His need. It hits her like a wave and she wraps her arms around him and buries her face in his shoulder and lets him feel her back. Her certainty. Her willingness. The way she thinks about him when he is not in the room. The way she touches her moon tattoo when she is lonely. The way she cannot sleep without him near.
 
-He lowers them both onto the bed. She comes down with him, legs parting without thinking, without planning, just instinct and want and the kind of certainty that does not need a ceremony to tell her this is right. His mouth finds her breast through the fabric of her bra and she arches into him. His hands are on her bra clasp. Fumbling. Unlikely. Fumbling for the Alpha of the Blackwood Pack, who never fumbles at anything. But this is not anything else. This is Amelia. This is home. The clasp pops. The fabric falls away. His mouth is on her nipple immediately. Warm. Wet. Hard. She gasps. The bond carries it straight into him, her pleasure, sharp and bright, and he groans, low in his throat, and she feels the vibration against her skin.
+He lowers them both onto the bed. She comes down with him, legs parting without thinking, without planning, just instinct and want and a certainty that did not need a ceremony to tell her this was right. His mouth finds her breast through the fabric of her bra and she arches into him. His hands are on her bra clasp. Fumbling. Unlikely. Fumbling for the Alpha of the Blackwood Pack, who never fumbles at anything. But this is not anything else. This is Amelia. This is home. The clasp pops. The fabric falls away. His mouth is on her nipple immediately. Warm. Wet. Hard. She gasps. The bond carries it straight into him, her pleasure, sharp and bright, and he groans, low in his throat, and she feels the vibration against her skin.
 
 "God, Amelia," he says. His voice is wrecked. Raw. "You feel —" He cannot finish. He does not need to. He is saying it with his mouth, with his hands, with the way his thumb circles her other nipple while his other hand slides down her stomach, lower, lower, until his fingers are at the waistband of her sleep pants.
 
@@ -204,7 +204,7 @@ Her climax hits like a shockwave. She sees white. Her body clamps down around hi
 
 He finishes inside her. His body goes rigid. His breath leaves him in a rush. She feels it, the heat, the release, the surrender. She holds him through every last tremor. When he finally goes still and his breathing evens out, she wraps her arms around him and presses her mouth to his shoulder.
 
-The bond hums between them. Warm. Steady. Deeper now. Stronger. Like a fire banked for the night, still glowing, still hot, still ready.
+The bond hums between them. Warm. Deeper now. Stronger. Like a fire banked for the night, still glowing, still hot, still ready.
 
 He holds her gaze for a long moment. Then he kisses her. Slow. Deep. Real. Just him. Just her.
 
