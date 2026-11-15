@@ -380,7 +380,7 @@ He groans, a low deep groan, drops his forehead to hers, his hands grabbing her 
 
 "Victor," she says. Her voice is breathless. Broken. "Harder. Please. Harder."
 
-He pulls back slowly, almost all the way out, and then slams back in. The impact rocks her. Her breath catches. Her nails dig into his shoulders. He pulls back. Drives in again. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his shoulders. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
+He pulls back slowly, almost all the way out, and then slams back in. The impact rocks her. Her breath catches. He pulls back. Drives in again. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his shoulders. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
 
 He lifts his head. Watches her. Her eyes are closed. Her lips are parted. Her chest heaves. Her skin is flushed. All of her muscles lock up. Ready. He drives in harder. Faster. His hips slam against hers. The bed shakes beneath them. Her breath comes in gasps. Her thighs tremble. Her walls clamp down around his cock.
 
@@ -392,7 +392,7 @@ She opens her eyes. Gray meets gray. He groans. A low, broken sound. His thrusts
 
 "Come for me," he says. "Come and let me hear you."
 
-She does. Her body convulses. Her walls clamp down around his cock. She screams. A long, broken sound. Her back arches off the bed. Her nails tear into his shoulders. Her thighs clamp around his waist. Her breath comes in gasps. Her eyes are wide. Uncaring. Her body shakes.
+She does. Her body convulses. Her walls clamp down around his cock. She screams. A long, broken sound. Her back arches off the bed. Her nails tear into his back. Her thighs clamp around his waist. Her eyes are wide. Uncaring. Her body shakes.
 
 He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His body locks. Shakes. Groans.
 
