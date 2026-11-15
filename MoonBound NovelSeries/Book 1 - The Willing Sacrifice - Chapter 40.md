@@ -4,7 +4,7 @@
 
 AMELIA
 
-The morning light comes through the kitchen window the same way it always has. Dust in the air. The kettle on the stove. The compound alive outside with the sound of a pack learning how to breathe again. But something has shifted. Everything has shifted. Since the battle. Since the barrier. Since the Hollow King was driven back across the Veil.
+The morning light comes through the kitchen window the same way it always has. Dust in the air. The kettle on the stove. The compound alive outside with the sound of a pack learning how to breathe again. But something has shifted. Since the battle. Since the barrier. Since the Hollow King was driven back across the Veil.
 
 She is making tea. He is sharpening his knives. They are in the kitchen the way they have been every morning for weeks now. Not because they have to be together. Because they want to be.
 
