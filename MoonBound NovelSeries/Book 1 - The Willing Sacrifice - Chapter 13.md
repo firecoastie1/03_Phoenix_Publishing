@@ -126,15 +126,15 @@ Amelia
 
 She couldn't stop looking at her hands.
 
-They were sitting on her kitchen table, palms up, fingers slightly spread, trembling in a way that made no sense. They had stopped vibrating after she'd left the clearing. Stopped aching. Stopped burning. But they were still tingling. A low, steady hum, like electricity running just under the surface of her skin. She pressed her thumb against her index finger and couldn't feel the pressure. Not fully. Just a muffled version of it, like she was touching the world through a sheet of glass.
+They were sitting on her kitchen table, palms up, fingers slightly spread, trembling in a way that made no sense. They had stopped vibrating after she'd left the clearing. Stopped aching. Stopped burning. But they were still tingling. A low, steady hum, like electricity just under the surface of her skin. She pressed her thumb against her index finger and couldn't feel the pressure. Not fully. Just a muffled version of it, like she was touching the world through a sheet of glass.
 
-She was a healer. She knew what her body felt like when something was wrong. She knew what numbness felt like. She knew what nerve damage felt like. She knew what the aftermath of fever felt like. This was none of those things.
+She was a healer. She knew her body. She knew what numbness felt like. What nerve damage. What fever. This was none of those.
 
 This was something else entirely.
 
-She flexed her fingers. They moved, but they didn't feel like her fingers. Not exactly. They felt like his fingers. The thought hit her like a stone in the chest, and she pressed her palms flat against the table to steady herself.
+She flexed her fingers. They moved, but they didn't feel like her fingers. Not exactly. They felt like his fingers. The thought hit her hard, and she pressed her palms flat against the table.
 
-It was ridiculous. It was impossible. It was the kind of thing that made no sense at all.
+It was ridiculous. It was impossible. It made no sense.
 
 And it was exactly what had happened in the clearing.
 
@@ -146,7 +146,7 @@ She stood up and walked to the window. The night was dark, the sky full of stars
 
 *You look at each other and think it is romance.*
 
-Aurela's voice, echoing in her head, clear and ancient and sad, like a woman who had been carrying a weight she could no longer bear.
+Aurela's voice, echoing in her head. Clear and ancient and sad.
 
 *I look at you and see the only thing that will keep the dark at bay.*
 
@@ -158,18 +158,16 @@ Her hands were pressed flat against the window. Her eyes were closed. She was st
 
 Five days.
 
-She'd never met anyone in five days who made her feel like this. Like her body had been waiting for him without telling her. Like her bones had been searching for him without knowing his name. Like something inside her had woken up and decided it wasn't going back to sleep.
+She'd never met anyone who made her feel like this. Like her body had been waiting for him without telling her. Like her bones had been searching for him. Like something inside her had woken up and decided it wasn't going back to sleep.
 
 She pressed her palm harder against the glass. The cold seeped through her skin. It didn't help.
 
 She could feel him.
 
-Not his thoughts. Not his voice. Not anything she could name. Just... him. His presence. Like he was sitting in the room with her, even though she was alone. Like he was standing on the other side of the wall, breathing, moving, living, and she could feel every heartbeat, every breath, every shift of weight, every flicker of emotion, like a radio tuned to a station she couldn't control, broadcasting on a frequency she didn't understand but couldn't turn off.
+Not his thoughts. Not his voice. Just... him. His presence. Like he was sitting in the room with her. Standing on the other side of the wall, breathing, moving, living. Every heartbeat, every breath, every shift of weight — like a radio tuned to a station she couldn't control.
 
 It was overwhelming.
-
 It was terrifying.
-
 It was the most real thing she had ever felt.
 
 She pulled her hand away from the glass and turned around. The kitchen was small. One table. Four chairs. A stove. A fridge. A shelf with jars of dried herbs and a photograph of her grandmother, smiling, her arm around Amelia's shoulders, the crescent moon tattoo visible on her wrist.
