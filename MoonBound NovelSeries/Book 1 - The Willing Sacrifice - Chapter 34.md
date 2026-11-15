@@ -280,53 +280,21 @@ He carries her. Out of the tent. Through the compound. Past the wounded. Past th
 
 The door is already unlatched. He kicks it open. Carries her to the bed. Drops onto it. Pulls her down with him.
 
-She is on top of him immediately. Knees on either side of his hips. Her body straddling his. Her hands pushing at his chest. His skin. Warm. Bloody. Real. She kisses him again. Slower now. Deeper. Her mouth moving over his jaw. His neck. His collarbone. Her tongue traces the line of his throat. His teeth catch on her bottom lip. His hands drop to her ass. Squeezes. Fingers digging into flesh.
+She is on top of him immediately. Knees on either side of his hips. Her body straddling his. Her hands push at his chest — warm, bloody, real. She pulls his bloodied tunic over his head. Throws it aside. Her own shirt follows. Boots kicked away. Underwear pushed down. She stands barely-dressed in front of him. Blood on her arms. Chest heaving. His gaze sweeps over her — hungry, reverent, wrecked. His hands find her breasts. Cupping them. Thumbs pressing over her nipples. She arches into the touch. A small, broken sound escapes her.
 
-"Clothes off," he says. His voice is rough. Desperate. "All of it. I need you bare."
-
-She pulls back. Her hands move to her tunic. Rips it over her head. Throws it aside. Her breasts spill free. His eyes darken. His mouth finds hers. His hands find her breasts. Cupping them. Squeezing. Thumbs pressing over her nipples.
-
-He sits up. Pulls her with him. She straddles him. Her back against his chest. His cock is hard. Thick. Pressing into the mattress behind her. She reaches back. Wraps her fingers around it. Feels it throb against her palm.
-
-"Turn around," she says.
-
-He goes. Turns in her grip. Faces her. His eyes are amber. Dilated. Hungry. He pulls her down against him. Their bodies collide. Chest to chest. Hip to hip. Cock against thigh. She wraps her legs around his waist. Her feet hook behind his back. Her ass grinds against his groin. His cock slips between her thighs. She is wet. Dripping wet. He can feel it.
-
-He groans. Drops his forehead to her shoulder. "I need to be inside you. Now."
-
-He groans again. Hands finding her hips. Lifting her. Spinning her onto her back.
-
-His cock is hard. Thick. Veined. Pulsing against her belly. The head is wet. She wraps her fingers around it. Strokes it once. Twice. His breath catches. His hips jerk. She strokes it again. Feels it twitch against her palm.
-
-"Amelia," he says. His voice is broken. "Please."
-
-She shifts up on the bed. Takes the head into her mouth.
-
-He groans. A low, guttural sound. His hands grip her hips. Fingers digging into flesh. She takes him deeper. The taste is salt and iron and him. Her hand wraps around the base. Her thumb presses along the shaft. She pulls back. Takes him deep again. Her mouth moves in slow, deliberate strokes. Her hand milks what her mouth cannot take. Her eyes are locked on his. He is watching her. Amber eyes wide. Unblinking. His jaw is clenched. His chest is heaving.
-
-She takes him to the back of her throat. Her nose presses against his abdomen. His fingers tighten on her hips. She pulls back. Smiles. Drops her hand. Stands.
-
-His mouth finds her breast. Opens. Sucks the nipple into his mouth. His tongue circles it. Sucks harder. She throws her head back. Groans. Her hands grip the bed. The mattress shakes beneath them. He kisses her breast. Sucks the other nipple. His hands gently push her onto her back.
-
-She is on the bed. He is above her. Knees bracketing her hips. His cock is pressed between her thighs. She wraps her legs around his waist. Her feet hook behind his back. Her ass grinds against him. His cock slips between her legs. The head presses against her slit. She is wet. Soaked. He groans.
-
-"Tell me to stop," he says. "Tell me and I stop."
-
-"Do not stop," she says. "Please. Do not stop."
-
-She lines up. The head presses against her entrance. She is wet. Slippery. He pushes. Inches at a time. The stretch is intense. Burning. She gasps. Her nails dig into his shoulders. A sharp inhale escapes her. He pauses. Lets her adjust. His chest heaves. His hands grip the bed on either side of her head.
+She pulls him up by the shoulders. Straddles him. Her back against his chest. His cock is hard. Thick. Pressing into the mattress behind her. She reaches back. Wraps her fingers around it. Feels it throb against her palm. She lines up. The head presses against her entrance. She is wet. Dripping wet. He groans. Pushes. One inch. Two. The stretch is intense. Burning. She gasps. Her nails dig into his shoulders. He pauses. Lets her adjust.
 
 "Okay?" he asks.
 
-"Yes. Keep going."
+"Yes. Move. Please."
 
 He pushes. Deeper. His hips snap forward. The rest of him slides in. Her body stretches around him. She gasps. Her head falls back. Her eyes close. A moan tears from her throat. He is buried to the hilt. His cock is stretched to its limit. Her walls clamp down around him. The heat is overwhelming.
 
-He groans. A low, broken sound. His forehead drops to hers. His hands grip her hips. His fingers dig into flesh. "You are so tight. So perfect. Amelia. You have no idea."
+He groans. A low, broken sound. His forehead drops to hers. His hands grip her hips. "You are so tight. So perfect. Amelia. You have no idea."
 
-"Victor," she says. Her voice is breathless. Broken. "Faster, please."
+"Victor," she says. "Faster, please."
 
-He pulls back. Slow. Deliberate. His cock slides out almost all the way. Then drives back in. The impact rocks her. A sharp gasp escapes her. Her nails dig into his shoulders. He pulls back. Drives in again. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his shoulders. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
+He pulls back. Slow. Deliberate. His cock slides out almost all the way. Then drives back in. The impact rocks her. She gasps. He pulls back. Drives in again. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his shoulders. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
 
 He lifts his head. Watches her. Her eyes are closed. Her lips are parted. Her chest heaves. Her skin is flushed. Her hair is spread across the pillow. Every muscle in her body is locked. Taut. Ready. He drives in harder. Faster. His hips slam against hers. The bed shakes beneath them. Her body clenches. Her thighs tremble. Her walls clamp down around his cock.
 
