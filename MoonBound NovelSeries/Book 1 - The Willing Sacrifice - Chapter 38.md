@@ -194,31 +194,29 @@ She makes a sound. A small, broken sound. Her hands find his chest. Fingers grip
 
 "I know," he says. "I know."
 
-He backs her against the wall. His mouth finds hers — not desperate, just certain. She kisses him back with a softness that catches him off guard. Then she laughs. A small, exhausted laugh. "We've been doing this for six months," she says. "Kissing you from across rooms. From behind your chair. I am going to have to be a very different woman to do that for the rest of our lives."
+He backs her against the wall, his mouth finding hers — not desperate, just certain. She kisses him back with a softness that catches him off guard, then laughs. A small, exhausted laugh. "We've been doing this for six months," she says. "Kissing you from across rooms. From behind your chair. I am going to have to be a very different woman to do that for the rest of our lives."
 
-He grins. That crooked half-grin that makes something in her chest do flip turns. "You're not going to have to do anything different. You'll just — be there. And I'll be there. And we'll be married."
+He grins, that crooked half-grin that makes something in her chest do flip turns. "You're not going to have to do anything different. You'll just — be there. And I'll be there. And we'll be married."
 
 "Married," she repeats, like she's tasting the word. "Yes. Okay. That works."
 
 She tugs at his belt buckle. The clink is loud in the quiet hallway. "But we have time tonight. For the first time in six months, nobody is coming to interrupt us. We can do this without counting minutes."
 
-He unbuttons his shirt. Slowly. Deliberately. "Show me."
+"Show me," he says.
 
-She pushes the shirt off his shoulders, steps out of her tunic, and kicks off her boots. She's wearing cotton shorts and an old band t-shirt underneath — the one she wears to sleep. He stares at it. "Where did you get that?"
+She pushes his shirt off his shoulders and steps out of her tunic, kicking off her boots. She's wearing cotton shorts and an old band t-shirt underneath — the one she wears to sleep. He stares at it. "Where did you get that?"
 
 "Don't ask."
 
-"I'm not asking." He laughs. The sound is easy, unfamiliar in this house. It fills the hallway like warmth. He kisses her collarbone, then her shoulder, then her throat. She tilts her head back and lets him. His hands find the waistband of her shorts. He doesn't pull them off. He just rests his fingers there — warm, waiting. "Can I?"
+"I'm not asking." He laughs, the sound easy and unfamiliar in this house, filling the hallway like warmth. He kisses her collarbone, then her shoulder, then her throat. She tilts her head back and lets him. His hands find the waistband of her shorts. He doesn't pull them off — not yet. Just rests his fingers there, warm and waiting. "Can I?"
 
-She nods. "Yes. Please."
+"Yes," she says. "Please."
 
-He lays her back on the bed. Not urgent. Not frantic. Just gentle, like she's something he's been holding too long and finally gets to set down. She reaches up, pulls him down beside her. They're face to face now, close enough that she can see the flecks of amber in his gray eyes. Close enough to count his breaths.
-
-She runs her fingers through his hair — short, stubble, real. "You have so many scars," she says. "I feel like I've been reading a map of your life."
+He lays her back on the bed — not urgent, not frantic, just gentle, like she's something he's been holding too long and finally gets to set down. She reaches up, pulls him down beside her. They're face to face, close enough that she can see the flecks of amber in his gray eyes. Close enough to count his breaths. She runs her fingers through his hair — short, stubble, real. "You have so many scars," she says. "I feel like I've been reading a map of your life."
 
 "That's the thing about maps," he says. "They get worn out."
 
-She smiles. Then she finds the hem of his t-shirt and tugs it over his head. His chest is a patchwork — old knife wounds, healing slashes, the faint white line where a rogue bit deep. She traces one with her fingertip. "This one?"
+She smiles, finds the hem of his t-shirt and tugs it over his head. His chest is a patchwork — old knife wounds, healing slashes, the faint white line where a rogue bit deep. She traces one with her fingertip. "This one?"
 
 "Pack dispute. I was twenty-one."
 
@@ -226,59 +224,77 @@ She smiles. Then she finds the hem of his t-shirt and tugs it over his head. His
 
 "Hollow King scout. Six months ago."
 
-She kisses the scar. Right on the skin. He inhales sharply. "Amelia."
+She kisses the scar — right on the skin. He inhales sharply. "Amelia."
 
 "You keep carrying them alone," she says. "I'm not carrying them alone anymore."
 
-He pulls her t-shirt over her head. His hands are on her breasts — both of them, warm and rough and certain — thumbs brushing her nipples until they harden under his touch. She arches into it. He laughs. "Sorry."
-
-"Never sorry." She shifts her leg over his hip and presses her bare belly to his. The feeling of skin on skin, real and immediate, makes her eyes close. He's hard — already, for her, always, she thinks — and she wraps her hand around him, strokes once, feels him twitch against her palm. "Look at you," she murmurs. "You're ridiculous."
+She pulls his pants down, kicks them off, and he follows, stripping off his own shorts. She takes off her t-shirt and he does the same. Skin on skin, the feeling is immediate and electric. He's already hard, already aching, and she wraps her hand around him, strokes once, feels him twitch against her palm. "Look at you," she murmurs. "You're ridiculous."
 
 "I am an Alpha. I have standards."
 
-She groans, half laugh, half groan. "Standards. Right." She lines him up at her entrance. Doesn't rush. Sits on his hand first. Feels the stretch, the burn, the fullness. Her breath hitches. "Okay. That's — that's really big."
+"Standards, right?" She lines him up at her entrance — doesn't rush, just sinks down onto him, one inch, then two, her thighs trembling as he catches them with his hands. Her breath hitches. "Okay. That's — that's really big."
 
 "You said that last time."
 
-"This is — different. Last time was — adrenaline and battle. This is — you're just there. And it's — wow."
+"This is different. Last time was adrenaline and battle. This is — you're just there. And it's — wow."
 
 He's quiet for a second. Then: "It's you."
 
-She guides him in — slowly, one inch, then two. Her thighs tremble, and he catches them with his hands. She settles down onto him fully. Her body takes him, and both of them gasp. He's buried inside her, not moving yet, just breathing. "Tell me what you need," he says.
+She settles down onto him fully, both of them gasping, his cock buried to the hilt. He doesn't move yet, just holds her face between his hands. "Tell me what you need," he says.
 
-She thinks about it. Then: "Nothing yet. Just — stay like this."
+"Nothing yet," she says. "Just stay like this."
 
-He does. They lie together, her weight on him, his hands on her waist, her head on his chest. The bond hums between them — not urgent, not desperate, just steady and warm, like a fire after a long night in the cold. She traces the scars on his back with her fingertip. He traces the moon tattoo on her wrist with his thumb.
-
-"Six months," she whispers. "Six months of almost."
+She does. They lie together, her weight on him, his hands on her waist, her head on his chest, the bond humming between them warm and certain like a fire banked for the night. She traces the scars on his back with her fingertip while he traces the moon tattoo on her wrist with his thumb. "Six months," she whispers. "Six months of almost."
 
 "We're not almost anymore."
 
-"No." She lifts her head. Looks at him. His eyes are open now, steady, watching her. "Not anymore."
+"No." She lifts her head, looks at him. His eyes are open, steady, watching her. "Not anymore."
 
-She starts to move in slow circles, shallow at first, then deeper. He matches her pace, one hand sliding up to her breast while the other stays on her waist. She leans forward, mouth on his collarbone, then his jaw, then his mouth — a kiss that's all patience and no rush. Her walls clamp around him with every circle. He groans. "You're killing me," he says.
+Then she shifts, starts to move in slow circles, and his hands grip her hips. She leans forward, mouth on his collarbone, then his jaw, then his mouth — a kiss that's all patience and no rush. Her walls clamp around him with every circle. He groans. "You're killing me," he says.
 
-"Good." She increases the pace. Slow, deliberate circles that drag against everything inside her. He rolls his hips to meet her. The friction is maddening. She can feel his pulse in his cock, hammering against her. She reaches down, guides him, adjusts the angle — and he gasps. A real gasp. Broken. "There?" she says. "Is that —?"
+"Good." She increases the pace, slow deliberate circles that drag against everything inside him. He rolls his hips to meet her, the friction maddening, and she can feel his pulse in his cock hammering against her. "There," she says, guiding him slightly to the left. "Is that —?"
 
 "Don't stop."
 
-She doesn't stop. Her pace picks up, the bed creaking as his hands settle on her hips — not pushing, just holding, feeling her move over him. She drops down, breasts brushing his chest, and kisses him — deep, slow, a kiss that says *we made it* — and he feels it through the bond: not urgency, not fear, but a certainty so deep it makes his chest ache. She comes first, her body stilling around her, a soft sound escaping as her forehead drops to his shoulder. He holds her through it, one hand in her hair, the other on her back, pulling her closer.
+She doesn't. Her pace picks up, the bed creaking as his hands settle on her hips, not pushing, just holding. She reaches down, wraps her hand around his cock, strokes in time with her hips, and he groans loudly, completely unfiltered. "Amelia, fuck —"
 
-When she lifts her head, her eyes are shiny. "I'm okay," she says.
+"Who's cursing?" she says, laughing, the sound bright in the quiet room. "The good Alpha?"
 
-"I know." He sits up, flips her gently onto her back, and lies on his elbow above her. One hand slides between them, finds her, circles with two fingers. Her back arches, her mouth falling open. "Look at you," he murmurs.
+"Never had a problem with it before." He slides one hand up, finds her breast, cups it, his thumb circling her nipple while the other hand returns to her hip, keeping her rhythm. "You're torturing me on purpose."
 
-She shakes her head, laughs, breathless. "Your turn."
+"I'm enjoying it immensely." She leans forward and mouths at his collarbone, then his nipple, taking it between her lips, and he bucks against her, sharp and sudden. "Oh, that's — that's really good. Your turn." She reaches between them, wraps her hand around his cock, strokes him fast and firm to the base, and he groans, a low broken sound that he would never make in front of the pack.
 
-He thrusts up — once, twice, three times. The angle is perfect, the friction unbearable. He's close. So close. He grips the sheets, breathes. "Amelia —"
+"Amelia — I'm —"
 
-"Come," she says. Not commanding. Not demanding. Just permission.
+"Come," she says, not commanding, just permission, and he does, his hips bucking, his cock pulsing inside her, hot and thick, a groan tearing from his throat as she holds his face with both hands, thumbs on his cheekbones. "I've got you," she whispers. "I've got you."
 
-And he does. His hips buck, his cock pulsing inside her — hot, thick. A groan tears from his throat, loud and unfiltered, the kind of sound he would never make in front of the pack. She holds his face with both hands, thumbs on his cheekbones. "I've got you," she whispers. "I've got you."
+He collapses against her, forehead to her shoulder, arm wrapped tight around her waist, breathing ragged but slowly easing. She strokes his hair back and forth, his body warm and heavy and alive against hers, the bond between them quiet now — satisfied, full. The kind of quiet that comes after a long storm has finally broken.
 
-He collapses, forehead to her shoulder, arm wrapped tight around her waist. His breathing is ragged, slowly easing. She strokes his hair back and forth. The bond between them is quiet now. Satisfied. Full. The kind of quiet that comes after a long storm has finally broken.
+They stay like that for a long time, neither of them speaking. The house settles around them. Somewhere in the compound, a fire crackles.
 
-They stay like that for a long time. Neither of them speaking. The house settles around them. Somewhere in the compound, a fire crackles.
+"You first," he says finally, rolling her onto her back, his body covering hers, his cock softening but still half-inside her, still touching, still connected. "I need you on top again. I want to watch you."
+
+"Greedy."
+
+"Alpha." He pushes up on his elbows, watching as she rises above him, and when she sinks back down onto his cock — already hardening again, already thick inside her — he groans at the sight of her, hair messy, chest flushed, his cock buried in her. "Look at you. Absolutely — God, Amelia."
+
+She takes her time at first, rolling her hips in slow circles, letting him get used to the stretch, the fullness, the way her body takes him. He watches her, unblinking, his hands resting on her hips, thumbs pressing into her skin, and she laughs — actually laughs — at how intense he looks, jaw clenched, eyes dark, completely transfixed on her riding him.
+
+"Stop looking at me like that," she says, picking up speed, her breasts bouncing with each roll of her hips.
+
+"Like what?"
+
+"Like you're memorizing me."
+
+"Like I just found something I thought was lost forever." His voice is rough, but there's a grin on his face, the crooked half-grin again. "Is that so wrong?"
+
+"Shut up and let me finish this." She picks up the pace, fast now, her walls clenching around his cock with every downward roll, his hands finally gripping her hips hard enough to bruise, and she groans as the friction builds, as the tight, burning knot of pleasure coils at the base of her spine, as she feels him thick and hard inside her, hitting all the right places. "Victor —"
+
+He reaches up, grabs her breast, squeezes her nipple between his fingers while his other hand slides between them, finding her clit, circling it fast and firm, and she cries out, her body convulsing around his cock, walls clamping down, pulsing, milking him. "You're so tight," he groans, his thrusts becoming desperate now, hips snapping up to meet her, buried deep, and she feels the heat building in his groin, the pressure, the urgency.
+
+"Let go," she says, riding him harder, faster, her nails digging into his shoulders. "I've got you. Let go."
+
+He does, his cock pulsing inside her, hot and thick, spilling into her as he bottoms out with a groan, his body going rigid, his hands gripping her hips like she's the only thing keeping him anchored to the earth. She stays down on him, riding out the last tremors, her forehead resting against his, their breaths mingling, the bond wide open between them, warm and steady and completely unbroken.
 
 "Okay," she says finally.
 
