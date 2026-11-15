@@ -356,45 +356,39 @@ He pulls her against him. Her body against his. Her head on his chest. His arm a
 
 "I'm not going anywhere."
 
-She kisses him, desperate to show him how much he means to her, hands tugging gently in his hair. Then gripping on to his shirt, pulling him closer as he kisses her back with the same hunger. His hands gripping her waist, pulling her to him.
+He pulls her against him. Her body against his. Her head on his chest. His arm around her waist. Her leg over his. He presses his forehead to hers. Closes his eyes.
 
-They move to the bed. Falling back, she climbs on top, straddling him with knees on each side of his hips. Her hands are on his chest, pushing and rubbing. "Clothes off," she says. "All of it. I need you bare."
+"Stay," she says.
 
-He sits up. Helps her. She pulls her shirt over her head. Throws it aside. Her breasts spill free. He looks at her. Gray eyes dark. Pupils blown wide. His hands find her breasts. Cupping them. Squeezing. Thumbs pressing over her nipples.
+"I'm not going anywhere."
 
-She leans forward, takes his mouth, tongue tangling with his, desperate, hungry, her body grinding slowly against his, her ass against his cock. He's hard as a rock, pulsing and so thick.
+She kisses him — slow at first. Testing. Seeing if he'll dissolve into mist. He kisses her back with a tenderness that cracks something open in her chest. Hands sliding under her shirt, warm palms against bare skin. She tugs her shirt over her head. Throws it aside. He watches her. Eyes soft. Not hungry. Not desperate. Just... her. She reaches for the buttons of his jeans. Slow. Deliberate. Each button. Each movement. Grounding them both.
 
-He flips her on her back and gently puts her on him. His mouth hungrily finds her breast. He sucks her nipple in circling it while sucking harder. She throws her head back and lets out a needy groan. Her hands grab his shoulders, nails digging in.
+He sits back against the headboard. Pulls her into his lap. Facing him. Legs wrapping around his waist. Her bare back to his chest. His hands find hers. Press them flat against his chest — over his heart. Feeling the beat. Steady. Real. "Feel that?" he whispers. "That's you. It's always you."
 
-She kicks off her panties, desperate for him. He's so hard and thick, and pulsing and so wet. She wraps her fingers around him and strokes it once and then again. She hears his breath hitch and feels his hips jerk as she strokes it again, feeling it twitch in her hand.
+She turns in his grip. Faces him. Straddles him. Knees bracketing the bed on either side of his hips. Her hands slide up his chest. Over his shoulders. Down his arms. Then back up — fingers tangling in his hair. Tilting his face to hers. The kiss is deep. Slow. Searching. She's looking for the hollow king's ghost in his mouth. She finds only him. Only Victor. Warm. Present. Alive.
 
-She can't take it anymore and lines his cock up to her entrance, desperate. The head presses against her entrance. She is wet. Slippery. He pushes. Inches at a time. The stretch is intense. Burning. She gasps. Her nails dig into his shoulders. Her breath comes in sharp bursts. He pauses. Lets her adjust.
+She reaches between them. Finds him already hard. Already waiting. Wraps her fingers around the base. Strokes once. Slow. Deliberate. His jaw tightens. Eyes close. "Amelia—", he starts. She doesn't let him finish. Lines him up at her entrance. Slowly lowers herself. One inch. Two. The stretch is immediate. Burning. She stops. Bows her head. Rests her forehead against his. Breathing. Letting him in. Letting herself in.
 
-"Okay?" he asks.
+"Keep going," he whispers.
 
-"Yes. Keep going."
+She settles down. All the way. Her body takes him. Her walls clamp around him. His hands find her hips. Not pushing. Just holding. Anchoring. She lifts up. Slow. Deliberate. Then sinks back down. A soft gasp escapes her. He groans. A low, broken sound. But he doesn't rush. He lets her set the pace. One circle. Two. His hands slide up to her waist. Fingers tracing the curve of her ribs. "You feel incredible," he says. "Every inch. Every second."
 
-He pushes in deeper and deeper as his hips move forward. The rest of him slides in. Her body stretches around him. She gasps as she takes him. Her head falls back and she lets out a moan of satisfaction, Her body accepts all of him down to the hilt. He stretches her to the limit and her walls clamp down around him the feeling overwhelming.
+She leans forward. Mouth on his neck. Teeth on his collarbone. "Don't stop," she whispers.
 
-He groans, a low deep groan, drops his forehead to hers, his hands grabbing her hips, his fingers digging into her skin. She does not feel any pain, just pure pleasure. "You're so tight."
-
-"Victor," she says. Her voice is breathless. Broken. "Harder. Please. Harder."
-
-He pulls back slowly, almost all the way out, and then slams back in. The impact rocks her. Her breath catches. He pulls back. Drives in again. The rhythm is steady. Relentless. Each thrust is deeper than the last. Her body moves with his. Her legs tighten around his waist. Her nails leave marks on his shoulders. His cock hits deep inside her. The pressure builds. Low. Aching. Spreading.
-
-He lifts his head. Watches her. Her eyes are closed. Her lips are parted. Her chest heaves. Her skin is flushed. All of her muscles lock up. Ready. He drives in harder. Faster. His hips slam against hers. The bed shakes beneath them. Her breath comes in gasps. Her thighs tremble. Her walls clamp down around his cock.
+He moves. Slow at first. Building. His hands find hers again. Press them to his chest. "Feel that? It's yours. It's always been yours." She feels it. The beat of his heart. Accelerating. Matched to the rhythm of her hips. Her hands grip his shoulders. Nails digging in. Not from pain. From feeling. From the sheer weight of being this close. This real.
 
 "Look at me," he says.
 
-She opens her eyes. Gray meets gray. He groans. A low, broken sound. His thrusts grow faster. Deeper. Her body meets his with every stroke. Her legs tighten around his waist. Her nails dig into his back. Her breath comes in sharp, broken bursts. The pressure builds. Higher. Tighter. Closer.
+She lifts her head. Brown eyes meet amber. The bond flares wide open between them. Not a flood. A floodgate opening. Slow. Inevitable. She feels his love before she feels his words. Feels his pride. His fear. His certainty. And she gives him everything back.
 
-"I am close," she says. "Victor..."
+He groans. The rhythm changes. Faster. Deeper. She meets him. Each thrust is a promise. Each circle is a vow. "I'm close," she breathes. "Victor—". His hands slide up. Cup her face. Thumbs brushing her cheekbones. "Let go," he says. "I've got you. I've always got you."
 
-"Come for me," he says. "Come and let me hear you."
+She does. Her body convulses. A soft, broken sound. Her walls clamp around him. Her nails dig into his shoulders. Her thighs tremble. He holds on. Barely. Her warmth pushes him to the edge. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. A low groan. His forehead drops to her shoulder. His body locks. Shakes.
 
-She does. Her body convulses. Her walls clamp down around his cock. She screams. A long, broken sound. Her back arches off the bed. Her nails tear into his back. Her thighs clamp around his waist. Her eyes are wide. Uncaring. Her body shakes.
+She holds him. Arms wrapping around his neck. Pulling him close. His weight presses into her. Warm. Heavy. Alive. She feels him heartbeat against her chest. Steady now. Slowing. Matching hers. "I'm here," she whispers. "I'm right here."
 
-He holds on. Barely. Her climax pushes him closer to the edge. The pressure in his groin is unbearable. Thick. Burning. Needing. He thrusts once. Twice. Three times. And breaks. His hips slam against hers. His cock pulses inside her. Hot. Thick. Spilling into her. His breath catches. His body locks. Shakes. Groans.
+The compound is quiet outside. The Hollow King's whispers have faded. The bond is stronger now. Stronger than before. The wall is holding.
 
 He presses his face into her hair. She holds him. His arms wrap around her waist, pulling her flush against him. They breathe together, heartbeats slow from frantic to steady.
 
