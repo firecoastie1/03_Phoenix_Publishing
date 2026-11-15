@@ -10,7 +10,7 @@ She is making tea. He is sharpening his knives. They are in the kitchen the way 
 
 She watches him from across the table. The way his jaw is set, focused on the steel. The way his shoulders are loose in a way she has never seen before. The way the morning light catches the silver in his hair that wasn't there before the war. She thinks about how close they came to losing all of this. To losing him. And she feels something in her chest tighten.
 
-She reaches across the table. Her hand finds his. He doesn't look up, but his knife stops moving. His fingers turn, just slightly, until they are laced with hers. Warm. Solid. His.
+She reaches across the table. Her hand finds his. He doesn't look up, but his knife stops moving. His fingers turn, just slightly, until they are laced with hers.
 
 She has been carrying something for weeks. She told herself it was stress. The exhaustion of healing a hundred wounded pack members while her own body screamed for rest. She told herself it was nothing. But last night, when she couldn't sleep, when the nausea came again and her hands shook holding her grandmother's mug, she knew.
 
