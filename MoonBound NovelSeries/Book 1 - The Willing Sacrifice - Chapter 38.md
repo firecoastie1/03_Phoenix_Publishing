@@ -256,7 +256,7 @@ Then she shifts, starts to move in slow circles, and his hands grip her hips. Sh
 
 "Don't stop."
 
-She doesn't. Her pace picks up, the bed creaking as his hands settle on her hips, not pushing, just holding. She reaches down, wraps her hand around his cock, strokes in time with her hips, and he groans loudly, completely unfiltered. "Amelia, fuck —"
+She doesn't. Her pace picks up, the bed creaking as his hands settle on her hips, not pushing, just holding. Her hand on his hip brushes his shaft near the base, and she wraps her fingers around it, strokes in time with her hips, and he groans loudly, completely unfiltered. "Amelia, fuck —"
 
 "Who's cursing?" she says, laughing, the sound bright in the quiet room. "The good Alpha?"
 

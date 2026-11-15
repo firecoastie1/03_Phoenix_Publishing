@@ -360,7 +360,7 @@ He pulls her against him. Her body against his. Her head on his chest. His arm a
 
 She kisses him slowly at first, testing to see if he'll dissolve into mist. He kisses her back with a tenderness that cracks something open in her chest, his hands sliding under her shirt, warm palms against bare skin. She tugs her shirt over her head and throws it aside. He watches her, eyes soft—no hunger, no desperation, just... her. She reaches for the buttons of his jeans, slow and deliberate, each button, each movement, grounding them both.
 
-He sits back against the headboard and pulls her into his lap, her facing him, legs wrapping around his waist, her bare back to his chest. His hands find hers and press them flat against his chest—over his heart, feeling the beat, steady and real. "Feel that?" he whispers. "That's you. It's always you."
+He sits back against the headboard and pulls her into his lap, her straddling him, legs wrapping around his waist, her bare back to his chest. His hands find hers and press them flat against his chest—over his heart, feeling the beat, steady and real. "Feel that?" he whispers. "That's you. It's always you."
 
 She turns in his grip and faces him, straddling him, knees bracketing the bed on either side of his hips. Her hands slide up his chest, over his shoulders, down his arms, then back up with fingers tangling in his hair, tilting his face to hers. The kiss is deep, slow, searching—she's looking for the Hollow King's ghost in his mouth, but she finds only him. Only Victor. Warm. Present. Alive.
 

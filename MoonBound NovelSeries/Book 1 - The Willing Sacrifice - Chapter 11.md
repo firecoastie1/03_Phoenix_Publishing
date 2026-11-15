@@ -1,3 +1,5 @@
+# Chapter 11: The Human Who Won't Leave
+
 Amelia
 
 She should have been sleeping. She should have been lying on the narrow bed in the guest quarters, staring at a ceiling she didn't recognize, trying to process everything that had happened in the last twelve hours. Instead, she was sitting on the floor, it seemed, leaning against the wall, her legs stretched out in front of her, her hands in her lap, and trying very hard not to think about the man she had met exactly two days ago.
