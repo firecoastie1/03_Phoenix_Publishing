@@ -1,5 +1,4 @@
-Chapter 19
-The Border Dispute
+# Chapter 19: The Border Dispute
 
 VICTOR
 
