@@ -2,13 +2,13 @@
 
 Amelia
 
-Something was wrong with the woods. Not wrong in a way she could name. Not a sick tree or a dead animal or a broken branch. Wrong in the way you know something's wrong when the silence feels different, when the birds don't sing where they should, when the air smells like nothing at all and that terrifies you more than a bad smell would.
+Wrong in the way silence changes, when the birds don't sing where they should, when the air smells like nothing at all.
 
-Amelia knew the woods. She'd spent her whole life near them, walking through them, gathering herbs in them, knowing every path and every clearing and every place where the light fell through the canopy in a particular way. She knew what a healthy forest sounded like.
+Amelia knew the woods. She'd spent her whole life near them, walking through them, gathering herbs, knowing every path and clearing and the way light fell through the canopy. She knew what a healthy forest sounded like.
 
 This wasn't healthy.
 
-She'd been thinking about it for days. Thinking, wondering, trying to put her finger on something she couldn't quite name. She told herself it was nothing. It was the season. It was the weather. It was nerves from the rumors people were spreading.
+She'd been thinking about it for days. Trying to put her finger on something she couldn't quite name. She told herself it was nothing. It was the season. It was the weather. It was nerves from the rumors people were spreading.
 
 But her hands were still tingling.
 
@@ -36,7 +36,7 @@ She wasn't a foolish woman. She knew the risks. She packed supplies, dried food,
 
 The tingling in her hands got stronger the further she went.
 
-By the time she reached the edge of the tree line, her fingers were vibrating. She stopped. She looked at them, pale, ordinary, scarred from a thousand small cuts and burns. She didn't understand why they were tingling. She didn't understand why her chest felt tight. She didn't understand why the pull in her bones felt like something reaching for her, like a hand stretching across the dark, trying to find something it couldn't name.
+By the time she reached the edge of the tree line, her fingers were vibrating. She stopped. She looked at them, pale, ordinary, scarred from a thousand small cuts and burns. She didn't understand why they were tingling. She didn't understand why her chest felt tight. Didn't understand why the pull in her bones felt like something reaching for her, like a hand stretching across the dark.
 
 She told herself it was the cold.
 
@@ -48,7 +48,7 @@ She walked into the forest.
 
 The deeper she went, the stranger it got.
 
-The air felt thick, not humid, not heavy with rain, but dense, like standing too close to something that was humming. A low vibration that she could feel in her skin but not hear with her ears. It was the kind of feeling that made the back of her neck prickle, that made her want to run, but also, made her want to stay.
+The air felt thick — not humid, not heavy with rain, but dense, like standing too close to something humming. A low vibration she could feel in her skin but not hear.
 
 She couldn't explain it.
 
@@ -82,7 +82,7 @@ She stopped. She breathed. She turned around and looked at the forest.
 
 It looked normal. Just trees. Just shadows. Just quiet.
 
-She didn't know what she'd seen. She didn't know what she'd felt. But she knew, with a certainty that sat deep in her bones, that something was out there. Something on the other side of something she couldn't name. Something that was watching.
+She didn't know what she'd seen. She didn't know what she'd felt. But she knew, with a certainty that sat deep in her bones, that something was out there. Something on the other side of something she couldn't name.
 
 She didn't go back that night.
 

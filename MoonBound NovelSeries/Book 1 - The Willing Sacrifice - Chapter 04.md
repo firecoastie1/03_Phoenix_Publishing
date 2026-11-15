@@ -4,13 +4,13 @@ The pull didn't let her sleep.
 
 It wasn't a pain — not exactly. But it was there, persistent and low, like a hum that lived behind her ribs and wouldn't quiet. She lay on her back, staring at the ceiling, trying to figure out what it was that she was feeling. Something. Someone. The word didn't fit, but neither did the ache in her chest.
 
-She was tired by the time she gave up. The kind of tired that comes from lying still for too long, from letting your body do nothing while your mind works itself into a knot. She got up, made tea, and fed Luna. She sat at the kitchen table and let the quiet settle around her like a blanket she couldn't shake.
+She was tired. The kind of tired that comes from lying still too long, from letting your body do nothing while your mind works itself into a knot. She got up, made tea, and fed Luna. She sat at the kitchen table and let the quiet settle around her like a blanket she couldn't shake.
 
 The pull didn't go away.
 
 ---
 
-The morning was cool and damp with the kind of fog that comes off the ground before the sun has a chance to burn it off. Amelia walked through the tall grass toward the edge of the woods, a canvas satchel slung over her shoulder, her boots sinking slightly into the damp earth. The boundary was a line she'd crossed a hundred times without thinking about it. It was just a fence post and a rusted wire marking the edge of her garden and the beginning of someone else's land. But sometimes, usually at dusk, when the light was low and the shadows were long, she could feel the difference. The forest didn't just start at the boundary. Something changed there, something subtle, like the air itself getting heavier.
+The morning was cool and damp with fog, thick and low over the ground. Amelia walked through the tall grass toward the edge of the woods, a canvas satchel slung over her shoulder, her boots sinking slightly into the damp earth. The boundary was a line she'd crossed a hundred times without thinking about it. It was just a fence post and a rusted wire marking the edge of her garden and the beginning of someone else's land. But sometimes, usually at dusk, when the light was low and the shadows were long, she could feel the difference. The forest didn't just start at the boundary. Something changed there, something subtle, like the air itself getting heavier.
 
 Today was no different.
 
@@ -24,7 +24,7 @@ It was sharp, sudden, and stronger than before — a hook sinking into her chest
 
 "Damn it," she muttered.
 
-It wasn't the same as last night. Last night had been a whisper. This was a shout. Her hands, her hands started tingling, the same electric sensation crawling up from her fingertips and spreading through her arms like ice water. She stared at them. They were trembling. Not from cold. From something else. Something she couldn't name.
+It wasn't the same as last night. Last night had been a whisper. This was a shout. Her hands, her hands started tingling, the same electric sensation crawling up from her fingertips and spreading through her arms like ice water. She stared at them. They were trembling. Not from cold. From something else.
 
 She looked around. The fog was rolling in from the north. The forest was gray and shapeless beyond the fence line. She couldn't see anything through the mist. But she could feel it, the pull, the tension, the invisible thread stretching from her chest toward the trees.
 
@@ -52,9 +52,9 @@ He looked around. Tree line to tree line, nothing but the road, the forest, and 
 
 But the feeling didn't fade. It didn't weaken. It stayed, steady and unwavering, like a compass needle locked on true north.
 
-He'd felt things like this before. The pull of the pack, the weight of the Alpha bond, the call of the full moon. But this was different. This was personal. This was his body reacting to something his mind couldn't explain, like standing too close to a speaker and feeling the bass in your chest without hearing the music.
+He'd felt things like this before. The pull of the pack, the weight of the Alpha bond, the call of the full moon. But this was different. This was personal. His body was reacting to something his mind couldn't explain.
 
-He exhaled slowly. He told himself it was the same feeling from last night, the moon pull, the pressure, the sense that something was shifting. He told himself a lot of things. Most of them were lies.
+He exhaled slowly. He told himself it was the same feeling from last night, the moon pull, the pressure. He told himself a lot of things. Most of them were lies.
 
 His hands were tingling.
 

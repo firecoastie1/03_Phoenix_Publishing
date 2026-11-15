@@ -2,19 +2,19 @@
 
 The morning started the way mornings always did — with silence. Not the deep, empty silence of a house where nobody lived, but the quiet hum of a place that was entirely hers. Sunlight came through the kitchen window in a slanted rectangle, catching dust motes that drifted like slow snow. The kettle sat on the stove, the stove sat on the counter, the counter sat next to a window that looked out at the tree line and beyond that, the edge of a forest nobody in town talked about unless they were drunk.
 
-Amelia Wren stood at that counter with a chipped blue mug in her hand and the kind of stillness that came from living alone long enough to appreciate it.
+Amelia Wren stood at that counter with a chipped blue mug in her hand, still as someone who'd lived alone too long.
 
 Her cat, a scarred slate-black cat named Luna with orange eyes who looked permanently unimpressed by everything, jumped onto the counter and stared at her. She set the mug down and opened a tin of fish. Luna ate like she was doing her a favor.
 
 She poured tea, carried it to the table, and sat. On her left wrist, half-hidden under the cuff of her sweater sleeve, a crescent moon tattoo pressed against her skin. Inked by her grandmother when she was twelve, *"so you remember that you come from someone who knows how to read the sky."* Amelia had been fifteen when her grandmother died. She was twenty-six now. The tattoo was the only thing she had left of her that felt sacred.
 
-She drank her tea. She ate toast. She looked at the window. The trees were still. Too still for this time of morning, the birds should have been singing by now, but the forest had been quiet for weeks. Not peaceful quiet. Holding-its-breath quiet. The kind of silence that made the hair on the back of her neck want to stand up.
+She drank her tea. She ate toast. She looked at the window. The trees were still. Too still for this time of morning, the birds should have been singing by now, but the forest had been quiet for weeks. Not peaceful quiet. Holding-its-breath quiet.
 
 She told herself it was nothing.
 
 ---
 
-The clinic wasn't much, a small stone building on the edge of town, the kind of place that looked like it had always been there even though Amelia had only opened it six months ago. The sign out front said *Amelia Wren, Herbalist & Healer* in letters her grandmother had painted decades ago, and below that, in smaller script, *By Appointment, or If You're Bleeding, Come Anyway.*
+The clinic wasn't much, a small stone building on the edge of town that looked as if it had been there forever. The sign out front said *Amelia Wren, Herbalist & Healer* in letters her grandmother had painted decades ago, and below that, in smaller script, *By Appointment, or If You're Bleeding, Come Anyway.*
 
 She didn't need to tell anyone she was open. People knew. Word traveled through this part of the county faster than cell service ever could, and word was that Amelia Wren could fix what the doctor couldn't, or wouldn't.
 
@@ -36,7 +36,7 @@ He looked up. His eyes were wide, dark, and young. "Nothing. Just... lost my foo
 
 She didn't push. She'd learned that lesson early, some people didn't want answers. They just wanted the bleeding to stop so they could go back to pretending everything was normal.
 
-She watched him leave through the window. He walked fast, eyes on the ground, shoulders hunched like he was carrying something heavier than his pack. He looked back once at the tree line behind him, like he expected something to be there. He was probably right to.
+She watched him leave through the window. He walked fast, eyes on the ground, shoulders hunched like he was carrying something heavier than his pack. He looked back once at the tree line behind him. He was probably right to.
 
 Amelia washed her hands, locked the front door, and sat down at her desk. She opened a notebook, blank pages waiting for her own notes, her own remedies, her own thoughts. She didn't write in it much. Most of what she knew lived in her hands, in the feel of a pulse under her fingers, in the way a wound looked and smelled and bled. But sometimes, usually at night, when the house was quiet and Luna was curled on her feet and the silence felt less like peace and more like absence, she wrote things down.
 
@@ -84,7 +84,7 @@ Her cottage was small, one story, stone walls, a thatched roof, a garden out bac
 
 She let Luna in first, locked the door, and set the kettle on. She changed out of her work clothes into a soft cotton shirt and loose pants, made tea, and ate a bowl of broth. She sat at her small kitchen table and let her hands rest on the wood grain, feeling the warmth of the cup through her palms.
 
-The house was quiet. It was always quiet. Not the kind of quiet that meant peace, the kind that meant emptiness. A space where somebody else's footsteps should echo. A voice that should answer back. A hand that should reach across the table and touch hers.
+The house was quiet. It was always quiet. Not peaceful. Empty. A space where somebody else's footsteps should echo. A voice that should answer back. A hand that should reach across the table and touch hers.
 
 She didn't think about it much. She'd learned, over the years, to just sit with the silence and let it be what it was. It was calmer that way. Less painful.
 
@@ -100,7 +100,7 @@ You are fine.
 
 Everything is fine.
 
-She told herself it was fine a lot. Sometimes she wondered if it was enough.
+She said it often enough to almost believe it. Sometimes she wondered if it was enough.
 
 ---
 
@@ -114,7 +114,7 @@ Luna blinked slowly. It was the closest thing to agreement she'd get.
 
 She set her mug down and turned away from the window. She was about to head to the bedroom when it hit her.
 
-A sharp, sudden pull in her chest. Like something had hooked into her heart and yanked.
+A sharp, sudden pull in her chest. A hook, yanking.
 
 She froze. Her breath caught. Her hands, her hands started tingling, a strange, electric sensation that crawled up from her fingertips and spread through her arms like ice water.
 
@@ -122,7 +122,7 @@ She gripped the edge of the table. Her eyes went wide.
 
 "What—"
 
-It wasn't pain. It wasn't anything she could name. It was a physical sensation, like gravity had shifted and everything in her body was tilting toward something she couldn't see. She looked around the room. The same room she'd been standing in three seconds ago. The same table. The same window. The same trees outside.
+It wasn't pain. Gravity had shifted. Everything in her body was tilting toward something she couldn't see. She looked around the room. The same room she'd been standing in three seconds ago. The same table. The same window. The same trees outside.
 
 But the pull didn't stop. It didn't even ease.
 
@@ -132,7 +132,7 @@ Her chest ached. Her hands vibrated. Her heart hammered against her ribs like it
 
 She took a step forward. Then another. She didn't know where she was going. She just knew that standing still was worse than whatever this was.
 
-She walked to the door. She opened it. The night air hit her face, cool and clean and smelling of pine and something else, something she couldn't name but recognized in the same way she recognized the tingling in her hands: like a feeling she'd had before, long ago, in a dream, and couldn't place.
+She walked to the door. She opened it. The night air hit her face, cool and clean and smelling of pine and something else, something she couldn't name but recognized—a dream she'd had, long ago, that she couldn't place.
 
 She stepped onto the porch.
 
@@ -146,4 +146,4 @@ She told herself it was nothing.
 
 She told herself it was nerves; it was exhaustion; it was the weather.
 
-She stood on her porch, her hands shaking, her heart racing, and watched the trees in the dark, wondering why something she couldn't name felt more real than anything she'd ever known.
+She stood on her porch, her hands shaking, her heart racing, and watched the trees in the dark, wondering why the unnamed feeling felt more real than anything she'd ever known.

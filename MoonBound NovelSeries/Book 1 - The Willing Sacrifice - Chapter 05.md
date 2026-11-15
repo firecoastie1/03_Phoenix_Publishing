@@ -2,7 +2,7 @@
 
 The morning started like any other — with the smell of coffee and the sound of boots on the porch, followed by a cough in the doorway.
 
-Amelia's clinic smelled like the same things it always did — antiseptic, dried herbs, the faint scent of liniment from the jars lined along the shelves. Normal smells. Predictable smells. The kind of smells that made the world feel safe.
+Amelia's clinic smelled like the same things it always did — antiseptic, dried herbs, the faint scent of liniment from the jars lined along the shelves. Normal smells. Predictable smells. Safe.
 
 She made herself a cup of coffee, opened the front door, and went to work.
 
@@ -20,7 +20,7 @@ She treated all of them. She did everything right. She knew what she was doing.
 
 But her hands were tingling. She told herself it would fade. It always faded. It had faded the night before, hadn't it?
 
-It faded again by afternoon. But it didn't go away completely. It lingered, a low hum in the back of her palms, like electricity after a storm, not enough to feel, but enough to know it was there.
+It faded again by afternoon. But it didn't go away completely. It lingered, a low hum in the back of her palms. Like electricity after a storm — present but faint.
 
 She told herself it was fine.
 
@@ -34,7 +34,7 @@ Victor rode back to the compound after dark.
 
 His horse was tired. So was he. He'd spent the last four hours riding the northern boundary, checking the markers, looking for signs, trying to find whatever it was that had moved his heart and his hands and his mind in a direction he couldn't control. He hadn't found anything. No tracks. No scent. No disturbance. Just the feeling, steady and persistent, like a compass needle that wouldn't settle.
 
-He was exhausted. He was shaken. He was a man who had been raised to believe that he understood the world, that he knew how things worked, that he could predict the behavior of wolves and weather and men, and none of that mattered anymore because something had shifted in him and he didn't know how to fix it.
+He was exhausted. He was shaken. He'd been raised to believe that he understood the world, that he knew how things worked, that he could predict everything. None of that mattered anymore. Something had shifted in him and he didn't know how to fix it.
 
 He reined his horse at the compound gate. The stone walls rose up around him, dark and familiar. The smell of woodsmoke and cooking food drifted from the great hall. He could hear voices, pack members, probably, sitting around tables, talking, laughing, living their lives like everything was normal.
 
@@ -46,7 +46,7 @@ The great hall was warm and full of light. Fires crackled in the stone hearths. 
 
 And he noticed.
 
-Perseus had been trained to notice things. It was his job, to watch the pack, to read the room, to understand what people were saying and what they weren't. He noticed that Victor's hands were clenched at his sides. He noticed that his knuckles were white. He noticed that his jaw was tight, his shoulders tense, his eyes with which are usually sharp, focused, and commanding were distant and unfocused, like he was looking at something no one else could see.
+Perseus had been trained to notice things. It was his job, to watch the pack, to read the room, to understand what people were saying and what they weren't. He noticed that Victor's hands were clenched at his sides. He noticed that his knuckles were white. He noticed that his jaw was tight, his shoulders tense, his eyes distant and unfocused.
 
 Victor caught him looking. Perseus looked away.
 
@@ -100,7 +100,7 @@ It didn't stop feeling warm for hours.
 
 That night, Amelia dreamed of a wolf.
 
-Not a real wolf, not the kind she'd seen in stories or in pictures, small and furry and cute. This wolf was larger than anything that should have been possible. It was the size of a horse. Its fur was dark, almost black, but not quite, like storm clouds, like deep water, like the space between stars. Its eyes were amber, bright, sharp, intelligent, and they were looking right at her.
+Not a real wolf, not small and furry and cute. This wolf was the size of a horse. Its fur was dark, almost black, but not quite, like storm clouds, like deep water, like the space between stars. Its eyes were amber, bright, sharp, intelligent, and they were looking right at her.
 
 She didn't know where she was. She didn't know what she was doing in the dream. But she knew, with a certainty that was deeper than reason, that the wolf was not a threat. It was watching her. Not with hunger, not with fear, but with recognition.
 
