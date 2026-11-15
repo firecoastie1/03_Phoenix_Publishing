@@ -2,4 +2,7 @@
 *.kcb
 *.kcb.lock
 *_KC/
+
+# Word temp files (Windows)
+~$*.docx
 ~$*.docx
