@@ -238,7 +238,7 @@ Amelia nods. "I'll come with you."
 
 "No. You stay here. Rest. I don't want — I don't want him coming back while you're distracted."
 
-She studies him. Gray eyes meeting gray eyes. "You're worried about me."
+She studies him. Eyes meeting eyes. "You're worried about me."
 
 "I'm worried about us."
 

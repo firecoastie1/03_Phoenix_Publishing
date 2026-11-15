@@ -127,7 +127,7 @@ The space between them was nothing. She hadn't moved. He had.
 
 "You're close," she said quietly.
 
-He looked down. Looked back up. His gray eyes were dark. "I didn't realize."
+He looked down. Looked back up. His eyes were dark. "I didn't realize."
 
 "Don't apologize." She took a half step closer. Close enough to see the pulse jumping at his throat. "I like it."
 

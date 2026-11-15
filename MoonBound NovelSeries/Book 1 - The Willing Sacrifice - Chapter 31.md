@@ -146,7 +146,7 @@ He stares at the floor. "I was too slow."
 
 "You came back."
 
-He looks at her. His gray eyes are storm-gray today. Dark, heavy, the color of a sky that has not decided whether to break. "Gage is right. I was too slow."
+He looks at her. His eyes are storm-dark. Heavy. The color of a sky that has not decided whether to break. "Gage is right. I was too slow."
 
 Amelia stops cleaning the wound. Sets the cloth down. Takes his hand.
 

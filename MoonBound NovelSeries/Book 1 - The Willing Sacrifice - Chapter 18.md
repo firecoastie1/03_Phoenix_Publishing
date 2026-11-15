@@ -20,7 +20,7 @@ He was quiet for a long moment. She could feel him watching her. She could also 
 
 "Is that tea cold?" he asked.
 
-She turned. He was wearing a dark t-shirt and a pair of jeans that had seen better days, his hair still sleep-tousled, his gray eyes the color of storm clouds and probably a dozen other things she was not supposed to be thinking about at six in the morning. He looked like a man who had not slept. She looked like a woman who had not slept. That should have been a joke. It was not a joke.
+She turned. He was wearing a dark t-shirt and a pair of jeans that had seen better days, his hair still sleep-tousled, his eyes the color of storm clouds and probably a dozen other things she was not supposed to be thinking about at six in the morning. He looked like a man who had not slept. She looked like a woman who had not slept. That should have been a joke. It was not a joke.
 
 "Three minutes ago," she said.
 

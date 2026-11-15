@@ -12,7 +12,7 @@ She has spent her whole life alone. In a small cottage. With a cat and herbs and
 
 The bond hums between them. It has been humming all night. Not loud. Not demanding. Just there. A quiet presence in the background of their sleep. She has never felt anything like it. It is not just a connection. It is a home.
 
-She turns in his arms. Faces him. He stirs. Opens his gray eyes. No confusion. No hesitation. Just her. Just them.
+She turns in his arms. Faces him. He stirs. Opens his eyes. No confusion. No hesitation. Just her. Just them.
 
 "Good morning," he says. His voice is rough. Sleep-rough. The kind of voice that makes her chest ache.
 
@@ -120,7 +120,7 @@ She does not know what it means. Not yet. But she feels it, a thread of hope, th
 
 And she holds onto it.
 
-When she wakes, the sun is higher. Victor is awake. Watching her. His gray eyes are warm. Fond. Tired. But present.
+When she wakes, the sun is higher. Victor is awake. Watching her. His eyes are warm. Fond. Tired. But present.
 
 "You can tell me," he says. "Whenever you are ready."
 

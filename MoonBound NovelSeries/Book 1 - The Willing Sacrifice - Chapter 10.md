@@ -100,7 +100,7 @@ And then Amelia did something she hadn't planned to do. She stood up.
 
 She walked toward him. Not because the bond told her to — although it was pulling her, steady and low, like a current in the water. Not because she was afraid — although her hands were shaking and her chest felt like it was full of something hot and heavy. She walked toward him because she needed to understand. She was a person who asked questions. She was a person who needed answers. And he was the only person in this room who might have any of them.
 
-She stopped in front of him. Not too close. Not far away. Close enough that she could see the details of his face — the faint tension in his jaw, the shadows under his eyes, the way his gray eyes were fixed on the fire like it held answers he couldn't find.
+She stopped in front of him. Not too close. Not far away. Close enough that she could see the details of his face — the faint tension in his jaw, the shadows under his eyes, the way his eyes were fixed on the fire like it held answers he couldn't find.
 
 "I felt something today," she said. Her voice was quiet. Steady. Not cowering. "At the stream. When we looked at each other — when we touched — I felt something. It wasn't just the tingling in my hands. It was — it was like something inside me woke up. And I don't know what it's waking up to."
 

@@ -138,7 +138,7 @@ It was ridiculous. It was impossible. It was the kind of thing that made no sens
 
 And it was exactly what had happened in the clearing.
 
-She closed her eyes. She saw the moon. She saw the clearing. She saw him standing on the other side, hair wild in the wind, gray eyes locked on hers, breathing hard, looking at her like she was the only thing in the universe that mattered.
+She closed her eyes. She saw the moon. She saw the clearing. She saw him standing on the other side, hair wild in the wind, his eyes locked on hers, breathing hard, looking at her like she was the only thing in the universe that mattered.
 
 She opened her eyes. Her hands were still trembling.
 
