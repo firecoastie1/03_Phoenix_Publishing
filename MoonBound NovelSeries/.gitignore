@@ -1,0 +1,5 @@
+# Compiled outputs
+*.docx
+*.kcb
+*.kcb.lock
+*_KC/
